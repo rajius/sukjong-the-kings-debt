@@ -6,7 +6,7 @@
 
 **Essential Contradiction**: She is intellectually capable enough to operate a covert intelligence network, but socially constrained by every structure that makes such intelligence useful.
 
-**Central Drive**: Justice for her husband, which evolves into understanding the machinery that made his death necessary.
+**Central Drive**: To recover agency over a life narrowed by widowhood, first by learning why her husband was killed and later by understanding the machinery that turned her chosen life into an imposed one.
 
 ## BACKGROUND & FORMATION
 
@@ -27,8 +27,9 @@
 - **Husband**: Minor regional official, competent but not ambitious
 - **Marriage basis**: Intellectual compatibility and shared teacher's respect
 - **Dynamic**: He respected her mind; she respected his conscience
-- **Not**: Passionate love, but genuine partnership
+- **Not**: Passionate love, but a genuine chosen partnership
 - **His secret work**: Documenting "lost" memorials and burial sites related to Danjong loyalists
+- **What the marriage gave her**: A life she had actively chosen inside a restrictive world - companionship, work, direction, and a livable future
 
 ## PHYSICAL & SOCIAL DETAILS
 
@@ -40,9 +41,32 @@
 
 ### Social Position
 - **Status**: Widow of minor official - respectable but not powerful
-- **Resources**: Modest house, small income, inherited books and papers
+- **Resources**: Modest house, inherited books and papers, and a narrow but believable household economy
 - **Constraints**: Cannot travel alone, enter male scholarly spaces directly, or correspond with officials without intermediaries
 - **Advantages**: Invisibility, access to women's information networks, underestimation by men
+- **Widowhood's cost**: Her social identity hardens around a loss she did not choose, narrowing the life she is now permitted to live
+
+## HOW SHE LIVES
+
+### Economic Base
+- **Household remainder**: Her husband's death leaves her a modest household rather than destitution
+- **Small property income**: A little rent, grain, or produce from family land or leased fields helps keep the house running
+- **Practical standard**: She lives carefully, not comfortably - enough stability to avoid desperation, not enough wealth to be free
+
+### Respectable Female Income
+- **Textile work**: The house supervises weaving, sewing, embroidery, or cloth preparation through female labor and kin channels
+- **Status fit**: This is respectable, domestic, and plausible for a woman of her class
+- **Narrative use**: It gives her a reason to maintain contact with women, servants, and household networks without attracting comment
+
+### Intellectual Side Income
+- **Private scribal work**: She quietly copies texts, fair-copies letters, and polishes correspondence for elite women through kin and scholarly networks
+- **Mode of payment**: Not a public fee schedule, but gifts, cloth, grain, favors, and small payments
+- **Why it works**: It lets her literacy support her life without turning her into a modern professional or public bookseller
+
+### Why She Does Not Run A Shop
+- **Class problem**: A public bookshop would feel too commercial for her status
+- **Gender problem**: Open retail would expose her to the wrong kind of public contact with unrelated men
+- **Better fit**: Quiet household production and manuscript work let her survive while preserving propriety
 
 ## THE NETWORK OPERATION
 
@@ -51,6 +75,7 @@
 - **Method**: Writes letters as if from the dying teacher to his former students across provinces
 - **Intelligence gathering**: Embeds questions about local politics, recent deaths, factional changes in routine scholarly exchange
 - **Information synthesis**: Maps patterns across seemingly unconnected provincial reports
+- **Financial overlap**: Her private copying and correspondence work gives her both income and a plausible reason to remain inside paper networks
 
 ### Key Relationships
 - **Nephew (Kim Jinsa)**: Her crucial male intermediary - allows access to seowon networks
@@ -84,30 +109,55 @@
 - He maintained correspondence with restoration advocates across provinces
 - His death wasn't random - it was targeted elimination of dangerous evidence
 
+## WHAT HIS DEATH MEANS TO HER
+
+### The Real Wound
+- **Not lost romance**: She is not driven primarily by the death of a great love story
+- **Lost authorship**: What was taken from her was the right to keep living the life she had chosen
+- **Imposed identity**: Widowhood becomes the shape of a life assigned to her by violence and then enforced by custom
+- **Structural injury**: The same society that limited her choices now tells her how to inhabit the aftermath
+- **Moral outrage**: A decent, serious life was treated as expendable and she was expected to absorb the result quietly
+
+### Why The Investigation Matters
+- **Justice**: She wants to know why he was killed and by whom
+- **Agency**: Investigation is the only active form of life still available to her
+- **Defiance**: Refusing silence is also refusing the passive widow-role imposed on her
+- **Meaning**: If his life can be reduced to private misfortune, then her own chosen life disappears with it
+- **Survival of self**: The same skills that keep her fed also keep her intellectually alive
+
 ## EMOTIONAL DEVELOPMENT
 
 ### Chapter-by-Chapter Emotional Arc
 
-**Chapter 2**: Contentment within limitation - aware she's excluded from full knowledge but accepting
-**Chapter 3**: Shock, grief, determination - loss transforms her from observer to actor
-**Chapter 4**: Methodical patience masking rage - uses intelligence work as grief processing
+**Chapter 2**: Contentment within limitation - she has made a livable chosen life inside a constrained world
+**Chapter 3**: Shock, rage, determination - loss transforms her from participant in a chosen life to inhabitant of an imposed one
+**Chapter 4**: Methodical patience masking fury - intelligence work becomes a way to reclaim agency, not just process grief
 **Chapter 6**: Vulnerability - network collapse shows her how precarious her position is
-**Chapter 9**: Cautious alliance - first time in years she trusts someone with real information
-**Chapter 11**: Temporary release - mission accomplished allows emotional guard to lower
+**Chapter 9**: Cautious alliance - she sees him first through the justice lens, and only later through the personal lens
+**Chapter 11**: Temporary release - the public cause is achieved, and for a moment she feels the dangerous possibility of choosing again
 **Chapter 13**: Devastating clarity - understands that victory and loss occupy the same ground
-**Chapter 14**: Moral suspension - neither forgiveness nor hatred, but complex presence
+**Chapter 14**: Moral suspension - neither forgiveness nor surrender, but complex presence before an uncertain future
 
 ### Relationship with Justice
-- **Initial**: Believes in moral order where wrongs can be corrected
+- **Initial**: Believes in moral order and in the possibility of building a life inside it
 - **Middle**: Discovers that justice requires dangerous knowledge and patient investigation
-- **Final**: Understands that the system that delivers justice is the same that creates injustice
+- **Final**: Understands that the system that delivers justice is the same one that can confiscate an ordinary human future
+
+### Relationship with Widowhood
+- **Initial reality**: A social status she must endure after her husband's death
+- **Private response**: Resents that mourning becomes a life sentence others can read on her body and schedule
+- **Practical effect**: Widowhood narrows movement, intimacy, and future options while making obedience look virtuous
+- **Final understanding**: The investigation is not separate from widowhood; it is her refusal to let widowhood become her only identity
 
 ### Relationship with the Amhaeng-eosa
 - **Recognition**: She identifies him as royal agent before he reveals himself
 - **Transaction**: Initial relationship is purely practical - information exchange
+- **Justice lens**: He is useful because he can go where she cannot, read what she cannot access, and test her suspicions against official record
+- **Personal lens**: He becomes dangerous because his seriousness, patience, and plain decency rhyme with the kind of man she lost
 - **Attraction**: Develops through shared intellectual work, not confession or sentiment
 - **Trust**: Based on professional competence and mutual recognition of constraints
-- **Break**: Not dramatic confrontation but quiet withdrawal when she understands his position within the system that killed her husband
+- **Possibility**: For a moment, he suggests not replacement but the frightening possibility that she might one day choose a life again
+- **Break**: Not dramatic confrontation but quiet withdrawal when the useful man and the man himself collapse into the same political fact
 
 ## SOCIAL CONSTRAINTS IN ACTION
 
@@ -138,13 +188,14 @@
 - **Patient methodology**: Willing to wait years for the right information to surface
 - **Adaptive strategy**: Can adjust approach when original methods become dangerous
 - **Emotional control**: Maintains composed exterior while conducting dangerous investigation
+- **Economic discipline**: Knows how to stretch a narrow household economy without letting it collapse
 
 ### Her Limitations
 - **Resource constraints**: Cannot compete with official intelligence networks
 - **Social barriers**: Many crucial sources remain permanently inaccessible
 - **Male dependency**: Network collapses without male intermediaries
 - **Political exposure**: One wrong move could destroy her social position
-- **Emotional cost**: Grief and rage sometimes cloud strategic judgment
+- **Emotional cost**: Rage at waste and resentment of imposed widowhood sometimes cloud strategic judgment
 
 ## DIALOGUE PATTERNS
 
@@ -156,7 +207,7 @@
 
 ### What She Doesn't Say
 - **Direct accusations**: Even when she knows someone is lying
-- **Personal grief**: Keeps emotional pain separate from investigation work
+- **Personal rage**: Keeps emotional pain and the humiliation of widowhood separate from investigation work
 - **Full knowledge**: Never reveals how much she understands to any single person
 - **Political opinions**: Avoids factional language that could expose her
 
@@ -170,6 +221,7 @@
 ### Her House
 - **Location**: Respectable neighborhood but not wealthy
 - **Study**: Former husband's room, now her intelligence center
+- **Workrooms**: Domestic spaces where textile work, copying, and ordinary household management make the house appear conventional from outside
 - **Hidden space**: Where she keeps the stone rubbing and dangerous correspondence
 - **Visiting area**: Where she maintains social facade with callers
 
@@ -186,6 +238,7 @@ For any scene with Lady Yoon, ask:
 - **Is she working within or against social constraints?**
 - **Does her competence feel earned rather than modern?**
 - **Is she gathering information indirectly?**
+- **Does her livelihood feel socially plausible for a widow of her class?**
 - **Are her emotions controlled but visible?**
 - **Does the scene advance the stone rubbing investigation?**
 - **Is her relationship to justice becoming more complex?**
@@ -194,4 +247,4 @@ For any scene with Lady Yoon, ask:
 
 Lady Yoon embodies the novel's central paradox: she seeks justice through systems that exclude her, using intelligence networks that depend on the very social structures that limit her power. She is neither victim nor victor, but something more complex - a person who understands that moral clarity and practical action exist in permanent tension.
 
-Her competence is real but constrained. Her grief is private but drives public investigation. Her final position at Yeongwol - present before the shrine, neither forgiving nor condemning - represents the novel's refusal to simplify the relationship between justice and the machinery that delivers it.
+Her competence is real but constrained. What drives her is not simply bereavement, but the fact that widowhood becomes the life she is handed after the life she chose is taken away. Her final position at Yeongwol - present before the shrine, neither forgiving nor condemning - represents the novel's refusal to simplify the relationship between justice, memory, and the right to choose a life at all.
