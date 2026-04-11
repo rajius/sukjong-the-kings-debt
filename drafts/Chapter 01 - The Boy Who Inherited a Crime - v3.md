@@ -58,13 +58,23 @@ Yi Seon was not a man who could be dismissed. He was Jeonju Yi -- royal clan, an
 
 That first memorial had gone nowhere. The Southerners held power. The political weather was wrong. The same argument, the same names, the same conviction -- filed and forgotten, because the court that received it had no use for it.
 
+Sukjong had been thirteen. He had not been in the room when his father received it -- princes did not sit in court sessions -- but he had watched from the margins the way a boy watches anything that makes the adults go quiet. He had seen the memorial arrive. He had seen it not return. No discussion. No decree. No acknowledgment that it had existed at all. The court moved on to the next item, and Yi Seon's name was not mentioned again that season.
+
+It was his tutor who explained. Not immediately -- the man had the same patience as the seowon teachers, the same instinct for placing knowledge where a student would find it at the right time. A week after the memorial disappeared, during a lesson on the early kings, the tutor paused at Danjong's reign. He did not editorialize. He simply read the passage more slowly than the passages before and after it, and when he reached the end -- the exile, the death, the silence that followed -- he set the text down and looked at the prince and said nothing.
+
+Sukjong had asked.
+
+The tutor told him. Not the official version -- the version that lived in the seowon pages and the grandmothers' songs. The boy. The uncle. The river. The commoner who carried the body up the mountain. The two hundred years of silence. He told it the way a teacher tells a student something the student will need to carry for the rest of his life: plainly, without rhetoric, trusting the weight of the thing itself.
+
+Then he said: "Your father received a memorial this week asking him to correct this. He will not correct it. The men who hold power in his court do not want it corrected. Remember that -- not as a judgment of your father, but as a fact about courts. A king sees what he is permitted to see. The petition your father did not answer will come to you. It may take years. It may take the right men standing in the right positions. But it will come, because the people who carry this do not stop."
+
+Sukjong had been thirteen. He had understood the history. He had not understood the weight. That came later -- after the river, after the cold, after the years of sitting on a throne that rested on a silence he could no longer maintain without feeling the cost.
+
 Now the weather had changed. The Gyeongsin Hwanguk had swept the Southerners out and brought the Westerners back. Yi Seon had submitted again -- the same memorial, the same names, the same truth that had not changed in seven years or in two hundred and twenty-four. What had changed was who was standing in the court to receive it.
 
 Sukjong held the two documents -- the scholars' petition and Yi Seon's memorial -- and saw them for what they were. Not separate requests. Two ends of the same thread, pulled taut across generations by teachers and students and grandmothers and royal cousins and provincial scholars who had carried a dead boy's cause through seven generations of silence until it reached a desk where it might finally be heard.
 
 He noticed something in himself as he read. When the petition named Sejo, he felt nothing. No loyalty, no anger, no filial pull -- only the flat recognition of a name in a genealogy, seven reigns removed, a man who had been dead longer than most families could trace their lineage. But when it named the boy -- the nephew, the child king, the body in the river -- something moved. The grandmothers had done that. The teachers had done that. They had kept the boy alive in the country's memory while the uncle who killed him had faded into the ordinary silence of the dead. Time had chosen its side, and Sukjong was far enough from Sejo to see it.
-
-He also saw something else. The Westerners had just helped him consolidate power. Their intellectual tradition demanded this restoration. Giving them this victory would bind them closer to the throne. And by issuing it as his own decree -- not a response to their petition, but a royal initiative -- he would establish that moral correction flowed from the king, not from the scholars. The gift would be real. The calculation would also be real. He could not cleanly separate the two, and he was not certain he needed to.
 
 He summoned Nam Guman.
 
@@ -80,7 +90,7 @@ Nam's face did not change. But his hands, folded inside his sleeves, shifted -- 
 
 "Your Majesty has read the petition," Nam said carefully.
 
-"I have read seven years of petitions. This one arrived. The others knocked." Sukjong held up Yi Seon's memorial. "And this -- a royal cousin, a descendant of Sejong, petitioning for a wronged member of his own blood. These are not scholars writing from the provinces, Nam. These are men standing in my court."
+"I have read seven years of petitions. I watched my father's court bury the first one without a word. This one arrived. The others knocked." Sukjong held up Yi Seon's memorial. "And this -- a royal cousin, a descendant of Sejong, petitioning for a wronged member of his own blood. These are not scholars writing from the provinces, Nam. These are men standing in my court."
 
 "I do not question their standing."
 
@@ -98,11 +108,11 @@ Sukjong let the silence hold. He had learned that much -- that silence after a m
 
 "The scholars have waited seven generations," Nam continued. "Their patience is real. Their grief is real. But grief does not build a framework. The question is not whether this boy was wronged -- everyone in this court knows he was wronged. The question is how you admit a king was murdered by his uncle without declaring the uncle's entire line illegitimate. Because that line, Your Majesty, is yours."
 
-"Sejo is a name in a genealogy," Sukjong said. "Seven reigns removed. I feel nothing when I read it. No loyalty. No debt. Nothing."
+"Sejo is a portrait on a wall," Sukjong said. "Seven portraits back. I feel nothing when I read his name. No loyalty. No debt. Nothing."
 
 "What Your Majesty feels," Nam said, "is not the same as what the court will hear." He paused. Then, more quietly: "You are twenty, Your Majesty. You have the clarity of a man who stands far enough from a fire to see its shape. That is real. I do not dismiss it. But clarity about the past is not the same as control over what happens next. There is no formula yet for how to honor the victim without condemning the ancestor. The scholars who wrote this petition know that -- it is why they wrote to you and not to your father. They believe you are the king who will build that formula. But building it is not the same as declaring it. If you declare full restoration before the formula exists, you hand your enemies the indictment and no defense."
 
-Sukjong studied the old minister. Nam was not wrong. That was the problem with Nam -- he was rarely wrong, only cautious in a way that made caution sound like wisdom and delay sound like prudence. But Nam spoke of Sejo as though the man still stood in the room -- as though his claim on the throne were a living force that required active defense. It wasn't. It was a portrait on a wall, seven portraits back. The boy in the mountain was more real to Sukjong than the uncle who put him there, and he suspected this had been true for his father as well, and perhaps for his father's father -- that the attachment Nam was guarding had been quietly dying for generations, and what remained was not loyalty but habit.
+Sukjong studied the old minister. Nam was not wrong. That was the problem with Nam -- he was rarely wrong, only cautious in a way that made caution sound like wisdom and delay sound like prudence. But Nam spoke of Sejo as though the man still stood in the room, as though his claim on the throne were a living force that required active defense. Sukjong could feel how dead that claim was. The boy in the mountain was more real to him than the uncle who put him there. He suspected this had been true for his father as well, and perhaps for his father's father -- that what Nam was defending had been quietly dying for generations, and what remained was not loyalty but habit.
 
 But habit, in a court, had the force of law. Sukjong knew this in principle. He did not yet know it in his body -- not the way Nam knew it, the way a man who had watched two purges destroy men with better arguments than his knew it. Nam had seen what happened when a correct position was advanced at the wrong speed. The position died, and the men who held it died with it, and the cause they served was set back a generation. Sukjong had not seen that. He had read about it. The distance between reading and seeing was the distance between twenty and sixty, and Nam was standing in it.
 
@@ -112,7 +122,7 @@ But habit, in a court, had the force of law. Sukjong knew this in principle. He 
 
 The room was quiet. Nam waited. He had the patience of a man who had outlasted better arguments by simply remaining in the room after the argument had exhausted itself.
 
-"One step," Nam said. "A step that commits the throne to a direction without exposing it to the indictment. A step that the next king cannot reverse -- so that when the formula is ready, the ground has already been prepared."
+"One step," Nam said. "A step that commits the throne to a direction without exposing it to the indictment. A step the next king cannot reverse -- so that when the formula is ready, the ground has already been prepared."
 
 "What step?"
 
@@ -120,17 +130,19 @@ The room was quiet. Nam waited. He had the patience of a man who had outlasted b
 
 Sukjong looked at the petition. He looked at Nam. He felt the distance between what he wanted to do and what he could do, and for the first time understood that this distance was not a failure of courage. It was the shape of the problem itself -- a problem that had taken seven generations to build and could not be unmade in a single decree, no matter how clear the eyes of the king who issued it.
 
-He also understood something Nam had given him without saying it aloud: the scholars had chosen him because they believed he was the king who could see clearly. But seeing clearly was only the beginning. The work -- the formula, the framework, the years of preparation -- that was what would turn clarity into restoration. And that work required a throne that was still standing when it was finished.
-
 One word. It was less than he wanted. It was more than any king before him had given.
 
 "*Daegun,*" Sukjong said.
 
 Nam bowed. He left without another word. He had the instinct to leave a king alone with a decision before the king could resent the man who had shaped it.
 
+---
+
 Sukjong sat in the quiet after the door closed. *Gun* to *daegun.* One syllable. The largest step that would not crack the floor.
 
-He was not satisfied. He wanted to say it plainly -- all of it, the boy, the river, the uncle, the two hundred and twenty-four years. He wanted to say it the way Eom Heung-do had acted: without formula, without framework, without the caution of a minister who had survived three reigns by never moving faster than the slowest man in the room. But Nam had shown him something his clarity could not see on its own -- that the distance between a correct king and an effective one was measured in years, not in conviction. His predecessors could not have performed even this arithmetic. They were too close to Sejo, too entangled in the habit of defending what he had done. Sukjong was the first king far enough away to see the shape of the debt clearly. But seeing it clearly did not mean he could settle it in a single act. It meant he could begin.
+He was not satisfied. He wanted to say it plainly -- all of it, the boy, the river, the uncle, the two hundred and twenty-four years. He wanted to say it the way Eom Heung-do had acted: without formula, without framework, without the caution of a minister who had survived three reigns by never moving faster than the slowest man in the room. But Nam had shown him something his clarity could not see on its own -- that the distance between a correct king and an effective one was measured in years, not in conviction. And that the scholars had chosen him not because he could end this in a single act, but because he was the first king who would try. His predecessors could not have performed even this arithmetic. They were too close to Sejo, too entangled in the habit of defending what he had done. By the time the debt reached Sukjong, it had grown heavier than the inheritance. The boy outweighed the uncle. The wrong outweighed the precedent. The tipping point had passed so gradually that no single reign could have marked it, but Sukjong could feel it in the absence where filial loyalty should have been and was not -- and he understood that this was not disloyalty but distance, and that distance was what made the work possible.
+
+It did not make it fast.
 
 One syllable. It committed the throne to a direction it could not reverse, and Sukjong understood -- with the particular frustration of a young man learning that being right is not the same as being ready -- that he had started something he would need years, and a formula that did not yet exist, to finish.
 
@@ -148,23 +160,17 @@ They were not satisfied. They had been carrying this for seven generations. They
 
 ---
 
-That night, alone again, Sukjong sat with the debt.
+That night, alone again, Sukjong sat with what he had done and what he had not done.
 
-He thought of Eom Heung-do -- a commoner, a man with no royal blood, no scholarly tradition, no political calculation. A man who had pulled a dead boy from a river and carried him up a mountain in the snow and buried him because someone had to, because the state that was supposed to honor its dead had thrown them away, and because the act was right regardless of whether it would ever be acknowledged.
+He thought of Eom Heung-do. A commoner. A man with no royal blood, no scholarly tradition, no political calculation. A man who had pulled a dead boy from a river and carried him up a mountain and buried him because someone had to -- because the state that was supposed to honor its dead had thrown them away, and because the act was right regardless of whether it would ever be acknowledged.
 
-Two hundred and twenty-four years later, it had not been acknowledged. The grave had no royal marker. The man had no memorial. The grandmothers still sang the song. The teachers still placed the pages among the practice sheets. The knowledge had survived because ordinary people had decided, generation after generation, that it was more important to remember than to be safe.
-
-And somewhere in those two hundred and twenty-four years, so gradually that no single reign could have marked the moment, the balance had shifted. The ancestor who had committed the crime had become a name. The boy who had suffered it had remained a person. Sukjong's great-grandfather might still have felt something when he thought of Sejo -- some residual warmth, some filial defense. Sukjong felt nothing. He was the first king to sit at this desk and find the boy heavier than the uncle, the debt heavier than the inheritance, and to understand that this was not disloyalty but clarity -- the clarity that only distance could provide.
-
-And now a king had added one word to a dead boy's name -- for reasons that were both sincere and strategic, and he could not fully separate the two.
-
-Eom Heung-do had not needed to separate anything. He had simply acted. No framework. No formula. No political weather to read. Just a body, a mountain, and the conviction that the dead deserved better than a river. He had not thought about what he was leaving for the next generation, because he was not leaving anything. He was finishing something. The difference was the entire distance between a commoner and a king.
+Eom Heung-do had not needed a formula. He had not needed a framework. He had not needed to separate the sincere from the strategic, because there was nothing strategic in what he did. He was not leaving anything for the next generation. He was finishing something. The difference was the entire distance between a commoner and a king.
 
 Sukjong looked at the petition on his desk. He looked at the word he had changed. He thought of the cold water at fifteen, and the hands that had pulled him out, and the boy who had no hands -- only a commoner arriving too late, pulling a body from the current instead of a living child.
 
 One word. It was not enough.
 
-He had known that before he summoned Nam. He had known it when he said *I want to restore him fully* and meant it. What he had not known -- what Nam had taught him, not with wisdom but with the blunt memory of men he had watched destroyed for being right at the wrong speed -- was that the debt could not be settled by a king who saw clearly. It could only be settled by a king who saw clearly *and was still on the throne when the formula was ready.* The boy in the mountain had waited two hundred and twenty-four years. He could survive a king who moved carefully. He could not survive a king who moved too fast and was replaced by one who did not move at all.
+He had known that before he summoned Nam. He had known it when he said *I want to restore him fully* and meant it. What Nam had taught him -- not with wisdom but with the blunt weight of men he had watched destroyed for being right at the wrong speed -- was that the boy in the mountain could survive a king who moved carefully. He could not survive a king who moved too fast and was replaced by one who did not move at all.
 
 ---
 
