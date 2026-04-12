@@ -13,21 +13,23 @@
 ## BACKGROUND & FORMATION
 
 ### Modest Origins
-- **Birth**: From a modest provincial household, respectable but not powerful
-- **Father**: Local schoolteacher, serious, disciplined, quietly ambitious for his son
-- **Childhood world**: Village economies, provincial disputes, ordinary households living under decisions made far away
-- **Early impression**: Government is distant, but not unreal; good officials can still matter
+- **Birth**: ~1672, from a modest provincial household with military ties
+- **Father**: Minor military officer — garrison duty, border postings. Respectable but low-prestige in a society that ranked scholars above soldiers
+- **Childhood world**: Garrison towns, provincial roads, the rough edge of state authority where orders from the capital met terrain and weather and men who didn't care about court politics
+- **Early impression**: Government is not an abstraction. It is men with weapons, supply lines, walls that need repair, and decisions that arrive too late
 
 ### Education and Rise
-- **Schooling**: Strong classical education through discipline rather than elite connection
-- **Temperament**: Methodical, patient, observant, slow to speak
-- **Advancement**: Rose by merit through examinations and useful administrative work
-- **Career value**: Perceived as competent, careful, and politically safe
+- **Schooling**: Classical education alongside military training — his father insisted on both, understanding that a military family's son needed letters to rise above his father's station
+- **Civil exam (munkwa)**: Passed at ~22 (1694) — not a prodigy, but solid. He earned it through discipline rather than brilliance
+- **Military service**: Before and during his early civil career, served in a provincial garrison posting. Saw how policy reached the ground at its roughest — supply shortages, conscription abuses, the gap between what the capital ordered and what actually happened
+- **Temperament**: Methodical, patient, physically capable, slow to speak. Reads a room the way a soldier reads terrain — entry points, threats, who's armed
+- **Career transition**: Moved from military posting to civil administrative work. An unusual path, noticed by Sukjong's inner circle for exactly that reason
 
 ### Why Sukjong Uses Him
-- **Not flashy**: He does not announce himself as brilliant
-- **Field reliability**: Reads records carefully and notices what does not fit
-- **Social range**: Can speak to provincial officials, clerks, innkeepers, and local elders without sounding theatrical
+- **Not a typical scholar-inspector**: Most amhaeng-eosa are young civil officials who have never left the capital. Yi Hwon has field experience they lack
+- **Can handle himself**: Three weeks alone in a hostile province where the local officials might not want him to come back — the typical inspector can read the records but cannot survive the road. Yi Hwon can do both
+- **Reads records AND rooms**: Has the literacy and legal training the role requires, plus the physical instincts to know when a situation is about to turn
+- **Social range**: Can speak to provincial officials, clerks, innkeepers, soldiers, and local elders without sounding theatrical. His military background means he is not condescending to the people the state usually ignores
 - **Moral usefulness**: Still believes reports should describe what is actually there
 
 ## WHY HE MATTERS IN THE NOVEL
@@ -47,18 +49,20 @@
 - **Yi Hwon**: Begins with belief rather than wound
 - **Effect**: She knows too much to be innocent; he still wants innocence to be possible
 
-### How He Rhymes with the Husband
-- **Shared qualities**: Seriousness, patience, moral plainness, unspectacular competence
+### How He Contrasts with the Husband
+- **The husband**: Pure intellect — lean, forgot to eat, lived in his head. A prodigy who saw the Danjong question as a problem to solve through rigorous thought
+- **Yi Hwon**: A body that has been used. Competent but not brilliant. Sees the same questions through practical experience rather than intellectual architecture
+- **Shared quality**: Moral seriousness — both believe the work matters more than the career
 - **Crucial difference**: The husband was consumed by the system from below; Yi Hwon carries its seal from within
-- **Romantic effect**: He should echo the kind of man she lost without ever feeling like a substitute for him
+- **Effect on Lady Yoon**: He is nothing like the man she lost. That is precisely why he reaches her — he is not a reminder, not an echo, not a lesser version of the same type. He is something she has no framework for
 
 ## PHYSICAL & SOCIAL DETAILS
 
 ### Physical Presence
-- **Age**: About 30 during the main action
-- **Appearance**: Unremarkable, neat, watchful
-- **Bearing**: Composed without aristocratic ease
-- **Habits**: Keeps orderly notes, handles documents carefully, notices tone as much as content
+- **Age**: About 25-27 during the main action (born ~1672)
+- **Appearance**: Not large, but solid — the body of a man who has carried packs, walked garrison walls, and slept on ground. His hands are not a scholar's hands
+- **Bearing**: Alert, grounded. He occupies space differently from the scholars Lady Yoon has known — not with intellectual authority but with physical certainty. He knows where his body is at all times
+- **Habits**: Keeps orderly notes, handles documents carefully, but also checks exits, watches hands, and sits where he can see the door
 
 ### Social Position
 - **Status**: Minor royal inspector, respectable but not grand
