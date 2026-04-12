@@ -1,16 +1,64 @@
 # Chapter 1 -- The Boy Who Inherited a Crime
 
-In Yeongwol, the grandmothers sang a song about a boy who slept in the mountain and could not wake up.
+The girl asked her grandmother who the boy in the song was.
 
-They did not say his name. The name had been taken from him before most of them were born, replaced with something smaller, a title that meant nothing -- the way you might rename a dog after its owner dies, so that no one has to remember whose it was. But the song did not need the name. It carried what the name once carried: a boy, a mountain, a winter that had not ended. Every child in the county learned it from a mother who had learned it from hers, and before that from hers, the melody passing through hands that had never touched the boy's body but knew where it was buried, because the grandmothers before them had known, and the grandmothers before those, in an unbroken chain of women's voices reaching back to the winter when a man carried something heavy up the mountainside and the snow covered it by morning.
+They were sitting in the courtyard in the last of the evening light, the grandmother's hands busy with mending, her voice carrying the melody the way water carries a leaf -- without effort, without thought, as if the song had been there before the voice and would be there after. The song was about a boy who slept in the mountain and could not wake up. The girl had heard it since before she could remember. She had never asked about it. Children do not ask about the things that have always been there. But she was old enough now to hear the words inside the melody, and the words said something had happened on a mountain in winter, and a boy had not come home.
 
-The men carried it differently. In the seowon -- the private academies scattered through the provinces like seeds from a tree the capital had tried to fell -- the teachers kept the knowledge in lessons that were not quite lessons. A student copying the classics might find, tucked among the practice sheets, a page in his teacher's hand: a list of names with no explanation, or a passage from a memorial that had been formally destroyed, or a single question written in the margin of a genealogy -- *who was buried at Yeongwol, and by whom?* The student would read it. The teacher would not mention it again. If the student had understood, he would one day place the same page among his own student's practice sheets. If he had not understood, the page would be lost, and the knowledge would find another carrier.
+"Who was he?" the girl asked.
 
-This had been happening for two hundred and twenty-four years.
+The grandmother's hands did not stop. Her face did not change. But something in the rhythm of the mending shifted -- a pause so small it might have been nothing, or might have been the weight of deciding what to say to a child who had just, without knowing it, asked a dangerous question.
 
-A stonecutter outside the county had carved a poem on a rock face that said nothing about kings or thrones -- only that a pine tree on the eastern ridge had witnessed something the snow covered by morning. The rock was too high and too remote for officials to bother reading. The poem had outlasted every magistrate sent to govern the county. It would outlast the next.
+"A boy who was put in the ground before his time," the grandmother said. "By people who should have protected him."
 
-Two hundred and twenty-four years. Seven generations. That is how long a country can remember what a state has ordered it to forget -- if the women keep singing and the teachers keep placing pages where the right students will find them, and no one says the name aloud, because the last men who said it aloud were torn apart in the capital and their families erased, and that lesson, too, had been passed from teacher to student, mother to daughter, with the same patience and the same silence: *remember the boy, but remember also what happened to the men who spoke for him.*
+"What was his name?"
+
+"We don't say the name."
+
+"Why?"
+
+The grandmother looked at her then. Not with fear -- the fear had worn smooth generations ago, the way a stone in a riverbed loses its edges. What was left was something quieter: the expression of a woman deciding whether a child was ready to carry what the women of this county had been carrying since before the grandmother's own grandmother was born.
+
+"Because the last men who said it aloud were killed for it," she said. "And their families were erased. That is part of the song too, though it is not the part you sing."
+
+The girl was quiet. The grandmother returned to her mending. The song did not resume, but it did not need to. It had done what it had always done: passed from one pair of hands to the next.
+
+In a seowon outside the county -- one of the private academies scattered through the provinces like seeds from a tree the capital had tried to fell -- a young scholar found a page tucked among his practice sheets. It was in his teacher's hand. It was not part of the lesson. It contained a single question, written in the margin of a genealogy: *who was buried at Yeongwol, and by whom?*
+
+He brought the page to his teacher the next morning.
+
+"What is this?"
+
+The teacher did not look up from his writing. "What do you think it is?"
+
+The scholar had been studying the early kings. He had read the official histories. He knew what the genealogy said and what it did not say, and he had noticed the gap -- the reign that ended too abruptly, the name that changed, the silence where an explanation should have been.
+
+"I think someone is buried on the mountain who should not have been buried on the mountain," he said. "I think the state put him there."
+
+The teacher set down his brush. He looked at the young man the way the grandmother had looked at the girl -- measuring not intelligence but readiness, the capacity to carry a thing without breaking under it or speaking about it to the wrong person.
+
+"Do not say that outside this room," the teacher said. "Do not write it in any letter. If you understand what you have read, you will one day place the same page among your own student's sheets. If you do not understand, the page will be lost, and the knowledge will find another carrier."
+
+This had been happening for two hundred and twenty-four years. Seven generations. A stonecutter outside the county had carved a poem on a rock face that said nothing about kings or thrones -- only that a pine tree on the eastern ridge had witnessed something the snow covered by morning. The rock was too high and too remote for officials to bother reading. The poem had outlasted every magistrate sent to govern the county. It would outlast the next.
+
+That is how long a country can remember what a state has ordered it to forget -- if the women keep singing and the men keep placing pages where the right students will find them, and no one says the name aloud, and the grandmothers keep deciding, child by child, who is ready to carry it.
+
+---
+
+The report arrived on a morning in the third month of Sukjong's sixth year, carried by a secretary who did not understand what he was delivering.
+
+Sukjong read it at his desk. It concerned the chief minister -- a matter of misappropriated military supplies, the kind of infraction that could be treated as a clerical error or as treason, depending entirely on who was reading it. The chief minister had been careless. Or rather, he had been confident, which in a man who had governed for six years as if the king were a student and he were the curriculum was the same thing as carelessness.
+
+Sukjong set the report down. He did not summon anyone. He sat with it for the length of a morning, turning it over the way a man turns a tool in his hand, testing the weight, the balance, the edge.
+
+Joseon ran on factions -- rival camps of scholars and officials whose allegiances passed from teacher to student like doctrine, and whose battles over precedent and policy had hardened, over generations, into something closer to war. For six years, one faction had controlled the ministries, staffed the censorate, dominated the royal lectures. Sukjong had watched. He had taken note of who deferred and who dictated, who served the throne and who used it. He had learned which men spoke to him as a king and which spoke to him as a boy they expected to manage. He had memorized their names. He had not forgotten.
+
+The report was the lever. Not because it mattered -- any pretext would have served -- but because it was what had arrived, and a king who waits for the perfect instrument waits forever.
+
+He summoned the secretary back that afternoon and gave three orders. By evening, the chief minister had been stripped of office. By the end of the week, his allies had been scattered to provincial posts. By the end of the month, the rival faction -- men who had waited a generation for this opening, whose teachers had waited before them -- occupied every position that mattered.
+
+Sukjong was twenty. He had done it in a single season. The ministers who remained understood what that meant: this was not a king who would be managed.
+
+In the weeks that followed, sitting in the court he had rebuilt, Sukjong noticed something about the men he had installed. Their scholarly tradition -- passed from teacher to student across the same generations that had carried them through exile and exclusion -- held as a matter of foundational principle that Sejo's usurpation of his nephew's throne was a moral wrong. They had carried this conviction the way the grandmothers in Yeongwol carried their song: quietly, persistently, through years when it was dangerous to speak and years when there was no one in power who would listen. Now they were in power. And their deepest intellectual commitment pointed toward the boy in the mountain.
 
 ---
 
@@ -28,11 +76,7 @@ He did not think of the boy in the mountain then. He was fifteen. He knew the st
 
 ---
 
-He was twenty now, and he had been king for seven years.
-
-The Gyeongsin Hwanguk had been his doing. Not entirely -- the Southerners had provided the pretext, the Westerners the men -- but the decision had been Sukjong's. In the spring of his sixth year he had swept the Southerners from power and installed the Western faction in a single season. The court that sat before him now was a court he had built.
-
-In the weeks since, the memorials had come. They always came after a hwanguk -- requests for rehabilitation, petitions for redress, the names of men condemned under the previous regime now resubmitted by descendants and students and faction elders who could finally speak. Most were routine. Political prisoners. Wrongful demotions. The ordinary wreckage of factional rule.
+In the weeks after the overthrow, the memorials came. They always came after a change of power -- requests for rehabilitation, petitions for redress, the names of men condemned under the previous regime now resubmitted by descendants and students and faction elders who could finally speak. Most were routine. Political prisoners. Wrongful demotions. The ordinary wreckage of factional rule.
 
 One was not routine.
 
@@ -56,7 +100,7 @@ The memorial was not the first of its kind to reach a king's desk.
 
 Seven years earlier, under Sukjong's father, a man named Yi Seon had submitted the same request. Yi Seon was Jeonju Yi -- royal clan, an eighth-generation descendant of King Sejong through the Gwangpyeong line. Gwangpyeong Daegun had been Danjong's uncle. Yi Seon had been petitioning for wronged members of his own blood. He was also a disciple of Song Si-yeol, whose scholarly tradition had held for generations that Sejo's usurpation was a foundational moral wrong.
 
-That memorial had gone nowhere. The Southerners held power. The political weather was wrong. The same argument, the same names, the same conviction -- filed and forgotten, because the court that received it had no use for it.
+That memorial had gone nowhere. The old faction held power. The political weather was wrong. The same argument, the same names, the same conviction -- filed and forgotten, because the court that received it had no use for it.
 
 Sukjong had been thirteen. He had not been in the room when his father received it -- princes did not sit in court sessions -- but he had watched from the margins the way a boy watches anything that makes the adults go quiet. He had seen the memorial arrive. He had seen it not return. No discussion. No decree. No acknowledgment that it had existed at all. The court moved on to the next item, and Yi Seon's name was not mentioned again that season.
 
@@ -70,7 +114,7 @@ Then he said: "Your father received a memorial this week asking him to correct t
 
 Sukjong had been thirteen. He had understood the history. He had not understood the weight. That came later -- after the river, after the cold, after the years of sitting on a throne that rested on a silence he could no longer maintain without feeling the cost.
 
-Now the weather had changed. The Hwanguk had swept the Southerners out. The Westerners were back. The Vice Premier's memorial had arrived on his desk asking for the loyalists -- and no one, not the Vice Premier, not the scholars in the seowon, not the heirs of Yi Seon's cause, was asking for the boy himself. They were asking for the men who died defending him. Sukjong was the one who saw that the defenders were not the end of the argument. They were the beginning.
+Now the weather had changed. Sukjong's overthrow had swept the old faction out and installed the new. The Vice Premier's memorial had arrived on his desk asking for the loyalists -- and no one, not the Vice Premier, not the scholars in the seowon, not the heirs of Yi Seon's cause, was asking for the boy himself. They were asking for the men who died defending him. Sukjong was the one who saw that the defenders were not the end of the argument. They were the beginning.
 
 He noticed something in himself as he sat with this. When he thought of Sejo, he felt nothing. No loyalty, no anger, no filial pull -- only the flat recognition of a name in a genealogy, seven reigns removed, a man who had been dead longer than most families could trace their lineage. But when he thought of the boy -- the nephew, the child king, the body in the river -- something moved. The grandmothers had done that. The teachers had done that. They had kept the boy alive in the country's memory while the uncle who killed him had faded into the ordinary silence of the dead. Time had chosen its side, and Sukjong was far enough from Sejo to see it.
 
@@ -139,6 +183,8 @@ Sukjong sat in the quiet after the door closed. *Gun* to *daegun.* The largest s
 He was not satisfied. But Nam had shown him something his clarity could not see on its own -- that the distance between a correct king and an effective one was measured in years, not in conviction. His predecessors could not have taken even this step. They were too close to Sejo, too entangled in the habit of defending what he had done. Sukjong was the first king for whom the debt outweighed the inheritance, and that distance was what made the work possible. It did not make it fast.
 
 He had started something he would need years, and a formula that did not yet exist, to finish. He understood this with the particular frustration of a young man learning that being right is not the same as being ready.
+
+He also knew that the men he had installed would see the decree as a gift, and that the gift would bind them closer to the throne, and that he had known this before he summoned Nam. The debt was real. The strategy was also real. He could not find the seam between them, and he was not certain there was one.
 
 ---
 
