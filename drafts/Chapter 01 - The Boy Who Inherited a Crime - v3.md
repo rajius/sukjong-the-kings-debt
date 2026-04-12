@@ -62,17 +62,19 @@ Sukjong was twenty. He had done it in a single season. The ministers who remaine
 
 ---
 
-Sukjong was fifteen the first time the river tried to take him.
+The day after his coronation, Sukjong sent a messenger to Song Si-yeol.
 
-A crossing on the Han -- routine, not ceremonial. The boat was court-provided and the current was not unusual for the season. But the vessel turned wrong in the water, and for a span of seconds that his body would never release, the boy who was already king went under.
+Song Si-yeol was the most respected scholar in the country -- the intellectual patriarch of the faction Sukjong's father had just stripped from power. The fourteen-year-old king sent a personal summons, written in his own hand, requesting the old scholar's counsel. It was the correct gesture. A new king, young and untested, reaching across the factional divide to the man whose moral authority was greater than any minister's.
 
-Cold. Weight. The sound of the world replaced by pressure. His robes, heavy with court silk, pulled him down with the indifference of a hand that did not know or care that it was pulling a king. He fought the water and the water did not notice. He breathed river and his lungs did not care about his title. Hands found him -- guards, boatmen, arms reaching into the current -- and he was dragged up coughing into the air of a day that continued as if nothing had happened.
+Song Si-yeol had already left the capital.
 
-The court record noted the incident in a single line. The king was unharmed. The crossing was completed. No memorial was filed.
+He had departed the morning of the coronation, before the ceremony was finished. He had not sent word. He had simply gone -- south, to his estates, at a pace that made clear he was not traveling but refusing. When the messenger arrived with Sukjong's letter, Song Si-yeol received it, read it, and sent the messenger back without a reply.
 
-But Sukjong remembered. Not the panic -- that faded. What stayed was the cold, and the knowledge the cold had carried: that the river treated a king the same as it treated anyone. That water had no politics. That for three or four seconds he had been nothing but a body, and the body had been losing.
+In the weeks that followed, Sukjong sent two more requests. He asked the old scholar to write his father's memorial inscription -- the highest honor a king could offer a literatus. Song Si-yeol declined. He did not explain. He did not need to. The refusal said what it was designed to say: *you are fourteen years old, and your father handed the court to my enemies with his dying act, and I will wait until you come to me on terms I find acceptable.*
 
-He did not think of the boy in the mountain then. He was fifteen. He knew the story -- every prince knew some version of the story -- but at fifteen it was still history, not debt. The connection would come later, the way all connections come: not at the moment of the event, but in the years after, when the body's memory and the mind's knowledge finally find each other and produce something that can no longer be set aside.
+Sukjong sat on the throne his father had left him, in a court full of men who had been placed there by a dying king's last judgment, and understood for the first time what it meant to wear a title that the room did not believe in. He was king. The word meant nothing if the men who were supposed to serve him could simply walk away.
+
+He did not think of Danjong then. He had heard the story from his tutor the year before, but at fourteen it was still history -- a boy in a lesson, not a boy in a mirror. The connection would come later, in the years after, when the memory of sitting alone on a throne no one respected and the knowledge of a boy who had sat on the same throne and lost everything finally found each other and produced something that could no longer be set aside.
 
 ---
 
@@ -114,7 +116,7 @@ Sukjong had done the arithmetic without being asked. The boy had been twelve whe
 
 Then the tutor said: "Your father received a memorial this week asking him to correct this. He will not correct it. The men who hold power in his court do not want it corrected. Remember that -- not as a judgment of your father, but as a fact about courts. A king sees what he is permitted to see. The petition your father did not answer will come to you. It may take years. It may take the right men standing in the right positions. But it will come, because the people who carry this do not stop."
 
-Sukjong had been thirteen. He had understood the history. He had not understood the weight. That came later -- after the river, after the cold, after the years of sitting on a throne that rested on a silence he could no longer maintain without feeling the cost.
+Sukjong had been thirteen. He had understood the history. He had not understood the weight. That came later -- after the coronation, after Song Si-yeol's empty chair, after the years of sitting on a throne that rested on a silence he could no longer maintain without feeling the cost.
 
 Now the weather had changed. Sukjong's overthrow had swept the old faction out and installed the new. The Vice Premier's memorial had arrived on his desk asking for the loyalists -- and no one, not the Vice Premier, not the scholars in the seowon, not the heirs of Yi Seon's cause, was asking for the boy himself. They were asking for the men who died defending him. Sukjong was the one who saw that the defenders were not the end of the argument. They were the beginning.
 
