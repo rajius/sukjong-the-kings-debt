@@ -64,11 +64,19 @@
 - The annoyance was how he showed interest before he knew he was showing it. He argued with her more than he argued with anyone. He corrected her more sharply than he corrected students who knew less. He could not leave her observations alone
 - Lady Yoon would recognize this only later, in memory — that the moments she thought he was dismissing her were the moments he was most fully present
 
+### The Exchange
+- At some point during the marriage — ordinary evening, no dramatic setup — Lady Yoon found out about the childhood friend and casually asked
+- He responded briefly. Then asked her the same question
+- Lady Yoon: "A childhood friend? Yes. He married someone else."
+- She said it simply, without weight. It was done. She did not carry it
+- He heard her answer and said nothing
+- The distinction is everything: she lets go easily; he never did. Neither of them comments on the difference. This exchange will surface in Lady Yoon's flashback later in the novel — she will remember his silence after her answer and understand, only in retrospect, what it meant
+
 ### What He Could Not Give
 - He respected her. He valued the partnership. He was glad not to be alone
 - But the part of him that could have loved without reserve had been closed since the childhood friend died, and the Danjong cause had filled the space
 - Lady Yoon was the best thing he could accept. She was not the thing he reached for
-- He did not know this about himself. She figured it out slowly, over years, and never said it aloud
+- He was sometimes still sentimental about the friend — not openly, not dramatically, but in the way a man pauses at a season or a sound and goes somewhere else for a moment before returning
 
 ### The Marriage Dynamic
 - Intellectual partnership: real, daily, nourishing for both
@@ -119,8 +127,8 @@
 
 ### To Lady Yoon
 - He is the reason she became who she is — not because he shaped her, but because his death forced her to finish what he started, using skills he gave her without knowing their final purpose
-- In flashback: she remembers his annoyance as attention, his corrections as engagement, his silence as the place where the childhood friend still lived
-- She loved him more than he loved her, and she does not resent this. She understood it. Understanding did not make it hurt less
+- In flashback: she remembers his annoyance as attention, his corrections as engagement, and the evening she asked about the childhood friend and he asked her the same question and went quiet after her answer
+- She loved him more than he loved her, and she does not resent this. She is not the type to carry that kind of wound. What she carries is the work
 
 ## PHYSICAL DETAILS
 
