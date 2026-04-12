@@ -60,8 +60,6 @@ He summoned the secretary back that afternoon and gave three orders. By evening,
 
 Sukjong was twenty. He had done it in a single season. The ministers who remained understood what that meant: this was not a king who would be managed.
 
-In the weeks that followed, sitting in the court he had rebuilt, Sukjong noticed something about the men he had installed. Their scholarly tradition -- passed from teacher to student across the same generations that had carried them through exile and exclusion -- held as a matter of foundational principle that Sejo's usurpation of his nephew's throne was a moral wrong. They had carried this conviction the way the grandmothers in Yeongwol carried their song: quietly, persistently, through years when it was dangerous to speak and years when there was no one in power who would listen. Now they were in power. And their deepest intellectual commitment pointed toward the boy in the mountain.
-
 ---
 
 Sukjong was fifteen the first time the river tried to take him.
