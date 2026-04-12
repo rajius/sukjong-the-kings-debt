@@ -102,7 +102,7 @@ The answers came back slowly, through the same channels, in the same indirect wa
 
 She also learned: his parents were dead. He had studied under Song Si-yeol — the name carried weight even in the provinces, even among women who had never read a political memorial. He had passed the national examination on his first attempt. He was considered brilliant in the way that made older scholars uneasy — not because he was wrong, but because he arrived at conclusions before the argument had finished being made, and did not always hide his impatience with those who were still catching up.
 
-By the time Master Kim sent the letter to the capital proposing the match, she had assembled a picture of a man she had never seen from the traces he had left in the world — annotations, reputation, absence, and the shape of a silence where a wife should have been. It was the first investigation she had ever conducted. The method — indirect inquiry, layered networks, patience, the assembly of a portrait from fragments — would become the method she used for everything that came after.
+By the time Master Kim sent the letter to the capital proposing the match, she had assembled a picture of a man she had never seen from the traces he had left in the world — annotations, reputation, absence, and the shape of a silence where a wife should have been.
 
 ---
 
@@ -156,55 +156,9 @@ He shared the work gradually. Not as confession — he was not the kind of man w
 
 She asked.
 
-He was mapping burial sites. The graves of men who had been executed two hundred years ago for defending a boy king — their official burial locations, and the actual locations, which were not always the same. The state had recorded one thing. The families had remembered another. The seowon scholars had documented the discrepancies in letters and pages that circulated through the same networks that had carried the grandmother's song and the teacher's hidden page. Her husband was collecting these documents, comparing them, building a record that the state had spent two centuries trying to erase.
+He was mapping burial sites. The graves of men the state had executed two hundred years ago — their official locations, and the actual locations, which were not always the same. The state had recorded one thing. The families had remembered another. Her husband was building a record the state had spent two centuries trying to erase.
 
-She did not ask why. She already knew. She had been raised in a seowon where the same knowledge lived in practice sheets and books given to a maid by a teacher's wife. The why had been in the room her entire life. What she had not known was the how — the specific, painstaking, dangerous labor of turning a country's memory into a scholar's evidence.
-
-She learned the network through him. The names, the channels, the provincial contacts who could be trusted and those who could not. She learned without either of them naming what she was learning, because naming it would have meant acknowledging that the knowledge was being transferred, and acknowledging the transfer would have meant admitting that there might come a time when she would need to use it without him.
-
----
-
-One evening — winter, the second year of the marriage — she asked about the woman.
-
-They were sitting by the brazier. He was reading. She was mending a tear in his travel coat — he traveled often now, to the provinces, returning with bundles of papers and a tension in his jaw that she had learned to read the way she read texts: not by what was on the surface but by what the surface was trying not to show.
-
-"There was a girl," she said. Not a question. She had heard enough — a reference from Master Kim, a hesitation from an older scholar who had known him as a student — to know there was a shape in his past that no one would fill in for her.
-
-He did not look up from his reading. "When I was young."
-
-"What happened?"
-
-"She died."
-
-The word was flat. Not performed — he was not the kind of man who performed grief — but closed, the way a door is closed when the person who closed it does not intend to open it again.
-
-She waited. Then: "And you?"
-
-He looked up. "And me what?"
-
-"Did you have someone? Before this?"
-
-She set the mending in her lap. "A childhood friend. He married someone else."
-
-She said it simply, the way you report a fact that has no weight left in it. A thing that happened, that ended, that she had not carried forward because there was nothing to carry. It was done.
-
-He heard her answer. He looked at her for a moment — not assessing, for once, but something quieter, something she could not read because she had never seen it on his face before. Then he returned to his book.
-
-She picked up the mending. The fire settled. Neither of them spoke again that evening. She did not know, then, what his silence meant. She would understand it later — that her ability to say *he married someone else* with no residual weight was precisely the thing he could not do, and that the difference between them lived in that silence the way a river lives in the shape of its bed: invisibly, permanently, defining everything without being seen.
-
----
-
-The hidden current gathered.
-
-She did not look for it. She did not need to. The signs arrived the way books had arrived in Master Kim's household — not handed to her, but placed where she would find them if she was the kind of person who noticed.
-
-Her husband came home later. Not dramatically — not the lateness of a man conducting an affair or a man drinking in a tavern, but the lateness of a man who had been working on something that could not be carried home. He brought papers she had not seen before, filed them in a compartment of his desk she had not known existed, and did not mention them. When she entered the study, the compartment was closed. When she left, she could hear the faint click of it opening.
-
-Master Kim visited. He came from the provinces twice that year — long trips for a man his age, with a purpose that was not social and a manner that was not casual. He and her husband sat in the study with the door closed and spoke in a register she had learned to recognize from the seowon: the register of men discussing something that required care in the choosing of every word. Not whispers — whispers attracted attention. Just precision, the kind of precision that told a listener the subject was bearing weight the language was trying not to show.
-
-She did not press. She did not ask. She moved through the house the way she had always moved through houses — quietly, competently, attending to the machinery of daily life while the men attended to whatever it was they attended to behind closed doors. She had been trained for this, though the training had not announced itself as training. Mrs. Kim's quiet permissions. Master Kim's method of leaving knowledge where the ready would find it. The seowon's fundamental lesson: some knowledge comes when you are ready, not when you demand it.
-
-But she was reading the house the way she read texts — from the margins, through the gaps. And the gaps were getting wider.
+She learned the network through him. The names, the channels, the contacts. She learned without either of them naming what she was learning.
 
 ---
 
