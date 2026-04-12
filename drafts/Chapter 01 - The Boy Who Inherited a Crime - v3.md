@@ -98,7 +98,7 @@ Sukjong looked at nothing for a long time.
 
 ---
 
-The memorial was not the first of its kind to reach a king's desk. Seven years earlier, under Sukjong's father, the same request had been submitted. It had gone nowhere. The old faction held power. The political weather was wrong. Filed and forgotten.
+The memorial was not the first of its kind to reach a king's desk. Seven years earlier, under Sukjong's father, the same request had been submitted. It had gone nowhere. The political weather was wrong. Filed and forgotten.
 
 Sukjong had been thirteen. He had not been in the room when his father received it -- princes did not sit in court sessions -- but he had watched from the margins the way a boy watches anything that makes the adults go quiet. He had seen the memorial arrive. He had seen it not return. No discussion. No decree. No acknowledgment that it had existed at all. The court moved on to the next item, and Yi Seon's name was not mentioned again that season.
 
