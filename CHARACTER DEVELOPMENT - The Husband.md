@@ -72,11 +72,11 @@
 - He heard her answer and said nothing
 - The distinction is everything: she lets go easily; he never did. Neither of them comments on the difference. This exchange will surface in Lady Yoon's flashback later in the novel — she will remember his silence after her answer and understand, only in retrospect, what it meant
 
-### What He Could Not Give
+### What the Marriage Was and Wasn't
 - He respected her. He valued the partnership. He was glad not to be alone
-- But the part of him that could have loved without reserve had been closed since the childhood friend died, and the Danjong cause had filled the space
-- Lady Yoon was the best thing he could accept. She was not the thing he reached for
-- He was sometimes still sentimental about the friend — not openly, not dramatically, but in the way a man pauses at a season or a sound and goes somewhere else for a moment before returning
+- They grew attached — genuinely, not performatively. The attachment deepened with time and shared work
+- But the marriage was never the center of his life. The cause was. Lady Yoon understood this and did not fight it, because she had married him for the same qualities that made the cause come first
+- He was sometimes still sentimental about the childhood friend — not openly, not dramatically, but in the way a man pauses at a season or a sound and goes somewhere else for a moment before returning. This was the one softness in him that the work had not consumed
 
 ### The Marriage Dynamic
 - Intellectual partnership: real, daily, nourishing for both
@@ -105,7 +105,7 @@
 ### For Lady Yoon
 - His papers, his contacts, his unfinished network of documentation
 - The skills he had taught her without meaning to
-- A grief more complicated than simple mourning — grief for the partnership, and for the love she could feel but he could not fully return, and for the understanding that the cause had always come first and she had known it and stayed anyway
+- A grief for the partnership — for the daily rhythm of shared work, the arguments, the silence they had learned to sit inside together, and for the life that had been building between them when it was cut short
 - The knowledge that he had been right about the cause, and that being right had killed him
 
 ### For the Novel
@@ -128,7 +128,8 @@
 ### To Lady Yoon
 - He is the reason she became who she is — not because he shaped her, but because his death forced her to finish what he started, using skills he gave her without knowing their final purpose
 - In flashback: she remembers his annoyance as attention, his corrections as engagement, and the evening she asked about the childhood friend and he asked her the same question and went quiet after her answer
-- She loved him more than he loved her, and she does not resent this. She is not the type to carry that kind of wound. What she carries is the work
+- They developed real attachment over time — the kind that grows from daily proximity, shared work, and the quiet recognition that no one else would have fit. It was not romantic love. It was something sturdier and less dramatic: the bond of two people who chose each other because the choice made sense, and who grew to depend on each other in ways neither fully named
+- Romantic love, when it comes, will belong to someone else — and it will feel entirely different from this
 
 ## PHYSICAL DETAILS
 
