@@ -74,7 +74,7 @@ In the weeks that followed, Sukjong sent two more requests. He asked the old sch
 
 Sukjong sat on the throne his father had left him, in a court full of men who had been placed there by a dying king's last judgment, and understood for the first time what it meant to wear a title that the room did not believe in. He was king. The word meant nothing if the men who were supposed to serve him could simply walk away.
 
-He did not think of Danjong then. He had heard the story from his tutor the year before, but at fourteen it was still history -- a boy in a lesson, not a boy in a mirror. The connection would come later, in the years after, when the memory of sitting alone on a throne no one respected and the knowledge of a boy who had sat on the same throne and lost everything finally found each other and produced something that could no longer be set aside.
+He did not think of Danjong then. He had heard the story from his tutor the year before, but at fourteen it was still history -- a boy in a lesson, not a boy in a mirror.
 
 ---
 
