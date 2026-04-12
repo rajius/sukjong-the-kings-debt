@@ -28,9 +28,27 @@ She was eighteen now, and there was no one else. The other servants were older w
 
 Master Kim noticed. Not immediately — he was grieving, and grief has a way of making the machinery of daily life invisible even as someone else takes it over. But when the fog cleared enough for him to see his household running as well as it had when his wife was alive, and to wonder who was responsible, the answer was standing in his study doorway with a question about a passage she had been reading.
 
-He did not remember the exact moment the shift began. Later, he would think it was the question about the Zuozhuan commentary — something a third-year student might have asked, except that she asked it better, with a precision that suggested she had not just read the passage but had read the three texts the passage was responding to. He answered her. She asked a second question that was harder than the first. He answered that too. Then he said, "Where did you read Wang Bi?" and she said, "In the volume your wife gave me in the third month," and he understood that his wife had been running a parallel curriculum from the kitchen and had told him nothing about it.
+One evening she brought his tea and did not leave. She stood in the doorway of the study, holding the empty tray, and said: "The Zuozhuan commentary you assigned the second-years. The passage on Duke Xiang."
 
-After that, he left texts for her deliberately. Not the examination materials — she had no use for essay form — but the commentaries, the histories, the analytical work that taught a reader how to see what a text was doing beneath what it was saying. He asked her questions the way he asked his students questions: not to test knowledge, but to discover whether she could think. She could. Differently from his students — less systematic, more lateral, arriving at conclusions through paths he had not taught because he did not know they existed — but she could.
+He looked up. He had not assigned her anything. He had not known she was reading.
+
+"What about it?"
+
+"The commentator says Duke Xiang's failure was indecision. But the Zuozhuan itself says he consulted three times before acting. That is not indecision. That is consultation. The commentator is punishing him for doing what the classics say a ruler should do."
+
+Master Kim set down his brush. "That is not how the passage is taught."
+
+"I know. I have listened to how it is taught. That is why I am asking."
+
+A silence. Then: "Where did you read Wang Bi's commentary on the same passage?"
+
+"In the volume your wife gave me in the third month."
+
+He stared at her. She watched him understand — not just that his wife had been running a parallel curriculum from the kitchen, but that the curriculum had worked.
+
+"Sit down," he said.
+
+After that, the lessons became deliberate. Not the examination materials — she had no use for essay form — but the commentaries, the histories, the analytical work that taught a reader how to see what a text was doing beneath what it was saying. He discovered that she thought differently from his students — less systematic, more lateral, arriving at conclusions through paths he had not taught because he did not know they existed.
 
 He did not announce this to anyone. She remained the housekeeper. The students did not know. The arrangement was invisible, which was its own kind of lesson: the most important teaching in her life would come from a man who never called her a student, in a household where no one knew she was being taught.
 
@@ -96,11 +114,35 @@ She began asking.
 
 Not directly — she had no channel to the capital that would carry a direct question without raising the wrong kind of attention. But Mrs. Kim had taught her something besides books: the women's networks that ran beneath the official channels the way groundwater runs beneath roads. Wives of scholars who corresponded with their husbands' colleagues' wives. Sisters who visited the capital and returned with news that was not in any letter. Servants' families connected to other servants' families in households that touched the edges of the scholarly world.
 
-She sent questions through these channels the way Master Kim placed pages among practice sheets — carefully, indirectly, trusting the network to carry them to someone who could answer. She asked about a young official in the capital. His reputation. His habits. Whether he drank, whether he gambled, whether he had debts or enemies or a woman he visited. Whether he was the kind of man who walked into kitchens uninvited.
+She started with the wife of a scholar in the neighboring county — a woman named Ok-sun whose husband corresponded with colleagues in the capital and who received, through her own channels, the kind of news that did not appear in any letter between men.
 
-The answers came back slowly, through the same channels, in the same indirect way. He did not drink to excess. He did not gamble. He had no debts that anyone knew of. He had no woman, which was itself unusual — a munkwa passer in his late twenties without a wife or a serious arrangement was a man who was either too ambitious, too strange, or too consumed by something else to notice what was missing from his life. The women's network could not determine which.
+They sat in Ok-sun's kitchen. The visit was social — a gift of dried persimmons, a polite inquiry about the children. Lady Yoon waited until the second cup of tea before she mentioned that Master Kim was considering a match for her with a former student.
 
-She also learned: his parents were dead. He had studied under Song Si-yeol — the name carried weight even in the provinces, even among women who had never read a political memorial. He had passed the national examination on his first attempt. He was considered brilliant in the way that made older scholars uneasy — not because he was wrong, but because he arrived at conclusions before the argument had finished being made, and did not always hide his impatience with those who were still catching up.
+"In the capital?" Ok-sun said. "Which student?"
+
+Lady Yoon gave the name.
+
+Ok-sun's expression shifted — not recognition exactly, but the particular alertness of a woman who has heard a name in a context she is now trying to recall.
+
+"My husband's colleague mentioned him once. Song Si-yeol's student. Passed the examination very young." She paused. "No wife."
+
+"That is what I am trying to understand."
+
+"You want to know why."
+
+"I want to know what kind of man has no wife at twenty-nine and no one asking questions about it."
+
+Ok-sun looked at her over the tea. "People are asking questions. They just do not have answers. His parents died — mourning accounts for some years. After that..." She shrugged. "My husband says the scholars who know him use the word 'brilliant' the way you use the word for a blade that cuts well but is difficult to hold."
+
+"Dangerous?"
+
+"Consuming. He works. That is what they say. He works the way other men drink or chase women — constantly, and at the expense of everything else."
+
+Lady Yoon asked the question she had come to ask. "Is he the kind of man who would walk into a woman's kitchen uninvited?"
+
+Ok-sun understood the question beneath the question. "No," she said. "From what I hear, he is the kind of man who would not notice the kitchen existed."
+
+She also learned, through Ok-sun and through the channels Ok-sun connected her to: he had studied under Song Si-yeol — the name carried weight even among women who had never read a political memorial. He had passed the national examination on his first attempt. He was considered brilliant in the way that made older scholars uneasy — not because he was wrong, but because he arrived at conclusions before the argument had finished being made, and did not always hide his impatience with those who were still catching up.
 
 By the time Master Kim sent the letter to the capital proposing the match, she had assembled a picture of a man she had never seen from the traces he had left in the world — annotations, reputation, absence, and the shape of a silence where a wife should have been.
 
@@ -136,15 +178,37 @@ The silence that followed was not comfortable. It was the silence of a man recal
 
 They married in the first month of the following year. The ceremony was small — Master Kim's household, a few local scholars, no family on either side because there was no family on either side. He returned to the capital two weeks after the wedding with arrangements for her to follow once the household matters were settled. She arrived in the capital in the spring.
 
-The first months were negotiation. Not argument — they rarely argued, because argument implied positions already formed — but the continuous, daily process of two people learning where the other's mind went when left alone and whether they could follow it there.
+The first months were negotiation — not argued but lived, the daily process of two people learning where the other's mind went when left alone.
 
-He shared his books. He shared his notes. He did not share these things generously — generosity would have required a consciousness of giving, and he did not think of his books as things he was giving her. He thought of them as the air in the room. They were simply there, and she was simply there, and if she read them that was no different from breathing. What surprised him was that she exhaled differently than he expected.
+One evening in the second month, she was reading at the table while he worked at his desk. She had picked up a commentary he had left open — not for her, but not closed either — and had been reading it for an hour when she said, without looking up: "This memorial is arguing against itself."
 
-She asked questions he had not considered. Not better questions than the ones he asked himself — he would not have conceded that — but questions that arrived from directions his training had not prepared him for. He had been taught to read texts through the lens of the scholarly tradition: commentary responding to commentary, argument building on argument, each generation of scholars adding a layer to the structure. She read texts the way she had read the seowon — from the margins, through the gaps, looking for what the tradition had chosen not to say. This irritated him. It irritated him because it sometimes worked.
+He did not turn around. "It is arguing against the policy it claims to support. That is different."
 
-He corrected her often. More often than he corrected anyone. More sharply. She accepted the corrections when they were right and refused them when they were wrong, and the refusals bothered him more than they should have, and the acceptances did not satisfy him the way they should have, and he did not examine why.
+"How?"
 
-She did. Not immediately — she was still learning the shape of him, the rhythms of his attention, the way his mind moved. But she noticed that he argued with her more than he argued with the scholars who visited, that he brought her texts he had not shared with his colleagues, that he waited for her responses with an impatience he never showed when waiting for a reply from the capital. She did not yet understand what this meant. She thought it might be contempt — the particular contempt of a formally trained mind for one that had not been formally trained. She was wrong, but she would not know she was wrong for some time.
+"The author wants the policy to succeed but believes the method is wrong. He is not opposing — he is correcting. If you read the third paragraph again, he shifts from criticism to proposal."
+
+She read the third paragraph again. "The proposal is weaker than the criticism."
+
+Now he turned. "Why?"
+
+"Because the criticism comes from evidence. The proposal comes from hope. He documents what went wrong in three provinces and then recommends the same approach with better officials, as if the problem were the men and not the structure."
+
+He was quiet for a moment. Then: "That is not what the commentary tradition says about this memorial."
+
+"What does the commentary tradition say?"
+
+"That the proposal is the strongest section because it offers a constructive alternative."
+
+"The commentary tradition is wrong."
+
+He stared at her the way he had stared at her across Master Kim's table — the look of a man recalculating. Then he said, "The commentary tradition has been refined across six generations of scholars."
+
+"And none of them noticed that hope is not evidence."
+
+He turned back to his desk. He did not concede. He did not argue further. But she heard him set down the brush he had been writing with and pick up the memorial she had been reading, and she knew — from the particular quality of the silence that followed — that he was reading the third paragraph again.
+
+This was the pattern. He corrected her more often and more sharply than he corrected anyone. She accepted the corrections when they were right and refused them when they were wrong. The refusals bothered him more than they should have. She noticed that he argued with her more than he argued with the scholars who visited, that he brought her texts he had not shared with his colleagues. She did not yet understand what this meant.
 
 ---
 
@@ -180,8 +244,24 @@ That evening, when her husband returned, she heard him go to the study. She hear
 
 She was standing in the corridor outside the study. Not hiding — she was carrying a lamp to the bedroom, a task that took her past the study door every evening. But she had paused. The way she had learned to pause — three or four breaths, long enough to hear the shape of what was happening on the other side, short enough to still be walking when anyone looked.
 
-Later that night, Master Kim arrived. An unannounced visit, late, the kind of visit that does not happen between a teacher and a former student without reason. They went into the study. The door closed. The conversation began — low, precise, carrying the weight of something she could feel through the wall without hearing the words.
+Later that night, a knock at the gate. She opened it. Master Kim stood in the dark, travel-worn, carrying a satchel she had not seen before.
 
-She stood in the corridor. She did not enter. She did not leave. She held the lamp and listened to the shape of a conversation she was not yet part of, and understood that the door between her and the purpose would open when the men on the other side decided she was ready, or when the purpose decided for them.
+"Is he home?" Master Kim said.
 
-The lamp burned down. The voices continued. She waited.
+"In the study."
+
+He stepped inside. Then he stopped and looked at her — not the way he looked at a housekeeper, and not the way he looked at a student, but the way he might look at a piece of a problem he had not yet decided how to use.
+
+"How are you?" he said.
+
+It was a strange question from a man who had traveled two days to arrive unannounced at night. She understood that the question was not about her health.
+
+"I am reading the house," she said.
+
+Master Kim's expression did not change, but something behind it shifted — the same quality she had seen when she asked about the Zuozhuan, when he recognized that his wife's curriculum had worked.
+
+"Good," he said. He walked to the study. The door closed.
+
+She stood in the corridor with the lamp. Through the wall, fragments — not the conversation itself, but its edges. Her husband's voice, low and taut: "...the records in Yeongwol do not match..." Master Kim's voice, lower: "...they will not match. That is the point. The question is who else knows they do not match..."
+
+She did not enter. She did not leave. The lamp burned down. The voices continued. She waited.
