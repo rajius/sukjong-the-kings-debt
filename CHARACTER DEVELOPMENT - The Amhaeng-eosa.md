@@ -13,17 +13,17 @@
 ## BACKGROUND & FORMATION
 
 ### Modest Origins
-- **Birth**: ~1672, from a modest provincial household with military ties
-- **Father**: Minor military officer — garrison duty, border postings. Respectable but low-prestige in a society that ranked scholars above soldiers
-- **Childhood world**: Garrison towns, provincial roads, the rough edge of state authority where orders from the capital met terrain and weather and men who didn't care about court politics
-- **Early impression**: Government is not an abstraction. It is men with weapons, supply lines, walls that need repair, and decisions that arrive too late
+- **Birth**: ~1670, from a modest provincial household
+- **Father**: Not military. A provincial civil figure — respectable but not powerful
+- **Childhood world**: Provincial life, ordinary households living under decisions made far away
+- **Early impression**: Government is distant but not unreal; good officials can still matter
 
 ### Education and Rise
-- **Schooling**: Classical education alongside military training — his father insisted on both, understanding that a military family's son needed letters to rise above his father's station
-- **Civil exam (munkwa)**: Passed at ~22 (1694) — not a prodigy, but solid. He earned it through discipline rather than brilliance
-- **Military service**: Before and during his early civil career, served in a provincial garrison posting. Saw how policy reached the ground at its roughest — supply shortages, conscription abuses, the gap between what the capital ordered and what actually happened
-- **Temperament**: Methodical, patient, physically capable, slow to speak. Reads a room the way a soldier reads terrain — entry points, threats, who's armed
-- **Career transition**: Moved from military posting to civil administrative work. An unusual path, noticed by Sukjong's inner circle for exactly that reason
+- **Schooling**: Strong classical education through discipline rather than elite connection
+- **Civil exam (munkwa)**: Passed at ~24-25 (~1694-95) — not a prodigy, but solid. Earned through discipline rather than brilliance
+- **Placed in military office**: After passing the civil exam, was assigned to a military posting — a civil official working inside the military apparatus. This is where his body changed. The military environment shaped his hands, his posture, his instincts. The soldier in him comes from the job, not the family
+- **What the posting taught him**: How policy reaches the ground at its roughest — supply shortages, conscription abuses, the gap between what the capital ordered and what actually happened. He saw the state from the bottom
+- **Temperament**: Methodical, patient, physically capable, slow to speak. Reads a room the way a soldier reads terrain — entry points, threats, who's armed. These instincts were learned, not inherited
 
 ### Why Sukjong Uses Him
 - **Not a typical scholar-inspector**: Most amhaeng-eosa are young civil officials who have never left the capital. Yi Hwon has field experience they lack
@@ -59,7 +59,7 @@
 ## PHYSICAL & SOCIAL DETAILS
 
 ### Physical Presence
-- **Age**: About 25-27 during the main action (born ~1672)
+- **Age**: About 26-31 across the main action (born ~1670). Memorial ~1696-97 (age 26-27). Third meeting ~1700-01 (age 30-31).
 - **Appearance**: Not large, but solid — the body of a man who has carried packs, walked garrison walls, and slept on ground. His hands are not a scholar's hands
 - **Bearing**: Alert, grounded. He occupies space differently from the scholars Lady Yoon has known — not with intellectual authority but with physical certainty. He knows where his body is at all times
 - **Habits**: Keeps orderly notes, handles documents carefully, but also checks exits, watches hands, and sits where he can see the door
