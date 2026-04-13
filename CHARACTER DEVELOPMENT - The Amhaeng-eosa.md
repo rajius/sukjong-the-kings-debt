@@ -93,25 +93,27 @@
 ## PERSONAL LIFE & DEVELOPMENT
 
 ### Relationship with Soonyi
-- **Childhood connection**: Genuine friendship and affection from shared village background
-- **Her family**: Merchant family with money seeking social advancement through marriage  
-- **Quiet arrangement**: Her father arranges opportunities for Yi Hwon's advancement to make marriage socially appropriate
-- **Compatible temperaments**: Real care and understanding, comfortable companionship
-- **The expectation**: Both families and community assume their marriage - feels inevitable rather than chosen
+- **Soonyi**: Born ~1671. Merchant family with money, not yangban. Attends elite parties through family wealth. One year younger than Yi Hwon.
+- **The arrangement**: Her money, his credentials (munkwa passer). Converts merchant wealth into status. Never formally engaged — an understanding, assumed by both families and community.
+- **Compatible temperaments**: Real warmth, comfortable companionship. She knows him. She does not challenge him.
+- **He never initiates**: Every conversation about the marriage comes from her side. He doesn't resist. He doesn't refuse. He just never authors it.
+- **After the memorial (~1695-96)**: He stares at a woman from behind at a capital event — same air as someone he saw. Soonyi asks, he says "she looks familiar." Soonyi identifies the woman, explains she's recently widowed. Passes easily. Files it.
+- **The scholarly turn (~1697)**: He starts studying classical texts. Everyone surprised — he had been developing toward physical/military excellence. Soonyi notices.
+- **Soonyi seeks answers**: Older woman, matchmaker, shaman — three consultations, no clear answer. Then overhears about an underground professional service at an elite party. Pays for guidance. Lady Yoon's answer in two sentences: "Connect the dots. Once you get it right, ask for a confirmation."
+- **Soonyi connects**: Takes a long time. The air from behind, the scholarly turn. Not evidence — instinct. Once she accepts the possibility, the question forms itself.
+- **The confrontation (~1698, around amhaeng-eosa appointment)**:
+  1. "You met someone." — His face. The half-second.
+  2. "I am sorry you have to know this way."
+  3. "Who is she?" — Silence. He can't answer — Lady Yoon's existence is operational.
+  4. "I do not mind you take her as a concubine."
+  5. "She won't do that." — Without thinking. Chapter ends.
+- **Soonyi married the following year (~1699)**. Merchant father found a better arrangement. Public version: traded up. Private version: she walked away.
 
-### Five-Year Development Arc (Late 1680s - Mid-1690s)
-- **Identity crisis triggered**: Lady Yoon's challenge about authentic choice sparks fundamental questions
-- **Honest with Soonyi**: "I need to figure out who I am. You deserve someone certain."
-- **Temporary separation**: Refuses to marry while uncertain, giving both space for self-discovery
-- **Professional growth**: Takes challenging assignments, proves himself through merit and conviction
-- **Moral development**: Faces ethical choices that help him understand his own values and authentic path
-- **Soonyi's response**: "I'd rather you figure this out than marry me while uncertain. Come back when you know what you want."
-
-### Personal Maturation
-- **Question of authentic choice**: What life does he actually want vs. what's expected?
-- **Understanding earned advancement**: Distinguishing merit from arrangement
-- **Moral clarity**: Learning the difference between serving systems and serving principles
-- **Emotional readiness**: Developing capacity for Lady Yoon's moral complexity
+### Arc Between Memorial and Amhaeng-eosa Mission
+- **After 2nd meeting with Lady Yoon (~1697)**: Returns to capital. Scholarly turn begins.
+- **Indirect contact with Lady Yoon**: Maintains a thread during separation. Method TBD — must be cryptic enough for deniability.
+- **Amhaeng-eosa appointment (~1698)**: King's personal selection. Triggers Soonyi confrontation.
+- **Leaves carrying the king's seal**: The third meeting with Lady Yoon IS the amhaeng-eosa mission.
 
 ## INTERNAL CONTRADICTIONS
 
