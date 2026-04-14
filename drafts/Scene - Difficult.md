@@ -14,8 +14,6 @@ She smiled. Not the controlled, partial thing he had seen before. Full. Brief, b
 
 "Difficult," she said.
 
-He had expected many things. Loyal. Principled. Quiet. He had not expected difficult.
-
 She watched the stream.
 
 "But he let me be myself the whole time," she said.
