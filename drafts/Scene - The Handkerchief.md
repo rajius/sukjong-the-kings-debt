@@ -48,10 +48,8 @@ Lady Yoon read the letter once. She folded it and placed it in the compartment w
 
 That evening, alone in the room, she sat with the thing she could not name.
 
-The handkerchief was in his pack against the far wall. She had held it for three seconds. Pale blue-grey. Patient stitching. The small character at the corner, placed exactly where his hand would touch it.
+The handkerchief was in his pack against the far wall. Pale blue-grey. Patient stitching. The small character at the corner.
 
-Someone had made that for him. Someone twenty-three and unmarried who had watched him leave for the provinces with a piece of her patience folded into his things.
-
-And he had kept it.
+Twenty-three. Unmarried.
 
 The pain was so foreign she almost mistook it for illness.
