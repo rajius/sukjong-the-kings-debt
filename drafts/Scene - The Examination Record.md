@@ -42,13 +42,15 @@ Yi Hwon closed the volume.
 
 Lady Yoon had not fallen from a provincial life to a provincial life. She had fallen from the capital. She had been the wife of one of the finest minds to pass through the examination system in his generation — a man who studied under Song Si-yeol, moved in the highest circles. The tea gatherings. The officials' wives. The factional map redrawn at every seasonal dinner. She had learned to read rooms not in a quiet countryside seowon but in the most dangerous drawing rooms in Joseon.
 
-Then Song Si-yeol was executed. Her husband's name became marked. And someone had made sure he didn't survive the fallout.
+Then Song Si-yeol was executed.
+
+Yi Hwon sat with the examination record open and saw what no list needed to tell him. A first-attempt munkwa pass. Song Si-yeol's student. Governance essays that argued for structural accountability with a clarity that left no room for misreading. After the execution, a mind like this — connected to the teacher, published, precise, refusing to hedge — would have been on a list immediately. Not eventually. Immediately. The apparatus did not wait. It did not need to investigate. The examination record itself was the evidence. Everything after Song Si-yeol's death was process.
+
+The husband had been targeted long before he was killed.
 
 She had retreated to the provinces. Back to Master Kim. And she had taken everything she learned in the capital and applied it to a scattered network of provincial contacts that no one would ever think to watch.
 
 Yi Hwon walked out into the daylight.
-
-He thought about a man who had written with precision on his first public document and carried that precision into everything after — his official work, his private correspondence, his secret documentation. In a court where survival depended on ambiguity, a man who insisted on clarity was a man waiting to be erased.
 
 *Difficult.*
 
