@@ -1,6 +1,6 @@
 # GO HOME
 
-*Placement TBD — during the mission, before Yeongwol. Lady Yoon sends Yi Hwon back to Soonyi. Timing note: check whether Soonyi confrontation and marriage have already happened by this point.*
+*Placement: during the SECOND meeting (~1696-97), before the Soonyi confrontation. Lady Yoon sends him back. He goes. He can't stay. The scholarly turn is the proof her instruction failed. When Soonyi later says "you met someone" and he replies "she won't do that" — he's not guessing. He's quoting.*
 
 ---
 
