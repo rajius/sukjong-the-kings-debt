@@ -20,17 +20,9 @@ His hand was still on her arm.
 
 ---
 
-She was aware of it the way she was aware of everything — precisely, completely, with the trained attention of a woman who had spent her life noticing what others missed. The weight of his hand. The specific placement of his fingers. The warmth of his grip through the fabric of her sleeve. The fact that the operational reason for the contact had ended and the contact had not.
+She was aware of it. The weight of his hand. The fact that the operational reason for the contact had ended and the contact had not.
 
-She calculated. She had been calculating since the second meeting — since the morning on the corridor when she told him to go home, since the handkerchief, since the inquiry she hated sending. The calculation was always the same: the reasons against, stacked neatly, load-bearing, correct.
-
-Is it the right time. Maybe not. Maybe there is no right time and the belief that there will be is itself a form of cowardice she learned from a world that rewarded waiting and punished action.
-
-Maybe there is another chance. Maybe this is the only one. She had thought there would be more time with the husband. Five years of Tuesday and then nothing. She had not known they were the best years until they became the thing she measured everything against.
-
-Can she afford to lose again. She had survived it once. The question was not whether she could survive it. The question was whether the fear of loss was a good enough reason to refuse what was in front of her.
-
-The society. She had never fit the mold. She was a maid who became a scholar's wife who became a widow who became an intelligence operator. The mold had never held her. It was not going to start now.
+She had thought there would be more time with the husband. Five years and then nothing.
 
 ---
 
@@ -52,7 +44,7 @@ She touched the scratch. Her fingers along the line of it, wiping what was left 
 
 Then she kissed it. Slowly. Her lips on the scratch, on the skin beside the scratch, on the place where his neck met his jaw. She stayed there. She did not rush.
 
-He was frozen. He could not move because moving might break whatever permission she had just given herself. She was the woman who had built every wall between them. She had sent him home. She had rebuilt the distance in a morning. And now her mouth was on his neck and he could feel her breathing against his skin and he could not move.
+He was frozen.
 
 Her lips moved up. Slowly. Along his jaw. She reached his chin and paused — not hesitating, resting. She felt the roughness of his beard under her lips. Not a smooth jaw from a romance. The end of a day of hiding, running, being operational. She stayed with the roughness. She did not flinch from the reality of him.
 
@@ -64,13 +56,9 @@ The thing she had maintained for months — rebuilt after every crack, defended 
 
 ---
 
-The kiss held. Neither of them moved to end it.
+The kiss held.
 
-For a very long time — since the seowon, since the corridor, since the first tray she carried past a room full of men who did not see her seeing them — she had been alert. Aware. Reading. Every room, every silence, every gesture, every document, every face. The attention never stopped. It was not a skill she practiced. It was the condition of her life.
-
-She noticed herself not noticing. That was the last calculation.
-
-After that there was nothing but the dark and the cold stone behind her and the warmth of him against her and the fact that her hands, which had spent years carrying trays and folding letters and holding pages in dead men's handwriting, were holding a living man's face.
+She noticed herself not noticing.
 
 The cave was cold. He was warm.
 
