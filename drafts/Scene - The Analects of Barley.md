@@ -100,10 +100,3 @@ The room was quiet.
 
 He ate. She thought she saw the mouth move again. She couldn't be certain. She never could.
 
----
-
-Years later, running a network of informants across three provinces, Lady Yoon would sometimes think of the barley.
-
-Her husband gave her the margins. Song Si-yeol gave her teacher the principles.
-
-She needed both.
