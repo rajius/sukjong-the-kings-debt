@@ -59,7 +59,7 @@
 ## PHYSICAL & SOCIAL DETAILS
 
 ### Physical Presence
-- **Age**: About 26-31 across the main action (born ~1670). Memorial ~1696-97 (age 26-27). Third meeting ~1700-01 (age 30-31).
+- **Age**: About 24-28 across the main action (born 1670). First meeting 1694 (age 24). Second meeting 1695 (age 25). Third meeting 1698 (age 28).
 - **Appearance**: Not large, but solid — the body of a man who has carried packs, walked garrison walls, and slept on ground. His hands are not a scholar's hands
 - **Bearing**: Alert, grounded. He occupies space differently from the scholars Lady Yoon has known — not with intellectual authority but with physical certainty. He knows where his body is at all times
 - **Habits**: Keeps orderly notes, handles documents carefully, but also checks exits, watches hands, and sits where he can see the door
@@ -93,15 +93,15 @@
 ## PERSONAL LIFE & DEVELOPMENT
 
 ### Relationship with Soonyi
-- **Soonyi**: Born ~1671. Merchant family with money, not yangban. Attends elite parties through family wealth. One year younger than Yi Hwon.
+- **Soonyi**: Born 1674. Merchant family with money, not yangban. Attends elite parties through family wealth. Four years younger than Yi Hwon.
 - **The arrangement**: Her money, his credentials (munkwa passer). Converts merchant wealth into status. Never formally engaged — an understanding, assumed by both families and community.
 - **Compatible temperaments**: Real warmth, comfortable companionship. She knows him. She does not challenge him.
 - **He never initiates**: Every conversation about the marriage comes from her side. He doesn't resist. He doesn't refuse. He just never authors it.
-- **After the memorial (~1695-96)**: He stares at a woman from behind at a capital event — same air as someone he saw. Soonyi asks, he says "she looks familiar." Soonyi identifies the woman, explains she's recently widowed. Passes easily. Files it.
-- **The scholarly turn (~1697)**: He starts studying classical texts. Everyone surprised — he had been developing toward physical/military excellence. Soonyi notices.
+- **After the memorial (1694)**: He stares at a woman from behind at a capital event — same air as someone he saw. Soonyi asks, he says "she looks familiar." Soonyi identifies the woman, explains she's recently widowed. Passes easily. Files it.
+- **The scholarly turn (1695)**: He starts studying classical texts. Everyone surprised — he had been developing toward physical/military excellence. Soonyi notices.
 - **Soonyi seeks answers**: Older woman, matchmaker, shaman — three consultations, no clear answer. Then overhears about an underground professional service at an elite party. Pays for guidance. Lady Yoon's answer in two sentences: "Connect the dots. Once you get it right, ask for a confirmation."
 - **Soonyi connects**: Takes a long time. The air from behind, the scholarly turn. Not evidence — instinct. Once she accepts the possibility, the question forms itself.
-- **The confrontation (~1698, around amhaeng-eosa appointment)**:
+- **The confrontation (1698, around amhaeng-eosa appointment)**:
   1. "You met someone." — His face. The half-second.
   2. "I am sorry you have to know this way."
   3. "Who is she?" — Silence. He can't answer — Lady Yoon's existence is operational.

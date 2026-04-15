@@ -40,7 +40,7 @@ She sent it. She hated that she sent it.
 
 The answer came twelve days later.
 
-The family was established, comfortable. Textile trade. The father was known for honest scales. One daughter. Her name was Soonyi. Twenty-three. Unmarried.
+The family was established, comfortable. Textile trade. The father was known for honest scales. One daughter. Her name was Soonyi. Twenty-four. Unmarried.
 
 Lady Yoon read the letter once. She folded it and placed it in the compartment where she kept correspondence that required no response.
 

@@ -13,7 +13,7 @@
 ## BACKGROUND & FORMATION
 
 ### Origins
-- **Birth**: ~1658, from a modest provincial family in the Yeongwol region
+- **Birth**: 1655, from a modest provincial family in the Yeongwol region
 - **Father**: Minor scholar-official, serious, principled, not well-connected
 - **Mother**: Practical, literate, aware that her son's mind was unusual
 - **Childhood**: Provincial but not isolated — close enough to a seowon to receive early classical education
@@ -33,8 +33,9 @@
 - **The seowon page**: Before leaving for Song Si-yeol, he was the young scholar who found the page in his practice sheets and brought it to his teacher. The teacher's instruction ("do not say that outside this room") was the first layer. Song Si-yeol's teaching was the second: not just the secret, but the framework for how it might one day be corrected
 
 ### Parents' Deaths
-- Father died ~1682, mother ~1685 (approximate — the exact dates matter less than the effect)
+- Father died ~1679, mother ~1682 (approximate — the exact dates matter less than the effect)
 - Three-year mourning period for each parent — mandatory, and marriage during mourning is forbidden
+- Final mourning period ended by 1685, allowing marriage
 - These years of mourning overlapped with his most productive intellectual period
 - He grieved genuinely but the mourning also gave him cover for what he actually wanted: solitude and work
 
@@ -54,7 +55,7 @@
 
 ### How They Met
 - Through the shared network of provincial seowon scholars connected to Master Kim (Lady Yoon's teacher)
-- He was ~29-30. She was 25-26. Both impossibly late for Joseon marriage
+- He was 30. She was 25. Both impossibly late for Joseon marriage
 - He was the prodigy who had run out of excuses not to marry. She was the educated woman no conventional family wanted
 
 ### What Drew Him

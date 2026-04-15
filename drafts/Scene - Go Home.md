@@ -1,6 +1,6 @@
 # GO HOME
 
-*Placement: during the SECOND meeting (~1696-97), before the Soonyi confrontation. Lady Yoon sends him back. He goes. He can't stay. The scholarly turn is the proof her instruction failed. When Soonyi later says "you met someone" and he replies "she won't do that" — he's not guessing. He's quoting.*
+*Placement: during the SECOND meeting (1695), before the Soonyi confrontation. Lady Yoon sends him back. He goes. He can't stay. The scholarly turn is the proof her instruction failed. When Soonyi later says "you met someone" and he replies "she won't do that" — he's not guessing. He's quoting.*
 
 ---
 

@@ -1,6 +1,6 @@
 # THE EXAMINATION RECORD
 
-*Placement TBD — after "Difficult" and "The Handkerchief." Yi Hwon discovers who the husband actually was.*
+*Placement: 1698 working-relationship sequence — after "Difficult" and "The Handkerchief." Yi Hwon discovers who the husband actually was.*
 
 ---
 

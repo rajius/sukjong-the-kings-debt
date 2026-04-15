@@ -42,7 +42,7 @@
 ## PHYSICAL & SOCIAL DETAILS
 
 ### Physical Presence
-- **Age**: Mid-thirties during main action (married at 25-26, widowed at ~28-30)
+- **Age**: Mid-thirties during main action (married at 25 in 1685, widowed at 30 in 1690)
 - **Appearance**: Unremarkable in the way that serves intelligence work - easy to forget, easy to underestimate
 - **Bearing**: Composed, careful, alert - woman who listens more than she speaks
 - **Hands**: Ink-stained from constant letter writing

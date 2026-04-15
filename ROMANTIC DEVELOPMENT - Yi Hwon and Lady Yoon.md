@@ -6,31 +6,31 @@ This document tracks the relationship between Yi Hwon (the amhaeng-eosa) and Lad
 
 ## THE THREE-STAGE STRUCTURE
 
-### **Stage 1: Innocent Notice** (Mid-1680s)
+### **Stage 1: Innocent Notice** (Mid-1690s)
 - First encounter at scholarly event
 - Mutual recognition of competence and character
 - Personal interest without professional awareness
 
-### **Stage 2: Revelation and Rejection** (Late 1680s)
+### **Stage 2: Revelation and Rejection** (Mid-1690s)
 - Professional recognition of each other's capabilities
 - Personal feelings acknowledged but refused due to his commitment to Soonyi
 - Establishment of emotional boundary
 
-### **Stage 3: Suppressed History** (Late 1680s - Mid-1690s)
-- Five years of professional tracking mixed with unresolved personal feelings
+### **Stage 3: Suppressed History** (Mid-1690s - Late 1690s)
+- Three years of professional tracking mixed with unresolved personal feelings
 - Mutual respect and unacknowledged longing
 - Professional collaboration built on complex emotional foundation
 
 ## DETAILED TIMELINE
 
 ### CHARACTER AGES & BIRTH YEARS
-- **Lady Yoon**: Born 1652
-- **Yi Hwon**: Born 1662 (10 years younger)
-- **Soonyi**: Born 1666 (4 years younger than Yi Hwon)
+- **Lady Yoon**: Born 1660
+- **Yi Hwon**: Born 1670 (10 years younger)
+- **Soonyi**: Born 1674 (4 years younger than Yi Hwon)
 
-### FIRST ENCOUNTER (1687) - Memorial Poetry Gathering
+### FIRST ENCOUNTER (1694) - Memorial Poetry Gathering
 
-**Context**: Lady Yoon (35) married for 2 years, representing ailing Master Kim at scholarly events. Yi Hwon (25) gathering provincial intelligence as traveling merchant.
+**Context**: Lady Yoon (34) widowed for 4 years, representing ailing Master Kim at scholarly events. Yi Hwon (24) gathering provincial intelligence as traveling merchant.
 
 **The Event**:
 - **Setting**: Provincial seowon memorial ceremony - neutral ground for both
@@ -44,9 +44,9 @@ This document tracks the relationship between Yi Hwon (the amhaeng-eosa) and Lad
 - **Her Interest**: Recognizes he's more than a traveling merchant - moves with different confidence
 - **Foundation Established**: Competence recognizing competence; basis for future attraction
 
-### SECOND ENCOUNTER (1688) - Professional Recognition
+### SECOND ENCOUNTER (1695) - Professional Recognition
 
-**Context**: Lady Yoon (36) now widow for few months, beginning to operate inherited network. Yi Hwon (26) rising royal investigator. Soonyi (22) still reasonable age to wait briefly.
+**Context**: Lady Yoon (35) widow for 5 years, operating inherited network. Yi Hwon (25) rising royal investigator. Soonyi (21) still reasonable age to wait briefly.
 
 **The Meeting**:
 - **Professional Recognition**: Each realizes the other's true capabilities
@@ -69,7 +69,7 @@ This document tracks the relationship between Yi Hwon (the amhaeng-eosa) and Lad
 - **Her Position**: Firm moral stance despite genuine feelings
 - **Professional Continuity**: Both can work in same circles while respecting emotional boundary
 
-### THE THREE-YEAR SEPARATION (1688-1691)
+### THE THREE-YEAR SEPARATION (1695-1698)
 
 **Yi Hwon's Growth Arc**:
 - **Identity Wrestling**: Lady Yoon's challenge sparked fundamental questions about authentic choice vs. arranged life
@@ -93,16 +93,16 @@ This document tracks the relationship between Yi Hwon (the amhaeng-eosa) and Lad
 - **Her Awareness**: Tracks his career growth and evidence of authentic choice-making
 - **Growing Compatibility**: Years of parallel development create intellectual equals
 
-## CHAPTER 9 - FINALLY COMPATIBLE (1691)
+## CHAPTER 9 - FINALLY COMPATIBLE (1698)
 
 **Reunion Context**:
-- **Official Mission**: Yi Hwon (29) needs local intelligence for Yeongwol assessment
-- **Network Access**: Lady Yoon (39) controls the information he requires
+- **Official Mission**: Yi Hwon (28) needs local intelligence for Yeongwol assessment
+- **Network Access**: Lady Yoon (38) controls the information he requires
 - **Personal Readiness**: Three years have developed them into people capable of mature partnership
-- **Soonyi situation resolved**: She's now 25, at critical marriage age - Yi Hwon made clean choice
+- **Soonyi situation resolved**: She's now 24, at critical marriage age - Yi Hwon made clean choice
 
 **Recognition of Growth**:
-- **His Maturation**: Five years of honest self-examination have created someone who can engage with moral complexity
+- **His Maturation**: Three years of honest self-examination have created someone who can engage with moral complexity
 - **Her Assessment**: Sees that he's become the kind of person who understands authentic choice
 - **Professional Equals**: Both sophisticated operators who understand systems and constraints
 - **Resolved Personal Issues**: Soonyi situation handled with integrity; no romantic triangles

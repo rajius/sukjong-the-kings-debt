@@ -1,6 +1,6 @@
 # THE CAVE
 
-*Placement: third meeting period (~1698-99). After the Go Home scene has failed. After the handkerchief. After Soonyi. Yi Hwon is unattached. They are undercover and almost caught.*
+*Placement: third meeting period (late 1698). After the Go Home scene has failed. After the handkerchief. After Soonyi. Yi Hwon is unattached. They are undercover and almost caught.*
 
 ---
 

@@ -33,7 +33,7 @@ POV: Sukjong primary, Lady Yoon secondary. The Gisa Hwanguk.
 
 ---
 
-## Ch 5 — The Murder (~1690-1691)
+## Ch 5 — The Murder (1690)
 
 POV: Lady Yoon. Hwanguk fallout.
 
@@ -84,12 +84,12 @@ POV: Sukjong.
 
 ---
 
-## Ch 8 — The Inspector (~1696-1697)
+## Ch 8 — The Inspector (1694)
 
 POV: Yi Hwon.
 
 1. **The garrison.** Yi Hwon in his military posting. Supply discrepancy in the records. He reports it. Nothing happens.
-2. **The crossing.** Brief encounter with Lady Yoon — same space, neither registers the other. Three sentences. The reader carries it alone.
+2. **The memorial.** First encounter with Lady Yoon at scholarly event. Mutual recognition of competence. Neither realizes the other's true capabilities yet.
 3. **The exam.** He sits for the munkwa. A military officer's son in the civil examination hall. Passes solidly, not brilliantly.
 4. **Soonyi.** A scene before he leaves. The life that makes sense. Warmth, comfort, the expectation of return. She knows him. She does not challenge him. The scene feels like home — warm, safe, slightly small.
 5. **The selection.** Sukjong's circle selects him as amhaeng-eosa. A report he filed from the garrison — the one that "disappeared" — reached someone who recognized it: an official who describes what he sees instead of what the system wants.
@@ -101,12 +101,13 @@ POV: Yi Hwon.
 
 ---
 
-## Ch 9 — The Memorial (~1697)
+## Ch 9 — The Road (1695)
 
 POV: Yi Hwon and Lady Yoon.
 
-1. **The ceremony.** A provincial memorial for Song Si-yeol. Scholars, former students, families. Yi Hwon is there because a higher-up sent him — he was passing through on his way back to the capital from his military posting, and someone in the office wanted eyes at the memorial. Watch who attends, read the temperature, report back. Routine assignment. Lady Yoon is there as widow of Song Si-yeol's student.
-2. **The wealthy woman.** Lady Yoon navigates a social complication — a donor's wife who needs managing. She does it from the margins, controlling without being seen. Yi Hwon watches from across the courtyard. He sees first that she is a widow — the white clothes, the simple hair, the plainness that stands out in a room full of color. Then he sees how she moves. The contrast between the plain exterior and the social precision is what catches him.
+1. **Professional recognition.** Second meeting. Both realize the other's true capabilities. Years of distant observation surface as mutual respect.
+2. **Personal breakthrough.** Attraction acknowledged. Professional competence creates personal interest. Brief moment of possibility.
+3. **The rejection.** Lady Yoon sends him away - indirect Korean communication about Soonyi's devotion. Elegant withdrawal that protects all parties' honor while firmly establishing boundaries.
 3. **She notices him.** She observes everyone — it's what she does, the way she has done it since the seowon, since the corridor, since the first tray she carried past a room full of men who did not see her seeing them. She classifies: scholar, merchant, local official, visiting student. The room sorts itself. This one does not sort. He is dressed as a merchant, but his hands are wrong — calluses in the places where a man grips something heavier than a writing brush and lighter than a plow. His posture is wrong — weight centered, not shifted forward the way men who carry goods stand. He watches doorways, not buyers. She catalogues further: the shoulders, the jaw when he turns to listen to a conversation he is not part of, the calibrated attention of a man trained to assess a space before he occupies it. She is still cataloguing when he turns and looks directly at her. No surprise in it. No adjustment. He has been watching her classify him and is now waiting to see what she does next. She looks away — the smooth social redirect of a woman who has never needed it before. The ceremony ends. She tells the host she will return tomorrow. As she turns to leave, he is nearby — retying the cord on a merchant's bundle, close enough to have overheard. This man is either careless with his proximity or careful with it, and she cannot determine which.
 4. **She's gone.** Something pulls her away overnight. Network business. She doesn't come back.
 5. **The empty space.** Yi Hwon returns the next day. She is not there. He asks casually. The widow left. No name. No reason. The absence stays. A woman in white who managed a room and then vanished.
