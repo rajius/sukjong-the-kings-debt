@@ -11,30 +11,38 @@
 ## BACKGROUND & FORMATION
 
 ### Family Origins
-- **Minor yangban family** from Hwanghae Province
-- Father died when she was young; raised by scholarly uncle who had no sons
-- Uncle taught her classical Chinese, poetry, basic statecraft - **informal education**
-- Family poor enough that her intelligence was useful, not decorative
+- Parents died when she was young
+- Sent to Master Kim's household by a minor scholar relative who had no better option for her
+- Arrived as a maid — domestic work, carrying meals, cleaning, managing the household
+- Not a student. Not a relative. A servant.
 
 ### The Teacher's Student (Pre-Marriage)
-- **Teacher**: Master Kim, aging Confucian scholar running a provincial seowon
-- **Why he taught her**: His brightest pupils had left for Seoul; she was sharper than the paying students who remained
-- **What he taught**: Classical analysis, letter composition, how to read political subtleties in official language
+- **How it started**: She paused near the students' area while working. Not long — just enough to hear a passage read, an argument made. Then she continued. Mrs. Kim noticed her habit of reading any book left within reach and gave her permission to borrow texts
+- **Mrs. Kim's death**: With the wife gone, Lady Yoon took on more household responsibility — managing the academy's domestic operations, the practical machinery that keeps a seowon running. Master Kim began treating her differently. Not as a maid who reads, but as a student — informal, never announced, but real
+- **What he taught**: Classical analysis, letter composition, how to read political subtleties in official language — through placement and questions, the same way the seowon taught everyone
 - **What he withheld**: Direct involvement in Danjong restoration networks
 - **Her awareness**: She knew he was connected to something larger but was never told what
+- **Her skill**: She learned from the beginning how to be in a room without being seen as a participant. The skills that would later make her an intelligence operator started here — listening from the margins, carrying things through spaces men don't watch, being underestimated by design
+
+### The Threat and the Proposal
+- **Proposals**: Provincial men, minor scholars — the kind of match a parentless woman with no dowry might expect. She rejected them. The pool was too low for a mind that had been trained, even informally, by the best teacher in the province
+- **The incident**: A rejected suitor turned threatening — her reputation, her position, possibly her safety. The threat made clear what a single parentless woman without protection actually meant in Joseon
+- **Master Kim's decision**: She needed to be married. Not eventually — now. The threat was the immediate trigger, but the political exposure of his household was the deeper reason he already had
+- **The match**: Master Kim proposed his former student — the prodigy, now in the capital. She had never met him. He left the seowon before she arrived. But she knew the space he studied in, the books he read, the traces he left in Master Kim's references
+- **Her first investigation**: She assembled a picture of him from letters, contacts in the capital, careful questions through the women's networks she already knew how to use. Her first case file. By the time she agreed to the marriage, she knew more about him than he knew about her
 
 ### Marriage
-- **Husband**: Minor regional official, competent but not ambitious
-- **Marriage basis**: Intellectual compatibility and shared teacher's respect
-- **Dynamic**: He respected her mind; she respected his conscience
-- **Not**: Passionate love, but a genuine chosen partnership
+- **Husband**: Prodigy — provincial exam at 16, Song Si-yeol's student, munkwa first try. See CHARACTER DEVELOPMENT - The Husband
+- **Marriage basis**: Master Kim's placement. Two people too late and too unconventional for the conventional market
+- **Dynamic**: Intellectual partnership that deepened into genuine attachment over time
+- **Not romantic love**: The romantic love belongs to someone else, later
 - **His secret work**: Documenting "lost" memorials and burial sites related to Danjong loyalists
-- **What the marriage gave her**: A life she had actively chosen inside a restrictive world - companionship, work, direction, and a livable future
+- **What the marriage gave her**: Protection, intellectual partnership, and access to the networks she would later inherit
 
 ## PHYSICAL & SOCIAL DETAILS
 
 ### Physical Presence
-- **Age**: Mid-thirties during main action (married at 20, widowed at 28)
+- **Age**: Mid-thirties during main action (married at 25-26, widowed at ~28-30)
 - **Appearance**: Unremarkable in the way that serves intelligence work - easy to forget, easy to underestimate
 - **Bearing**: Composed, careful, alert - woman who listens more than she speaks
 - **Hands**: Ink-stained from constant letter writing
