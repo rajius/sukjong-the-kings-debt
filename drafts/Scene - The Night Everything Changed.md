@@ -48,9 +48,9 @@ She stayed home.
 
 When Yi Hwon came back late that night, she told him before he asked. She was well enough. She only needed rest for the next nine months.
 
-He had known by noon what the answer would be. He only waited to hear her say it. "We would have to marry," he said. Not a question.
+He had known by noon what the answer would be. He only waited to hear her say it. "We would have to marry," he said.
 
-"Yes."
+Lady Yoon looked at him. "If I had meant you to remain temporary, you would not be here now."
 
 "Quickly."
 
