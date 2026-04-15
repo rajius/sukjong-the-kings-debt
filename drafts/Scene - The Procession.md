@@ -18,9 +18,9 @@ She absorbed what she could. She would only see him once.
 
 After a long moment, she felt enough. She nodded to Yi Hwon.
 
-They walked to the cart. Before stepping up, she looked around once more - old habits were hard to forget. As she did, she noticed another cart nearby, its window opened slightly. 
+They walked to the cart. Before stepping up, she looked around once more - old habits were hard to forget. As she did, she noticed another cart nearby, finer than the others, its window opened slightly. 
 
-The woman in the neighboring cart was not looking at the procession. She was looking at Lady Yoon, as if confirming something long imagined.
+The woman inside was not looking at the procession. She was looking at Lady Yoon, as if confirming something long imagined. Her jewelry caught the light - not just gold, but the kind of ornaments that spoke of court connections, of marriage into higher circles.
 
 Their eyes met.
 Lady Yoon understood.
