@@ -34,7 +34,7 @@ Lady Yoon nodded again. "It's been a long time since I suffered like this." She 
 
 Lady Yoon closed her eyes, remembering. "Yes. It was the morning I sent Yeong-hak to the door on his last work trip. I felt pain shortly after and rushed to the physician. She said I was pregnant."
 
-Yi Hwon's hand stopped caressing and stayed there. It was a long silence until he was sure about what he heard. 
+Yi Hwon's hand went still and stayed there. It was a long silence until he was sure about what he heard. 
 
 "And then?"
 
@@ -46,9 +46,9 @@ By morning, Lady Yoon knew. She had known once before.
 
 She stayed home.
 
-When Yi Hwon came back late that night, she told him before he asked. She was well enough. She only needed rest for the next nine months.
+When Yi Hwon came back late that night, she told him before he asked. She was well enough. She only needed care for the next nine months.
 
-He had known by noon what the answer would be. He only waited to hear her say it. "We would have to marry," he said.
+"We would have to marry," he said.
 
 Lady Yoon looked at him. "If I had meant you to remain temporary, you would not be here now."
 
@@ -56,13 +56,13 @@ Lady Yoon looked at him. "If I had meant you to remain temporary, you would not 
 
 "Yes."
 
-"I am still under cover. It gives an edge but also disadvantage."
+"I am still under cover. It gives us cover, but it also creates difficulties."
 
 "I know."
 
 "Then I will arrange it soon."
 
-Lady Yoon had been thinking the whole day. About his family, what people would say, his job, her network, everything. Everything was going to be different from now.
+Lady Yoon had been thinking the whole day. About his family, what people would say, his job, her network, everything. Everything would be different now.
 
 They held a small wedding the following week. To the neighborhood, a capital merchant marrying a widow of modest yangban connections was practical, if not admirable.
 
