@@ -26,7 +26,7 @@ Lady Yoon nodded slightly.
 
 "I think it's just under the rib."
 
-Yi Hwon's hand started to caress the bare area gently. It warmed her a little. "Tomorrow first in the morning, go visit the physician. Ask Oksun to go with you."
+Yi Hwon's hand started to rub the bare area gently. It warmed her a little. "Tomorrow first in the morning, go visit the physician. Ask Oksun to go with you."
 
 Lady Yoon nodded again. "It's been a long time since I suffered like this." She found herself surprised hearing this fact from her own mouth.
 
@@ -42,11 +42,13 @@ Yi Hwon's hand stopped caressing and stayed there. It was a long silence until h
 
 ---
 
-The next morning, Lady Yoon did not need a physician to tell her. She had been through it once before.
+By morning, Lady Yoon knew. She had known once before.
 
-When Yi Hwon came back late that night to hear the result, she told him she was well enough. She only needed rest for the next nine months.
+She stayed home.
 
-He had been thinking the whole day about the possibility. Hearing that was just confirmation. "We would have to marry," he said. Not a question.
+When Yi Hwon came back late that night, she told him before he asked. She was well enough. She only needed rest for the next nine months.
+
+He had known by noon what the answer would be. He only waited to hear her say it. "We would have to marry," he said. Not a question.
 
 "Yes."
 
@@ -60,7 +62,7 @@ He had been thinking the whole day about the possibility. Hearing that was just 
 
 "Then I will arrange it soon."
 
-Lady Yoon had been thinking the whole day. About his family, what people would say, his job, her network, everything. But nothing was more important than the child in her womb now.
+Lady Yoon had been thinking the whole day. About his family, what people would say, his job, her network, everything. Everything was going to be different from now.
 
 They held a small wedding the following week. To the neighborhood, a capital merchant marrying a widow of modest yangban connections was practical, if not admirable.
 
