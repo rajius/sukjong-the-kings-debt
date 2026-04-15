@@ -8,13 +8,13 @@ Lady Yoon entered her bedroom to sleep and startled when she saw Yi Hwon sitting
 
 "You know what, I don't think you can do this for good. Sneaking around after dark and leaving before sunrise. Someone will notice sooner or later."
 
-Yi Hwon had no reaction. He accepted the fact as it was.
+"I know," Yi Hwon said quietly. He accepted the fact as it was.
 
 Lady Yoon felt helpless and decided to wash her face, then rest. 
 
 It was in the middle of the night. She stared at the ceiling. Everything felt right and wrong at the same time. 
 
-Yi Hwon woke up, realizing she was restless. "What's got you in mind?"
+Yi Hwon woke up, realizing she was restless. "What is it?"
 
 Lady Yoon frowned a little bit.
 
@@ -26,7 +26,7 @@ Lady Yoon nodded slightly.
 
 "I think it's just under the rib."
 
-Yi Hwon's big palm started to caress the bare area gently. It warmed her a little. "Tomorrow first in the morning, go visit the physician. Ask Oksun to go with you."
+Yi Hwon's hand started to caress the bare area gently. It warmed her a little. "Tomorrow first in the morning, go visit the physician. Ask Oksun to go with you."
 
 Lady Yoon nodded again. "It's been a long time since I suffered like this." She found herself surprised hearing this fact from her own mouth.
 
@@ -45,6 +45,22 @@ Yi Hwon's hand stopped caressing and stayed there. It was a long silence until h
 The next morning, Lady Yoon did not need a physician to tell her. She had been through it once before.
 
 When Yi Hwon came back late that night to hear the result, she told him she was well enough. She only needed rest for the next nine months.
+
+He had been thinking the whole day about the possibility. Hearing that was just confirmation. "We would have to marry," he said. Not a question.
+
+"Yes."
+
+"Quickly."
+
+"Yes."
+
+"I am still under cover. It gives an edge but also disadvantage."
+
+"I know."
+
+"Then I will arrange it soon."
+
+Lady Yoon had been thinking the whole day. About his family, what people would say, his job, her network, everything. But nothing was more important than the child in her womb now.
 
 They held a small wedding the following week. To the neighborhood, a capital merchant marrying a widow of modest yangban connections was practical, if not admirable.
 
