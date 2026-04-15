@@ -1,45 +1,30 @@
-# I WANT TO SEE HIM
+# THE PROCESSION
 
-*Placement: 1699, after marriage and birth. Lady Yoon wants to see Sukjong at the Jongmyo procession - to see the face behind all their sacrifices.*
+*Placement: 1699, final scene. Lady Yoon sees Sukjong at the Jongmyo procession - the culmination of her need to see the face behind all their sacrifices.*
 
 ---
 
-Lady Yoon lay against his chest, listening to the even beat beneath her ear.
+She stood there, holding little Yeong-su. Oksun was behind her. Yi Hwon beside her, watching the crowd as much as the procession route. He had arranged several men around them - not obviously, but she could see them positioned naturally in the crowd, creating a perimeter. They had found good ground: elevated, distant enough from the procession path to avoid the press of bodies, close enough to see clearly.
 
-"I want to see him," she said.
+The cart waited nearby, parked among others on the nearest lane.
 
-Yi Hwon shifted slightly, trying to see her face in the dark. "Who?"
+She waited patiently. Then there he was.
 
-"The king." She kept her eyes on the shadows above them. "The Jongmyo procession next week."
+The man of the institution. King Sukjong moved past in robes that caught the morning light, surrounded by the full ceremony of royal procession. She had imagined him smaller, somehow. But he filled the space around him - not through size but through the weight of what he carried. This was the face behind every decree, every appointment, every execution. The person who pulled the invisible lines that stretched across the country, touching the lives of countless people he would never see, never know, never consider.
 
-His hand, which had been moving slowly along her shoulder, went still.
+The one who had invited Song Si-yeol back from exile and then ordered his death. The one who had, in his way, taken one husband from her and sent another.
 
-"With the baby?" he asked.
+She absorbed what she could. She would only see him once.
 
-She nodded.
+After a long moment, she felt enough. She nodded to Yi Hwon.
 
-For a moment he said nothing. Taking an infant into the streets to watch a royal procession was possible, but not simple. There would be crowds, pressed bodies, curious eyes, the ordinary danger of too many people gathered around too much spectacle. He was already measuring the route in his mind. Where the procession would slow. Which corners were too narrow. Which houses had upper windows and which did not.
+They walked to the cart. Before stepping up, she looked around once more - old habits were hard to forget. As she did, she noticed another cart nearby, its window opened slightly. 
 
-"After everything," she said, "I want to see his face."
+The woman in the neighboring cart was not looking at the procession. She was looking at Lady Yoon, as if confirming something long imagined.
 
-He understood at once.
+Their eyes met.
+Lady Yoon understood.
+She smiled.
+The other woman smiled back.
 
-"The face behind the decree," she said. "What we served. What we bought."
-
-The room was quiet.
-
-"The child will grow up under his rule," she said after a moment. "I want to see the man whose word made this world."
-
-From the other room came a small cry.
-
-Yi Hwon moved to rise, but she pressed her hand lightly against his chest.
-
-"I'll go," she said.
-
-She sat up and reached for her robe. At the edge of the bed, she paused and looked back at him.
-
-"But you'll arrange it?"
-
-"Yes," he said. "Carefully."
-
-She nodded once and went to the child.
+The sun shone brightly as they drove away.
