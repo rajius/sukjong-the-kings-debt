@@ -167,27 +167,33 @@ This document tracks the relationship between Yi Hwon (the amhaeng-eosa) and Lad
 - **Serves larger themes**: Obstacle now illustrates novel's argument about contaminated justice
 - **Moral sophistication**: Question becomes whether love can survive understanding systems completely
 
-## CHAPTER 14 - UNCERTAIN ENDING
+## THE PREGNANCY RESOLUTION
 
-**At Yeongwol Shrine**:
-- **Parallel Presence**: Both come to honor the dead they've served
-- **Mutual Recognition**: See each other without surprise - both needed to be there
-- **Changed Dynamic**: Years of history, professional collaboration, and moral complexity all present
+**The Night Everything Changed**:
+- **Physical intimacy period**: After "The Cave" scene, established relationship
+- **Pregnancy symptoms**: Same as when she was pregnant with Yeong-hak's child
+- **Devastating revelation**: She lost that pregnancy when her husband's body was returned
+- **Current pregnancy**: Forces immediate practical resolution rather than philosophical uncertainty
 
-**His Approach**:
-- **Deliberate Choice**: Crosses distance between them slowly, giving opportunity for retreat
-- **Not Repair**: Doesn't approach "as if anything can be repaired by force of feeling"
-- **Simple Presence**: Chooses proximity through "the same cold their dead have occupied all along"
+**The Marriage Decision**:
+- **Biological imperative**: Pregnancy demands social protection in that era
+- **Practical choice**: Marriage as only viable option to protect child and her reputation
+- **Quick ceremony**: "Capital merchant marrying widow of modest yangban connections was practical, if not admirable"
+- **Family response**: His family's polite disownment - "his decision was his own"
 
-**Her Response**:
-- **Unresolved**: Novel ends before her answer to his approach
-- **Complex Position**: She knows everything now - personal history, professional respect, moral impossibility
-- **Active Choice Required**: Must decide whether shared witness can become shared life
+## REVISED ENDING STRUCTURE
 
-**What The Ending Holds**:
-- **Moral Truth Complete**: Justice delivered, costs understood, systems recognized
-- **Human Truth Uncertain**: Whether two people who understand the same impossible complexity can build something together
-- **Reader's Choice**: Both interpretations valid - beginning or final mourning
+**Not Chapter 14 Uncertainty**:
+- **Instead**: Marriage and practical life-building despite institutional complexity
+- **The real question**: How to raise a child within systems they both understand are contaminated
+- **Final scene possibilities**: Family life at Yeongwol, both still working their different approaches to justice but as partners
+- **Theme resolution**: Love and life creation within acknowledged systemic complexity, not romantic uncertainty
+
+**What This Achieves**:
+- **Resolves romantic tension**: Through practical necessity rather than abstract choice
+- **Maintains thematic complexity**: Still serving systems that complicate their goals, but now as family unit
+- **Historical authenticity**: Pregnancy would have forced immediate marriage in that period
+- **Emotional satisfaction**: Genuine partnership building life despite understanding contaminated machinery
 
 ## RELATIONSHIP THEMES
 
