@@ -52,81 +52,73 @@ The purge began the same afternoon.
 
 ---
 
-Song Si-yeol received the order in his exile, three days' ride from the capital. The messenger was young, formal, and carried the particular gravity that accompanied final documents.
-
-The charges were constructed around old grievances: improper influence over the previous king, factional manipulation, disloyalty to royal prerogative. The language was careful enough to sound like justice and flexible enough to encompass whatever the court needed it to mean.
-
-The sentence was death.
-
-Song Si-yeol read the order twice, then set it aside. He looked out the window of the small house where he had been confined for the past months, watching the summer wind move through the grain fields that stretched toward the mountains.
-
-He had served three kings. He had refused to bow to the boy-king who was murdered, elevated the prince who became Hyojong, and counseled the king who was now ordering his death. The pattern was familiar: loyalty to principle eventually became indistinguishable from opposition to power.
-
-He wrote no letter of appeal. He made no request for clemency. At seventy-three, he understood that some arguments were settled not by persuasion but by time, and that his time was ending whether or not the scaffold hastened it.
-
-The execution was carried out at dawn, witnessed by local officials who recorded the details with administrative precision. The body was buried in unmarked ground. The students who might have mourned him were either in hiding or in prison.
+Song Si-yeol was executed at dawn on the seventh day of the sixth month, in the place of his exile.
 
 The man who had walked away from the fourteen-year-old king was gone.
 
 ---
 
-Lady Yoon was grinding ink when the visitor arrived.
+Lady Yoon was alone in the kitchen when the visitor arrived.
 
-She looked up at the sound of voices in the courtyard—her husband's voice and another, unfamiliar but urgent. Through the window, she could see them standing near the gate: Yeong-hak and a man she did not recognize, dressed in the plain robes of a provincial scholar.
+She heard voices at the gate—her husband's voice and another, unfamiliar but urgent. Through the window, she could see them standing by the entrance: Yeong-hak and a man she did not recognize, dressed in the plain robes of a provincial scholar.
 
-The conversation was brief. The visitor handed over a small wrapped bundle, spoke a few words she could not hear, and departed as quickly as he had come. Yeong-hak stood at the gate for a long moment after the man disappeared, then walked back toward the house.
+The conversation was brief. The visitor handed over something small, spoke words she could not hear, and departed quickly. Yeong-hak remained at the gate for a long moment, then walked toward the house with whatever he had received.
 
-She heard him go directly to the study. The door closed.
+She heard the study door close.
 
-When he emerged an hour later, he was already moving with purpose. He went to the kitchen and began building up the fire. Then he returned to the study and came back with an armful of papers.
+An hour passed. Then another. When Yeong-hak finally emerged, something in his bearing had changed. Not dramatically—he was not a man given to dramatic expressions—but in the small ways she had learned to read: the set of his shoulders, the quality of his silence.
 
-"Song Si-yeol is dead," he said, feeding documents into the flames. "Executed three days ago."
+That evening, he worked later than usual. She heard him moving between the study and the kitchen several times after she had gone to bed. In the morning, she noticed that the fire had burned unusually late, and that some of the papers that had been on his desk the day before were no longer there.
 
-She watched him burn what looked like correspondence, maps, lists. His movements were methodical, practiced. This was not panic. This was preparation.
+"Is everything well?" she asked as she prepared his morning tea.
 
-"What does that mean?"
+"Song Si-yeol is dead."
 
-"It means the network is compromised from the top. Anyone connected to his circle will be questioned. Anyone doing work that supports his positions will be hunted." He paused to ensure a particular document was fully consumed. "It means we have perhaps days before they come looking."
+The words were simple, but they carried weight she immediately understood. Song Si-yeol—the teacher's teacher, the man whose intellectual lineage connected to everything her husband did.
 
-"What will you do?"
+"When?"
 
-"Preserve what must be preserved. Destroy what cannot be found. And decide which parts of the work are worth dying for."
+"Three days ago. Executed."
 
-He said it matter-of-factly, the way he might discuss which books to pack for travel. But she understood that he had already begun making calculations she could not follow, weighing risks she could not see.
+She set down the teapot carefully. "What does that mean for your work?"
+
+Yeong-hak looked at her for a long moment. "It means the work becomes more careful."
 
 ---
 
-Over the following weeks, Yeong-hak systematically severed their connections.
+Scholar Min stopped writing after two weeks. His letters had come monthly for three years—news from Andong, observations about local records, careful inquiries about research progress. When the silence stretched past a month, Yeong-hak sent a cautious message asking about a shared text. The response came from Min's son: his father was no longer corresponding with scholars outside the county.
 
-He wrote careful letters to key contacts, using language that would be understood by the recipients but meaningless to anyone else who might read them. Messages about ending scholarly collaborations, canceling planned research, expressing regrets about discontinued correspondence.
+Master Cho's letter arrived torn. Someone had opened it, read it, resealed it carelessly. The contents were innocuous—a request for book recommendations—but the violation was clear. Yeong-hak burned it without replying.
 
-Lady Yoon watched him work through the network methodically, protecting his contacts by cutting them loose before they could be compromised by association with him.
+The man who delivered rice stopped asking about payment schedules. For months, he had carried messages between their house and contacts in the market town. Now he left the grain at the gate and departed without conversation.
 
-"You're ending it," she said one evening, seeing him seal what looked like a final letter.
+Lady Yoon watched these small erasures accumulate. Each loss was minor, explicable, deniable. Together, they formed a pattern that felt like being slowly surrounded.
 
-"I'm ending their exposure. The work continues, but the visible connections do not." He looked at her directly. "Song Si-yeol's students are being hunted. But they cannot hunt what they cannot see."
+One evening, she found Yeong-hak at his desk with ink and brush but no paper. He sat for a long time, staring at nothing.
 
-The rhythm of their household changed as he made it smaller, quieter, less visible. Visitors stopped coming entirely. The correspondence that had once filled their desk each evening reduced to a few carefully selected pieces. The maps disappeared. The lists vanished. What remained looked like the private research of a minor scholar, nothing more.
+"Who were you going to write to?" she asked.
 
-One night, she woke to find Yeong-hak gone from their bed. She found him in the study, but he was not reading. He was writing, his brush moving with unusual speed across the paper.
+"Master Yi. But his nephew came by this afternoon. Master Yi thinks correspondence with the capital has become... inadvisable."
 
-"Another letter?" she asked.
+She understood. The network was not being destroyed. It was being pruned, contact by contact, until what remained was too small to threaten anyone and too isolated to accomplish anything.
 
-He looked up. "Instructions. For when I am not here to give them."
+Three days later, a letter arrived that did not fit the pattern.
 
-She moved closer. "Instructions for whom?"
+Lady Yoon was cleaning the study when she noticed it on the desk—a single sheet of paper, folded but not sealed, written in a hand she did not recognize. It had not been there that morning when she brought Yeong-hak his tea.
 
-"For you." He set down the brush. "There are things you will need to know if this work is to continue."
+She paused, holding the brush she had been arranging. The letter was positioned deliberately, placed where she would see it if she happened to look but not so obviously that it seemed intended for her.
 
-"Continue without you?"
+The handwriting was careful, modern. The message was brief:
 
-"The interest from the capital is not general. It is specific." He gestured to the page he had been writing. "Someone in the new government wants this work stopped, and they have connected it to me personally. Not to the cause. To me."
+*The interest from the capital is not general but specific. Someone in the new government wants this work stopped, and they have connected it to you personally. The recommendation is immediate cessation of all activities and removal from the area if possible. The alternative is likely to be permanent.*
 
-She looked at the careful instructions he had been writing—names, locations, contacts, methods. A complete guide to the network he had been protecting by dismantling.
+There was no signature. No indication of who had sent it or how it had arrived.
 
-"You think they will come for you."
+Lady Yoon read it twice, then folded it exactly as it had been and returned it to its position on the desk. She finished arranging the brushes and left the study.
 
-"I think they will try. And I think I may not be here to finish what was started." He looked at her directly. "That is why the work must become yours to complete."
+That evening, when Yeong-hak came in for dinner, she watched his face as he moved around the house. He gave no sign that he had received unusual correspondence. He spoke normally about his day, asked about hers, worked at his desk after the meal as he always did.
+
+But when she went to bed, she heard him remain in the study longer than usual. And in the morning, when she cleaned the room again, the letter was gone.
 
 ---
 
@@ -144,28 +136,28 @@ And somewhere in a provincial study, a scholar who had once served the cause Suk
 
 ---
 
-In the days that followed, Lady Yoon watched her husband prepare for what he clearly believed was inevitable.
+In the days that followed, Yeong-hak worked with a different quality of attention.
 
-He completed the documentation he had been working on, copying the most essential records in a careful hand and sealing them in oiled cloth. He organized the remaining papers so that someone else could continue the work if needed. He wrote letters that would not be sent until after he was gone.
+He completed documents that had been in progress for months. He organized papers that had accumulated in careful stacks. He burned others that she had never seen before. The work continued, but it felt like conclusion rather than continuation.
 
-She did not ask when he thought they would come. She did not suggest that perhaps there was still time to escape. She understood that he had already decided the work was more important than his safety, and that her role was not to change his mind but to help him complete what he had started.
+She did not ask about the letter. She did not mention that she had seen it. But she watched him make choices that suggested he understood the warning it contained.
 
-When he worked late into the night, she ground his ink and trimmed his brushes. When he paused to consider a difficult question, she was there to offer the kind of practical observation that helped him think through the problem. When he sealed the final document and placed it where it could be found by the right person at the right time, she was there to witness that it was done.
+When he worked late into the night, she ground his ink and trimmed his brushes as she always had. When he paused to consider a difficult passage, she offered the kind of practical observation that helped him think through the problem. When he sealed documents and placed them in the desk compartment, she was there to hand him the wax he needed.
 
-Because she understood that her husband was no longer working toward a distant solution. He was working toward a conclusion that was approaching whether he was ready or not. And if that was his choice, she would help him reach it on his own terms, with his own hands, in his own time.
-
-Even if it killed him.
+But she said nothing about what she had read. And he said nothing about what he clearly believed was coming.
 
 ---
 
-Night settled over two rooms in two different places.
+In the royal palace, Sukjong sat alone with the wooden chest open before him. Inside lay the formula written in his own hand, the solution to a problem that had haunted the dynasty for two centuries. The answer was complete. The political circumstances that might have implemented it were gone.
 
-In the royal palace, Sukjong sat alone in his private study, a completed formula locked away in his desk, useless as long as the political circumstances that might have implemented it remained impossible.
+He closed the chest and locked it.
 
-In a provincial house, Lady Yoon sat in the corridor outside the study where her husband finished work that she knew would probably kill him.
+In a provincial house, Lady Yoon lay awake in the dark. Beside her, Yeong-hak breathed with the even rhythm of sleep. In the study down the corridor lay the warning letter he had received and read but had not told her about.
 
-Both of them held knowledge they could not share. Both of them had chosen silence over safety. Both of them understood that some questions, once begun, demanded answers regardless of the cost of learning them.
+She had read it too, without his knowledge. The letter that said someone in the capital wanted his work stopped. The letter that mentioned his name specifically. The letter that suggested what would happen if the work continued.
 
-The kingdom was stable. The succession was secure. The dead remained buried.
+She knew what he knew. He did not know that she knew it.
 
-And in the space between what power could accomplish and what conscience demanded, two people who had never met carried forward the same impossible burden in opposite directions.
+In the morning, she would prepare his tea and ask about his plans for the day. He would answer as he always did, careful and considerate. Neither of them would mention the letter that had changed everything.
+
+Both of them understood that some knowledge was too dangerous to share, even with the person sleeping beside you.
