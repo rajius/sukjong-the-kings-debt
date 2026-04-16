@@ -10,9 +10,13 @@ The cart waited nearby, parked among others on the nearest lane.
 
 She waited patiently. Then there he was.
 
-The man of the institution. King Sukjong moved past in robes that caught the morning light, surrounded by the full ceremony of royal procession. She had imagined him smaller, somehow. But he filled the space around him - not through size but through the weight of what he carried. This was the face behind every decree, every appointment, every execution. The person who pulled the invisible lines that stretched across the country, touching the lives of countless people he would never see, never know, never consider.
+The man of the institution. King Sukjong moved past in robes that caught the morning light, surrounded by the full ceremony of royal procession. She had imagined him smaller, somehow. But he filled the space around him, not through size but through the weight of what he carried. This was the face behind every decree, every appointment, every execution. The person who pulled the invisible lines that stretched across the country, touching the lives of countless people he would never see, never know, never consider.
 
 The one who had invited Song Si-yeol back from exile and then ordered his death. The one who had, in his way, taken one husband from her and sent another.
+
+He had restored a dead king's name, and the restoration was real. It had also cost the living years, husbands, children, futures. Perhaps that was what power was: the authority to decide which wound would be answered in public and which would be left to private houses.
+
+And yet some part of her still wanted to imagine a better arrangement of the world. One in which setting one thing right did not require the breaking of something else. One in which justice did not arrive carrying fresh damage in its hands. If such a world existed, it had not been made for their generation.
 
 She absorbed what she could. She would only see him once.
 
