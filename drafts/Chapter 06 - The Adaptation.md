@@ -102,6 +102,16 @@ She resealed the letter carefully and arranged for its delivery to the correct a
 
 She knew two of them.
 
-That evening she began writing again. Not in dead men's voices. In her own, encoded in discussions of seasonal preparations, household linens, the price of rice. Letters from one woman to another about ordinary things, the kind of correspondence that no investigator looking for scholarly networks would think to read.
+That evening she did not begin with the letters. She began with the women.
 
-The dead names had bought her a season. They could not buy her another.
+She wrote first to Ok-sun, who had brought her into the wives' gathering at the magistrate's residence years ago and had since become the source she trusted most for things men did not say at home. The note was a request to share dried persimmons next month — the kind of invitation that established a meeting without naming one. Ok-sun would understand.
+
+She wrote next to Madam Choe, whose nephew worked in a section of the chancellery that handled provincial dispatches. The note was a polite inquiry about a fabric pattern Madam Choe had admired at the autumn gathering. The reply, when it came, would tell Lady Yoon whether her household needed to be moved or merely warned.
+
+She wrote to three others. Wives, one widow, one merchant's mother. None of the letters mentioned scholarship. None mentioned politics. Each one carried, beneath the ordinary words, a question that would be answered in the same form. The women would talk to their husbands and brothers and sons and servants. The answers would come back through the same channel — gathering invitations, fabric samples, polite inquiries about the price of rice.
+
+The first client had come to her two years before. A wealthy wife wanted to know whether her husband's failing prospects were the result of his own missteps or of someone in the capital working against him. Lady Yoon had taken the case and named no fee. When the answer was ready, she had sent word that she was prepared to deliver it, and let the wife propose what the answer was worth. The wife had offered information about her own father-in-law's correspondence with a Southerner faction member. Lady Yoon had accepted. The information had become two more leads. Each lead had become two more.
+
+She did not advertise the service. She did not need to. The women told one another carefully and slowly, in the way women shared the names of physicians and seamstresses, and by now she had a small steady stream of clients whose payments — never coin — built the operation more reliably than coin would have.
+
+She finished the last note and sealed it. The dead names had bought her a season. The women would buy her years.
