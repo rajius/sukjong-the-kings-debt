@@ -22,15 +22,9 @@ Scholar Pak signed it without reading it closely.
 
 ---
 
-Within a month, she was writing in three voices, and she knew the method had a short life.
+A letter forwarded from Yeong-hak's old capital address reached her two weeks later. The correspondent in Gangwon did not know he was dead. She wrote back as her husband — once. The reply redirected the contact toward another channel.
 
-The next letter had been sent to her husband's old capital address and forwarded on by someone who still knew where she had gone. The correspondent in Gangwon was asking about burial site progress — specific enough to suggest real research, not idle curiosity. He did not know Yeong-hak was dead. She studied her husband's previous letters until she could replicate his scholarly formality. The reply acknowledged the inquiry and redirected it toward safer sources.
-
-Scholar Pak signed it readily. "Master Kim mentioned that you had assisted with scholarly correspondence. Your husband must have valued your education."
-
-A week later, an inquiry arrived addressed to Scholar Min from Andong, dead nearly a year. The provincial networks moved slowly. News of deaths lagged. She wrote as Scholar Min — once, only once, to redirect the contact toward another channel and warn him without warning him.
-
-This was not a system. It was triage. Each letter was a question of how long the lag would last before someone noticed that men no longer alive were still answering their mail. She kept count. She did not keep the count where Scholar Pak could see it.
+This was not a system. It was triage. Each letter was a question of how long the lag would last before someone noticed.
 
 Then a problem she had not anticipated.
 
@@ -56,35 +50,31 @@ Exactly the kind of evidence that someone was working systematically to suppress
 
 She crafted a careful reply in Master Kim's voice, explaining that the requested rubbings required additional research but that preliminary inquiries could be forwarded through trusted intermediaries. She provided contact information for two scholars she had been corresponding with, using their names to create a trail that would keep the inquiry alive while revealing who else was interested in such materials.
 
-When the young man returned for the letter, she watched from the kitchen window. He was indeed well-dressed, educated in his bearing. But when he read the reply, his expression changed in a way that suggested disappointment. He had been expecting something more specific, more immediately useful.
+When the young man returned for the letter, she watched from the kitchen window. He read it standing in the courtyard. His face did not move, but he stood very still for a long moment before he tucked the paper away and walked back toward the gate.
 
-That evening, Lady Yoon began to understand that she was not only maintaining a network—she was being tested by someone who already knew more about it than she had realized.
+He had been expecting something else.
 
 ---
 
-The difficulty with Scholar Pak emerged gradually.
+Scholar Pak began to read the letters before he signed them.
 
-He was conscientious about reading correspondence before signing it, which created delays when replies needed to be sent quickly. He asked questions about research references he did not recognize, forcing Lady Yoon to provide explanations that revealed more about the network's scope than was safe. And he began to notice patterns in the types of inquiries arriving at the seowon.
+He had a habit when he found something that puzzled him — he would set the letter on the desk, square its edges with the side of his thumb, and look at it for a long moment before he asked the question. Lady Yoon learned to watch for the thumb.
 
-"We receive a remarkable amount of genealogical correspondence," Scholar Pak observed one afternoon, reviewing a stack of letters awaiting replies. "Families from quite distant provinces seem to know about our research resources."
+"We receive a remarkable amount of genealogical correspondence," he said one afternoon, the thumb already moving along the paper's edge. "Families from quite distant provinces seem to know about our research resources."
 
-Lady Yoon continued grinding ink, her expression unchanged. "Master Kim developed a reputation for thoroughness. Word travels in scholarly circles."
+Lady Yoon continued grinding ink. "Master Kim developed a reputation for thoroughness."
 
-"Yes, but some of these inquiries are quite specific. Burial sites, inscription records, documentation from the Sejo period." Scholar Pak looked at her directly. "That is sensitive historical territory."
+"Yes. But some of these inquiries are quite specific. Burial sites. Inscription records. Documentation from the Sejo period." He looked at her. "That is sensitive historical territory."
 
-The moment required careful navigation. Scholar Pak was not suspicious, but he was not stupid. He needed an explanation that would satisfy his curiosity without revealing dangerous knowledge.
+"Master Kim believed that historical truth should not be suppressed for political convenience. Some families have been trying to recover information about ancestors whose service was... officially forgotten."
 
-"Master Kim believed that historical truth should not be suppressed for political convenience," Lady Yoon said. "Some families have been trying to recover information about ancestors whose service was... officially forgotten."
+Scholar Pak nodded slowly. The thumb stilled. "I see. And you have been assisting with this research?"
 
-It was close enough to the truth to be convincing, broad enough to discourage further questions.
+"When my education permits."
 
-Scholar Pak nodded thoughtfully. "I see. And you have been assisting with this research?"
+"Of course." He set the letter aside but did not sign it. "Perhaps in the future, you should prepare a brief summary of each inquiry for my review. So I can better understand the context of my replies."
 
-"When my education permits. Master Kim valued careful documentation."
-
-"Of course." Scholar Pak returned to his letters. "Perhaps in the future, you should prepare a brief summary of each inquiry for my review. So I can better understand the context of my replies."
-
-Lady Yoon agreed. She would now write twice for every letter — the version Scholar Pak could see, and the actual one. The doubling cost her sleep. She did not know how long she could keep it up.
+She would now write twice for every letter. The doubling cost her sleep.
 
 ---
 
