@@ -1,4 +1,4 @@
-# Chapter 7 -- The Inspector's Commission
+# Chapter 7 -- The Assignment
 
 The problems began arriving in late spring, carried by messengers who rode hard from distant provinces and spoke in the measured tones that meant serious trouble.
 
@@ -88,29 +88,29 @@ The answer was thorough, practical, and demonstrated understanding of both the a
 
 "Yes, Majesty."
 
-Sukjong made his decision. "You will be appointed amhaeng-eosa with full royal authority to investigate and assess provincial administration. Your mission is to restore effective governance where it has been disrupted and to identify any genuine problems that require central intervention."
+Sukjong made his decision. "You will be assigned to conduct a preliminary assessment of provincial administration in the affected areas. Your mission is to observe local operations, identify specific problems, and recommend solutions."
 
 Yi Hwon bowed deeply. "I am honored by Your Majesty's confidence."
 
-"Nam will provide you with the specific provinces to be examined and the documentation you will need. You will report directly to me, and your findings will remain confidential until I determine how they should be addressed."
+"Nam will provide you with the specific provinces to be examined and the proper credentials for your assignment. You will report directly to me, and your findings will inform how we address these administrative difficulties."
 
 "Understood, Majesty."
 
-As Yi Hwon prepared to leave, Sukjong added one final instruction. "You will pay particular attention to any unusual activities that might be affecting local administration. Commercial disruptions, social tensions, anything that suggests coordinated effort to undermine effective governance."
+As Yi Hwon prepared to leave, Sukjong added one final instruction. "You will observe carefully. Commercial disruptions, social tensions, any patterns that might explain the administrative difficulties we are seeing."
 
 "Yes, Majesty."
 
 After Yi Hwon left, Sukjong remained in his study with Nam, contemplating the commission they had just issued.
 
-"He will discover more than administrative problems," Nam said quietly.
+"He may discover more than administrative problems," Nam said quietly.
 
-"I expect so."
+"Perhaps."
 
-"The provincial networks that survived the purge are still active. They may be operating differently now, but they have not disappeared."
+"The provincial networks that survived the purge may still be active. Operating differently now, but not gone."
 
-Sukjong nodded. He was aware that the elimination of the Westerner faction had not eliminated all organized resistance to royal authority. It had simply forced that resistance to adapt, to find new methods and new cover for activities that could no longer operate through official channels.
+Sukjong nodded. The elimination of the Westerner faction had not eliminated all resistance to royal authority. It had simply forced such resistance underground, into new methods and new forms of organization.
 
-"Yi Hwon is thorough. If there are networks operating in the provinces, he will identify them."
+"If Yi Hwon's assessment reveals broader patterns, we will consider what additional authority he might require."
 
 "And then?"
 
