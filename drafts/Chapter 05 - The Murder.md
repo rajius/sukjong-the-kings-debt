@@ -140,16 +140,32 @@ Lady Yoon held the fragment carefully. It was evidence of something, though what
 
 Master Kim looked at her with exhaustion that went deeper than the journey. "Because you are what remains. Because the work..." He paused, seeming to lose his thread. "Because someone should know."
 
-He gathered his walking stick slowly. "Be careful. They know the work continues. They may not know who."
+He was quiet for a long moment, then seemed to come to some internal decision.
+
+"There is another matter. The seowon. I have written to Scholar Pak—you remember him, the older student who assisted with the spring examinations. He will come to take formal responsibility for the school."
+
+Lady Yoon nodded. She had expected this. Master Kim was dying, and institutions needed continuity.
+
+"I have told him the household accounts and correspondence already pass through your hands. That you know the patrons, the storage arrangements, the seasonal requirements. That you understand the rhythms of the place better than anyone he could bring from outside." Master Kim's voice was matter-of-fact. "If he means to keep the seowon standing, he will keep you."
+
+The practical wisdom was obvious. Lady Yoon had managed the domestic operations for years. Any replacement would need months to learn what she already knew.
+
+"Scholar Pak is agreeable?"
+
+"Grateful for the recommendation. Not ambitious beyond his station. He will follow established routines and avoid unnecessary changes." Master Kim gathered his walking stick slowly. "Be careful. They know the work continues. They may not know who."
 
 After he left, Lady Yoon sat alone in the main room with the archive spread before her and the fragment of correspondence in her hands. Outside, winter was settling over the mountains, and the house felt larger and emptier than it had when she had shared it with a living husband.
 
-The study door stood open. The desk waited, no longer forbidden territory but not yet claimed.
+Master Kim had been practical, as always. Scholar Pak would arrive within the month, grateful for his appointment, dependent on her knowledge of how the seowon actually functioned. The household accounts would continue to pass through her hands. The correspondence would still require her attention. The patrons would expect the same courtesies they had always received.
+
+Nothing would change, officially.
+
+Everything would change, actually.
 
 She looked at the fragment again, reading the broken characters that suggested her husband's death had been ordered by someone with authority. It was not enough to prove anything. But it was a beginning. A direction to turn toward.
 
 She folded the paper and placed it in the desk where Yeong-hak had once kept his most dangerous documents.
 
-The work had killed him. Now it was hers to carry, though she did not yet know what carrying it would cost, or whether she had the strength to bear what he had borne.
+The work had killed him. Now it was hers to carry, though she did not yet know what carrying it would cost, or whether she had the strength to bear what he had borne. But Master Kim had ensured she would have the cover to try.
 
 She began to read the archive, starting with the maps that showed where the forgotten dead were buried.
