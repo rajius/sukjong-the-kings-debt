@@ -108,7 +108,7 @@ He kept watching.
 
 She did it twice more in the next hour. Each time the situation was small. Each time she resolved it before it became visible. Each time she returned to the tea table as if she had done nothing.
 
-Yi Hwon was not classifying her. He had already classified her. He was watching the way one watches a thing one has identified and is now simply seeing for the first time.
+He was watching her now the way he had been watching the room — but without doing anything else.
 
 She turned to look at him.
 
@@ -138,8 +138,6 @@ Yi Hwon stayed through the second day of the ceremony out of professional habit.
 
 He did not include the widow. He was not yet sure what he would have written if he had.
 
-The image of her stayed with him as he traveled — not as attraction, not as professional interest. Something closer to the way a man notices a discrepancy in a supply record. Something that did not fit, noted, unresolved. A widow in plain white who managed a courtyard with the precision of a senior official, who classified him in the time it took to lift a cup, and who vanished overnight without leaving a name.
+The image of her stayed with him as he traveled. The way a man notices a discrepancy in a supply record. Something that did not fit, noted, unresolved. A widow in plain white who managed a courtyard with the precision of a senior official, who classified him in the time it took to lift a cup, and who vanished overnight without leaving a name.
 
-A year would pass before he saw her face again.
-
-He did not know that yet. He only knew that he had not finished looking.
+He had not finished looking.
