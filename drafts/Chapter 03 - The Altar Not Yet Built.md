@@ -88,30 +88,26 @@ When the council ended, Sukjong remained alone in the chamber for a long time, s
 
 ---
 
-The decision came in autumn, on a day when the light slanted low through the study windows and cast long shadows across the floor where the Chinese volume lay open.
+The decision came in autumn, on a day when the light slanted low through the study windows.
 
-Sukjong sat with the book in his hands, reading again the passage about Prince Jianwen's restored shrine. The solution was there. The precedent was clear. The moral debt was undeniable.
+Sukjong sat with the book in his hands. The solution was there. The precedent was clear. The moral debt was undeniable. And the political ground was shifting beneath all of it.
 
-And the political ground was shifting beneath all of it.
+To act now would be to tie the restoration to a faction in decline. The Southerners would see it as a Westerner project, something to be undone when they took control. The formula would be discredited along with the faction that had presented it.
 
-To act now, while the Westerners still held nominal power but were losing actual influence, would be to tie the restoration to a faction in decline. The Southerners would see it as a Westerner project, something to be undone when they took control. The formula would be discredited along with the faction that had presented it.
+To wait meant accepting that good ideas could be destroyed by bad timing.
 
-To wait meant accepting that good ideas could be destroyed by bad timing. It meant understanding that a king's duty was not only to be right but to be right at the sustainable moment.
+He took out brush, ink, and paper. He wrote slowly, in his own hand:
 
-Sukjong closed the book. He walked to his desk and took out brush, ink, and paper.
+*The restoration of Prince Danjong may follow the precedent established by the Wanli Emperor in the restoration of Prince Jianwen. Both the wronged prince and the regent who succeeded him may be honored as legitimate. The shrine may expand to hold what division has kept separate.*
 
-He wrote slowly, in his own hand:
+He sat with the document in front of him.
 
-*The restoration of Prince Danjong may follow the precedent established by the Wanli Emperor in the restoration of Prince Jianwen. Both the wronged prince and the regent who succeeded him may be honored as legitimate. The shrine may expand to hold what division has kept separate. This formula preserves moral justice while maintaining political stability.*
+He thought of his twenty-year-old self, six years ago, leaning across a desk to argue with Nam Guman over a single syllable. *I want to restore him fully.* The voice that had said it was still in him. He could feel it now, pushing his hand toward the door, toward the council chamber, toward the decree that would convert this private paper into public action.
 
-He dated it, sealed it with his private seal, and placed it in the wooden chest where he kept documents meant for future consideration.
+He set the brush down. His hand shook slightly. He pressed it flat against the desk until it stopped.
 
-The commitment was genuine. The timing was not yet right. The argument would wait until the king who made it could see it through.
+He had become the man Nam had been. He had become the voice that said *not yet.* He had spent five years arguing himself into the position he had once despised. There was no one in the room to argue him out of it. There was no one in the room at all.
 
----
+He sealed the document. He placed it in the wooden chest where it would wait.
 
-That evening, Sukjong sat alone in his study with the written formula in his hands. Outside, the first frost silvered the courtyard stones.
-
-He folded the document, sealed it with his private seal, and placed it in the wooden chest where it would wait.
-
-The formula existed. The timing did not.
+The formula existed. The timing did not. And the king who had built both was alone with the silence between them.
