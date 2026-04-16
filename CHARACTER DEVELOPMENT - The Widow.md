@@ -26,6 +26,7 @@
 
 ### The Threat and the Proposal
 - **Proposals**: Provincial men, minor scholars — the kind of match a parentless woman with no dowry might expect. She rejected them. The pool was too low for a mind that had been trained, even informally, by the best teacher in the province
+- **Matchmaker's assessment**: "Striking, but too clever for her own good" — the kind of observation that made families wary
 - **The incident**: A rejected suitor turned threatening — her reputation, her position, possibly her safety. The threat made clear what a single parentless woman without protection actually meant in Joseon
 - **Master Kim's decision**: She needed to be married. Not eventually — now. The threat was the immediate trigger, but the political exposure of his household was the deeper reason he already had
 - **The match**: Master Kim proposed his former student — the prodigy, now in the capital. She had never met him. He left the seowon before she arrived. But she knew the space he studied in, the books he read, the traces he left in Master Kim's references
@@ -43,7 +44,8 @@
 
 ### Physical Presence
 - **Age**: Mid-thirties during main action (married at 25 in 1685, widowed at 30 in 1690)
-- **Appearance**: Among pretty women she was unusually sharp; among clever women, unusually difficult to forget
+- **Appearance**: In the capital they had once said she was the cleverest of the pretty women and the prettiest of the clever ones. Lady Yoon had never found the distinction useful.
+- **Beauty as risk**: She had long since learned that beauty was not an asset so much as a form of exposure. Beauty, like money or information, drew the wrong kind of attention if left unwatched. She knew what men called beauty. She also knew what it cost.
 - **Bearing**: Composed, careful, alert - woman who listens more than she speaks
 - **Hands**: Ink-stained from constant letter writing
 

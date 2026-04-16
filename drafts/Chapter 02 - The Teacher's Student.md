@@ -132,11 +132,11 @@ Ok-sun's expression shifted — not recognition exactly, but the particular aler
 
 "I want to know what kind of man has no wife at twenty-nine and no one asking questions about it."
 
-Ok-sun looked at her over the tea. "People are asking questions. They just do not have answers. His parents died — mourning accounts for some years. After that..." She shrugged. "My husband says the scholars who know him use the word 'brilliant' the way you use the word for a blade that cuts well but is difficult to hold."
+Ok-sun looked at her over the tea. "People are asking questions. They just do not have answers. His parents died — mourning accounts for some years. After that..." She paused. "Song Si-yeol's execution changed everything. Anyone connected to him became politically dangerous. The families that might have arranged a marriage before would not risk it now."
 
 "Dangerous?"
 
-"Consuming. He works. That is what they say. He works the way other men drink or chase women — constantly, and at the expense of everything else."
+"Marked. My husband says the connection to Song Si-yeol makes him brilliant but untouchable — too risky for the families that matter, too accomplished for those that don't."
 
 Lady Yoon asked the question she had come to ask. "Is he the kind of man who would walk into a woman's kitchen uninvited?"
 
@@ -158,19 +158,15 @@ The formal meeting came later that day — chaperoned, structured, the proper ri
 
 She said something about a text Master Kim had recently acquired — a commentary on the Shujing that she had read the previous week. It was a test, and they both knew it was a test, and the fact that they both knew made it something other than a test. She had chosen the text because the commentary contained an error in its citation of the original — small, technical, the kind of mistake only a careful reader would catch.
 
-He caught it. "The citation is wrong," he said. "The Shujing passage is from the 'Charge to Yue,' not the 'Counsels of Gao Yao.' The commentator conflated them because the argument works with either, which is how you know the argument is weak."
+He caught it. "The citation is wrong," he said. "The commentator conflated two passages."
 
-"The argument is weak," she said. "But the conflation is interesting. He may have done it deliberately — because the 'Charge to Yue' passage addresses a minister's duty to a king, and the 'Counsels' passage addresses a king's duty to the state. If you read the commentary as using both, it says something about obligation running in two directions."
+"The argument is weak," she said. "But perhaps the conflation is not. One passage is for a minister, the other for a ruler."
 
-He stared at her. Not with admiration — something sharper, something closer to the expression of a man who has opened a box expecting one thing and found another.
+He looked at her more closely.
 
-"That reading is wrong," he said.
+"You think he wanted both obligations in view."
 
-"Why?"
-
-"Because the commentator would have flagged the dual reference if he intended it. He is not that subtle."
-
-"Maybe. Or maybe he was subtle enough to know that flagging it would have been dangerous, given what the passage implies about kings who fail their obligations."
+"Perhaps."
 
 The silence that followed was not comfortable. It was the silence of a man recalculating. Master Kim, sitting to the side, said nothing. He was watching the way a teacher watches when the lesson is no longer his to direct.
 
@@ -212,6 +208,36 @@ This was the pattern. He corrected her more often and more sharply than he corre
 
 ---
 
+The room had gone cold without her noticing.
+
+Lady Yoon was still bent over her papers when Yeong-hak looked up and said, "Your hand is stiff."
+
+She glanced at him. "It is only cold."
+
+"That is what I said."
+
+He set down his brush and moved the brazier closer to her side of the table. Then he took the inkstone from beside her and looked at it with mild disapproval.
+
+"You have been grinding too long."
+
+She almost smiled. "I did not realize you had begun supervising my ink as well."
+
+"I have no wish to spend the winter reading characters damaged by stubbornness."
+
+He sat down again, but not before pouring hot water into a cup and setting it beside her hand.
+
+For a while they worked in silence.
+
+When she reached at last for the cup, it was still warm.
+
+She looked up. "You timed that."
+
+Yeong-hak did not lift his eyes from the page. "Of course."
+
+The answer was so unembarrassed that she felt the warmth of it more sharply than she felt the heat in her fingers.
+
+---
+
 The work was always there.
 
 He did not announce it. He did not explain it. But the papers on his desk had a quality she recognized — the same careful, coded quality she had seen in Master Kim's work, the same register of deliberate omission. Lists that were not quite lists. Maps that marked locations with notations too precise to be casual and too cryptic to be clear. Correspondence from the provinces written in a hand she did not know, addressed to a name she did not recognize, concerning places she had never heard of until she found them, one by one, on the maps.
@@ -223,6 +249,100 @@ She asked.
 He was mapping burial sites. The graves of men the state had executed two hundred years ago — their official locations, and the actual locations, which were not always the same. The state had recorded one thing. The families had remembered another. Her husband was building a record the state had spent two centuries trying to erase.
 
 She learned the network through him. The names, the channels, the contacts. She learned without either of them naming what she was learning.
+
+---
+
+She thought he was asleep.
+
+The lamp had long since been put out. The room was dark except for the thin winter light at the paper door. Beside her, Yeong-hak had not moved for some time, and his breathing had settled into the even rhythm she had begun to know.
+
+Lady Yoon lay still, waiting for her own thoughts to quiet.
+
+After a while, his voice came out of the dark.
+
+"You are awake."
+
+She turned her face slightly toward him. "Did I wake you?"
+
+"No."
+
+The answer was immediate enough to make her wonder how long he had been awake as well.
+
+She was quiet for a moment. Then she said, "How did you know?"
+
+"You breathe differently."
+
+He said it as if it were obvious.
+
+She lay still under the quilt, suddenly aware of the small space between them. Not wide. Not careless. Simply there.
+
+After a moment, she felt him reach down and pull the edge of the quilt higher over her shoulder.
+
+"The room is colder after midnight," he said.
+
+She might have answered that she had not complained. That she was not cold enough to matter. But the correction felt unnecessary.
+
+So she said nothing.
+
+Neither did he.
+
+Some time passed in silence.
+
+Then, in the dark, her hand shifted between them. Not deliberately. Not quite. It came to rest against the back of his wrist.
+
+He did not move away.
+
+When he spoke again, his voice was lower than before.
+
+"You should sleep."
+
+"Yes," she said.
+
+But neither of them withdrew.
+
+---
+
+The room had been warm that evening. She had finished her reading earlier than usual and sat mending beside the table while he worked. The lamp cast steady light between them. She was aware of the quiet — not empty, but full of the particular peace that comes when two people occupy the same space without effort.
+
+When he set down his brush, she glanced up.
+
+He was looking at her. Not the way he looked when he had a question about her reading, or when he was calculating whether she needed more light. This was different. Direct in a way that made her hands still on the cloth.
+
+"What is it?" she said.
+
+He did not answer immediately. Instead he rose from his seat and crossed to where she sat. He stopped in front of her chair — close enough that she had to tilt her face up to meet his eyes.
+
+For a moment they looked at each other without speaking.
+
+Then he reached down and touched her face. Not casually. Not as if he were brushing away a thread or adjusting a strand of hair. His fingers found her cheek and stayed there, deliberate and unmistakable.
+
+She did not move away. She did not lean into the touch. She simply looked at him, reading the intention in his eyes the way she had learned to read the intention in his arguments.
+
+"Are you certain?" she said quietly.
+
+He nodded once. "Yes."
+
+She considered this. His hand remained against her face, patient and still.
+
+"Then yes," she said.
+
+"Was this always what you wanted?"
+
+"Not always," he said. "But for some time."
+
+"How long?"
+
+He was quiet only a moment.
+
+"Since you told me the commentary tradition was wrong."
+
+She smiled in spite of herself. "That was the second month."
+
+"Yes."
+
+"You waited a year."
+
+"I wanted you to choose it."
 
 ---
 

@@ -50,7 +50,7 @@ It was not what she would have wanted, if wanting had been something she practic
 
 She thought about it later — much later, after he was dead and she was dismantling his papers looking for the shape of his last months. She found the marriage broker's notes folded into a tax record. Seven names. Hers was fifth. Next to each name, a single line in his handwriting — observations, presumably gathered secondhand. Next to the first four: *Father in debt. Mother ambitious. Third daughter, two brothers already placed. Eldest, no prospects for brothers.*
 
-Next to hers: *Reads. Kim's student. Quiet.*
+Next to hers: *Reads. Kim's student. Quiet. Face worth seeing.*
 
 Three words. Not even a complete sentence. But she could see now what he had seen then — not a woman to admire, but a woman who would not erode. Someone whose silence was not emptiness but occupation. Someone who could be left alone without becoming lonely, because she had never learned to depend on company.
 
