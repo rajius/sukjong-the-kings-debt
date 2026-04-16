@@ -14,21 +14,31 @@ She moved. One moment crouched by the body, the next she had him locked, his arm
 
 He could have broken the hold, perhaps, but not without cost. Better to wait.
 
-During the brief struggle, her veil slipped, falling away from her face.
+The knot at her veil had loosened in the struggle. She felt it at once — the slackening cloth against her cheek, the faint shift of air at her temple.
 
-Yi Hwon went very still.
+She should have tightened it.
 
-So did she. For a moment neither of them moved. The memorial returned all at once. Then something changed between them — in his breathing, in her own body answering it — and she stepped back at once.
+Instead she hesitated.
+
+A draft moved through the open doorway. The edge of the veil lifted, settled, then slipped free.
+
+For a moment he saw only part of her face.
+
+Then he went very still. The memorial returned between them all at once.
+
+She felt the change before she let herself understand it. The tension in him had altered, no longer gathered wholly for escape.
+
+That was enough.
+
+She stepped back at once, before either of them betrayed too much.
 
 "Turn around."
 
 He turned. She stood near the far wall, hands empty.
 
-"Royal inspector."
+"So it was you," she said.
 
-"Network operative."
-
-The dead man lay between them.
+"Yes." Then he looked at the dead man lay between them.
 
 "Compromised," she said.
 
@@ -42,6 +52,6 @@ She moved toward the door. "Your investigation ends here."
 
 "Contained, for now."
 
-She paused at the door. "Be careful, Inspector. There are others asking questions. Others less interested in grain than in your health."
+She paused at the door. "Be careful. There are others asking questions. Others less interested in grain than in your health."
 
 She adjusted her veil and left.
