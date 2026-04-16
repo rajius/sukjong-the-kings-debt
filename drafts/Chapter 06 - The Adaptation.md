@@ -22,23 +22,17 @@ Scholar Pak signed it without reading it closely.
 
 ---
 
-Within a month, Lady Yoon was writing in three different voices.
+Within a month, she was writing in three voices, and she knew the method had a short life.
 
-The second letter that required attention had been addressed to her late husband. The correspondent was asking about progress on burial site documentation in Gangwon Province—dangerous territory, but the inquiry was specific enough to suggest real research rather than idle curiosity.
-
-She studied Yeong-hak's previous correspondence until she could replicate his scholarly formality, his habit of embedding crucial information in discussions of seemingly unrelated texts. The reply she crafted acknowledged the inquiry while redirecting it toward safer sources.
+The next letter was addressed to her late husband. The correspondent in Gangwon was asking about burial site progress — specific enough to suggest real research, not idle curiosity. She studied Yeong-hak's previous letters until she could replicate his scholarly formality. The reply acknowledged the inquiry and redirected it toward safer sources.
 
 Scholar Pak signed it readily. "Master Kim mentioned that you had assisted with scholarly correspondence. Your husband must have valued your education."
 
-The third voice belonged to Scholar Min from Andong, whose letters had stopped arriving months before his son's explanation about discontinued correspondence. But old scholarly networks moved slowly, and inquiries addressed to long-dead men continued to arrive.
+A week later, an inquiry arrived addressed to Scholar Min from Andong, dead nearly a year. The provincial networks moved slowly. News of deaths lagged. She wrote as Scholar Min — once, only once, to redirect the contact toward another channel and warn him without warning him.
 
-Lady Yoon wrote as Scholar Min to a contact in Wonju, explaining that recent events had made direct correspondence inadvisable but that research could continue through intermediaries. She provided the seowon's address as a secure forwarding location.
+This was not a system. It was triage. Each letter was a question of how long the lag would last before someone noticed that men no longer alive were still answering their mail. She kept count. She did not keep the count where Scholar Pak could see it.
 
-The letter worked too well.
-
-By the end of summer, correspondence addressed to four different dead men was arriving regularly. Lady Yoon found herself maintaining an entire phantom network, writing replies that kept dangerous inquiries alive while directing them through channels that provided her with information about who was asking what questions.
-
-But the system created a problem she had not anticipated.
+Then a problem she had not anticipated.
 
 ---
 
@@ -90,7 +84,7 @@ Scholar Pak nodded thoughtfully. "I see. And you have been assisting with this r
 
 "Of course." Scholar Pak returned to his letters. "Perhaps in the future, you should prepare a brief summary of each inquiry for my review. So I can better understand the context of my replies."
 
-Lady Yoon agreed, knowing that she would now need to maintain two sets of correspondence: the letters Scholar Pak would see, and the actual network communications that had to remain invisible.
+Lady Yoon agreed. She would now write twice for every letter — the version Scholar Pak could see, and the actual one. The doubling cost her sleep. She did not know how long she could keep it up.
 
 ---
 
@@ -114,22 +108,10 @@ Scholar Yi was not a confused local official. He was an investigator working dir
 
 People like her late husband.
 
-She resealed the letter carefully and arranged for its delivery to the correct address. But first, she made note of Scholar Yi's name and the specific provinces mentioned in his assignment.
+She resealed the letter carefully and arranged for its delivery to the correct address. But first she copied Scholar Yi's name and the provinces in his assignment, and she made note of the names listed for investigation.
 
-That evening, she began writing letters to her contacts, warning them that their correspondence was being monitored by investigators with direct connections to the capital ministries.
+She knew two of them.
 
-For the first time since Yeong-hak's death, she understood the full scope of what they were facing.
+That evening she began writing again. Not in dead men's voices. In her own, encoded in discussions of seasonal preparations, household linens, the price of rice. Letters from one woman to another about ordinary things, the kind of correspondence that no investigator looking for scholarly networks would think to read.
 
-The revelation changed everything about how the network had to operate.
-
-Scholar Yi was investigating genealogical research. Someone at ministerial level was coordinating the surveillance. The connection between local "administrative disruptions" and historical inquiries was being mapped systematically.
-
-Lady Yoon spent the next three days reviewing every letter she had written in the past six months, identifying which correspondents might be compromised, which inquiries might have revealed dangerous information, which connections might lead investigators back to the seowon.
-
-Then she began writing warnings, encoded in discussions of seasonal preparations and family news. Letters that would alert her correspondents to change their methods without explicitly acknowledging what those methods were.
-
-The correspondence web had kept dangerous inquiries alive by routing them through dead men's names. Now it would have to do something more difficult: disappear into the ordinary life of women managing practical affairs, invisible to investigators who were looking for scholarly networks and political conspiracies.
-
-The network was adapting again. But this time, adaptation meant learning to survive scrutiny that came directly from the capital, coordinated by people who understood exactly what they were hunting.
-
-Lady Yoon sealed the last of her warning letters and prepared to discover whether her new methods could withstand investigation by someone who knew what questions to ask.
+The dead names had bought her a season. They could not buy her another.
