@@ -86,6 +86,18 @@ Sukjong looked around the council table. Half the faces were familiar, men who h
 
 When the council ended, Sukjong remained alone in the chamber for a long time, staring at the empty chairs around the table that no longer held the men who might have supported what he had written in private.
 
+He understood the men who would sit in those chairs once the balance finished tipping. They were not stupid. They were not even cruel. They had arguments, and the arguments were not entirely wrong.
+
+If Sejo's reign was illegitimate, every king who descended from him was illegitimate. Including the one currently sitting in this chair. The Southerners would not say this aloud — they would never need to. They would simply remind everyone, in the gentle voice of men protecting the throne, that the Westerners' moral correction was also an attack on the king who would sign it.
+
+If the dead from two centuries ago could be brought back into the shrine, then every politically inconvenient death since became available for revision. Other purges. Other lost causes. Where did it stop? A dynasty that could not let the past stay past was a dynasty that could not function.
+
+And the Westerners — their hands were not clean. They were pursuing this for moral reasons, yes. They were also pursuing it because it would make them politically invincible. The Southerners could see this clearly. So could Sukjong. The fact that something was right did not erase the fact that the men advocating it would benefit.
+
+The trap was the simplest argument and the one Sukjong could not answer. *Your Majesty, do you wish your descendants to be free to make the same judgment about you that you propose to make about your ancestor?* He could imagine the voice that would ask it. Polite. Reasonable. Devastating. Once you established that ancestral judgment was acceptable, you licensed your own children to judge you.
+
+The Southerners were not villains. They were defending an arrangement that had held the kingdom together for two centuries. He understood why they would fight. He understood that some of what they would say was true. And he understood that the cause he had carried since he was thirteen — the boy in the mountain, the river, the hand that had pulled him out of the cold at fifteen — would have to wait until he could answer arguments that were not stupid and not cruel and not entirely wrong.
+
 ---
 
 The decision came in autumn, on a day when the light slanted low through the study windows.
