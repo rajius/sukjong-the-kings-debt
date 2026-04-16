@@ -2,11 +2,9 @@
 
 A year passed before he saw her face again.
 
-Yi Hwon spent that year as Yu had taught him to spend it. He moved through the provinces in clothes that did not announce him. He listened to merchants who would not speak to a man in robes. He filed reports written in the blunt prose Yu had asked for. He stayed alive in places where the magistrate would have preferred him dead and learned which inns to leave by the back stair.
+By the second summer, the administrative paralysis Yu had sent him to assess had revealed something underneath — an apparatus mapping scholarly networks that had survived the Gisa Hwanguk. Careful. Well-funded. Patient. Yi Hwon learned to read its presence the way he had learned to read the absence of investigators in places they had been.
 
-The investigation matured. By the second summer, what had begun as administrative paralysis had revealed something else underneath — an apparatus quietly mapping scholarly networks that had survived the Gisa Hwanguk. Not the apparatus the court would acknowledge. Something working in the margins, careful, well-funded, and patient. Yi Hwon had learned to read its presence the way he had learned to read the absence of investigators in places they had been.
-
-He had also, without intending to, learned to read its opposite. There was a counter-network in the provinces, women's correspondence and household channels and movements of paper that did not belong to the apparatus he was tracking. He could not yet trace its shape. He knew only that it existed, that it was older than the apparatus hunting it, and that it was moving information faster than it should have been able to.
+He had also begun to read its opposite. A counter-network was moving in the provinces — women's correspondence, household channels, paper that did not belong to the apparatus he was tracking. He could not yet trace its shape. He knew only that it was older than the thing hunting it, and that it was faster than it should have been.
 
 He had begun to suspect who was at the center of it.
 
@@ -164,15 +162,9 @@ She went very still.
 
 She studied him for a long moment.
 
-"Two more meetings," she said finally. "To exchange information about what is hunting my contacts."
+"Two more meetings," she said finally. "And the other matter remains my choice."
 
-"Yes."
-
-"And the other matter remains separate. My choice entirely."
-
-"Yes."
-
-She nodded once.
+He nodded.
 
 He bowed and prepared to leave. At the door he stopped.
 
@@ -355,13 +347,3 @@ He did not know how she knew about the handkerchief. He did not ask. The list of
 She turned and walked toward the trees on her side of the clearing. She did not look back.
 
 The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.
-
-When they were gone, Yi Hwon stood at the mill alone for a long time. His two men came down from the ridge. They did not ask him what had happened. Something in his face told them not to.
-
-He understood that he had walked through her operation today the way a man walks through a city believing he is alone in the street, and only afterward learns that every window had been watched.
-
-He understood, also, that she had made a decision about him before he had finished arriving. The decision had not been to dismiss him. The decision had been to refuse to be the reason he became a worse man.
-
-He went back to the inn. He wrote nothing that night.
-
-In the morning, he began the ride back to the capital.
