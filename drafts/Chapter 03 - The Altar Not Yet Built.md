@@ -84,33 +84,21 @@ Sukjong looked around the council table. Half the faces were familiar, men who h
 
 "Of course, Majesty. But perhaps some research is more beneficial than others."
 
-When the council ended, Sukjong remained alone in the chamber for a long time, staring at the empty chairs around the table that no longer held the men who might have supported what he had written in private.
+When the council ended, Sukjong remained alone in the chamber, staring at the empty chairs around the table that no longer held the men who might have supported what he had written in private.
 
-He understood the men who would sit in those chairs once the balance finished tipping. They were not stupid. They were not even cruel. They had arguments, and the arguments were not entirely wrong.
-
-If Sejo's reign was illegitimate, every king who descended from him was illegitimate. Including the one currently sitting in this chair. The Southerners would not say this aloud — they would never need to. They would simply remind everyone, in the gentle voice of men protecting the throne, that the Westerners' moral correction was also an attack on the king who would sign it.
-
-If the dead from two centuries ago could be brought back into the shrine, then every politically inconvenient death since became available for revision. Other purges. Other lost causes. Where did it stop? A dynasty that could not let the past stay past was a dynasty that could not function.
-
-And the Westerners — their hands were not clean. They were pursuing this for moral reasons, yes. They were also pursuing it because it would make them politically invincible. The Southerners could see this clearly. So could Sukjong. The fact that something was right did not erase the fact that the men advocating it would benefit.
-
-The trap was the simplest argument and the one Sukjong could not answer. *Your Majesty, do you wish your descendants to be free to make the same judgment about you that you propose to make about your ancestor?* He could imagine the voice that would ask it. Polite. Reasonable. Devastating. Once you established that ancestral judgment was acceptable, you licensed your own children to judge you.
-
-The Southerners were not villains. They were defending an arrangement that had held the kingdom together for two centuries. He understood why they would fight. He understood that some of what they would say was true.
+The Southerners had a question he could not answer. *Your Majesty, do you wish your descendants to be free to make the same judgment about you that you propose to make about your ancestor?* He could imagine the voice. Polite. Reasonable. Once you established that ancestral judgment was acceptable, you licensed your own children to judge you.
 
 And there was the other thing.
 
-The queen had not given him a son. Eight years of marriage and her body had stayed quiet. Jang Hui-bin's body had not. The child she carried — a son, the physicians were certain — would be born before winter. Sukjong wanted the boy. He could not pretend otherwise. A king without an heir was a king with a knife at his back, and the knife had been there long enough that he had stopped noticing the cold of it.
+The queen had not given him a son. Eight years of marriage and her body had stayed quiet. Jang Hui-bin's body had not. The child she carried — a son, the physicians were certain — would be born before winter. Sukjong wanted the boy. He could not pretend otherwise.
 
-But the women were not just women. They were factional flags. The queen was the Westerners' standard. Jang Hui-bin was the Southerners' instrument. To name her son crown prince — to give the boy his proper place — was to give the Southerners the throne's future and to give the Westerners a wound they would not survive.
+But the women were not just women. They were factional flags. The queen was the Westerners' standard. Jang Hui-bin was the Southerners' instrument. The same Westerners who would carry the Danjong restoration were the faction whose wound, when he chose Jang Hui-bin's son, would not survive.
 
-The same Westerners who would carry the Danjong restoration. The same faction that had produced Song Si-yeol's intellectual lineage, the formula for Wanli's parallel, the men whose moral authority made the project possible at all.
+He could not have both.
 
-He could not have both. He could have a son and lose the cause. He could have the cause and lose the certainty of an heir.
+A king who restored a dead boy at the cost of his living son was not a king. A king who abandoned the dead boy for a smooth succession was not the king he had spent twenty years preparing to become.
 
-He sat with this the way he had sat with the other arithmetic. The cold sum did not change for being held longer. It said: a king who restored a dead boy at the cost of his living son was not a king. A king who abandoned the dead boy for a smooth succession was not the king he had spent twenty years preparing to become.
-
-The cause he had carried since he was thirteen — the boy in the mountain, the river, the hand that had pulled him out of the cold at fifteen — would have to wait until he could answer arguments that were not stupid and not cruel and not entirely wrong. And until he could find a way to be both kinds of king at once. He did not yet know if such a way existed.
+The cause he had carried since he was thirteen — the boy in the mountain, the river, the hand that had pulled him out of the cold at fifteen — would have to wait until he could find a way to be both kinds of king at once. He did not yet know if such a way existed.
 
 ---
 
