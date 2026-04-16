@@ -1,6 +1,14 @@
 # Chapter 7 -- The Assignment
 
-The problems began arriving in late spring, carried by messengers who rode hard from distant provinces and spoke in the measured tones that meant serious trouble.
+The Southerners had overreached.
+
+That was the simplest version of it. The longer version involved a manufactured Noron conspiracy that had been intended to give the Southerners cover for one more round of executions and had instead exposed how willing they had become to fabricate enemies. When the evidence collapsed under examination, Sukjong had read the trap for what it was — and had used the moment to do what he had been waiting to do for five years.
+
+Queen Inhyeon was restored. Lady Jang was demoted from queen to concubine. The Southerners who had ridden the 1689 reversal into power were stripped from their offices in a single season. The Westerner names that had survived in exile were called back. Nam Guman, who had moderated the original purge from inside the court, was now Prime Minister.
+
+The kingdom had been turned over twice in five years. Sukjong understood, without anyone needing to say it, that the cost of having reversed himself would not be measured in the men who had lost their offices. It would be measured in the provinces, where men who had been careful under the Southerners now had to learn how to be careful in a different direction, and were not yet sure how.
+
+The problems began arriving in late summer, carried by messengers who rode hard from distant provinces and spoke in the measured tones that meant serious trouble.
 
 Sukjong listened to the reports in his private study, away from the council chambers where such news might be shaped by factional concerns before reaching his ears.
 
@@ -22,9 +30,9 @@ Sukjong walked to the window. The palace courtyard was orderly, peaceful, showin
 
 "Are they being watched?"
 
-"Not officially. But the purge created... expectations. Local officials understand that political affiliations are being examined. They have become careful about associations, about correspondence, about anything that might be interpreted as factional activity."
+"Not officially. But two reversals in five years have taught them what affiliation costs. Last time it was the Westerners. This time it is the Southerners. They have no reason to believe there will not be a third. They are acting like men who do not know which direction the next blow will come from, and have decided not to stand anywhere a blow could land."
 
-The unintended consequence. Sukjong had eliminated the Westerner resistance to his authority, but in doing so had made every provincial official afraid to exercise independent judgment. The machinery of government was seizing up from overcaution.
+Sukjong said nothing for a moment. The cumulative cost of his reversals was now visible in the reports on the desk. The machinery of government was not seizing up from one purge. It was seizing up from the lesson the purges had taught.
 
 "How widespread?"
 
@@ -38,7 +46,7 @@ Sukjong turned back to Nam. "What do you recommend?"
 
 "Inspector Yu. He has handled provincial assessments under your father and during the early years of your reign. Steady, not brilliant. The local officials will not fear him as a political weapon and they will not dismiss him as a lightweight."
 
-Sukjong considered. Yu was a known quantity — neither aligned with the purged faction nor a creature of the Southerners. The kind of man whose appointment would not itself provoke another round of paralysis.
+Sukjong considered. Yu was a known quantity — neither a Westerner triumphant in the new arrangement nor a Southerner trying to survive it. The kind of man whose appointment would not itself provoke another round of paralysis.
 
 "He may select his own team."
 
