@@ -13,10 +13,10 @@
 ## BACKGROUND & FORMATION
 
 ### Origins
-- **Birth**: 1655, from a modest provincial family in the Yeongwol region
-- **Father**: Minor scholar-official, serious, principled, not well-connected
-- **Mother**: Practical, literate, aware that her son's mind was unusual
-- **Childhood**: Provincial but not isolated — close enough to a seowon to receive early classical education
+- **Birth**: 1655, from a respectable scholar family in the capital
+- **Father**: Mid-level court official, serious, principled, well-educated but not politically powerful
+- **Mother**: From established yangban lineage, literate, aware that her son's mind was exceptional
+- **Childhood**: Capital-educated, access to the best teachers, early recognition of intellectual brilliance
 
 ### The Childhood Friend
 - A girl from a neighboring household, close since early childhood
@@ -27,10 +27,10 @@
 - The suppression was not dramatic. It was quiet, structural, and permanent — the way a river changes course after a landslide and never returns to the original bed
 
 ### Education and Rise
-- **Provincial exam**: Passed at 16 or 17 — prodigiously young, noted by regional scholars
-- **Sought out Song Si-yeol**: After the provincial exam, traveled to Chungcheong Province where Song Si-yeol was living in exile/retirement (post-1674). Presented himself as a student. Song Si-yeol accepted him — the old scholar recognized the quality immediately
-- **Under Song Si-yeol**: Received the Westerner intellectual tradition directly from its patriarch. Learned that Sejo's usurpation was not merely a historical injustice but a foundational moral problem that the state had never resolved. This became his cause — not as sentiment but as intellectual architecture
-- **The seowon page**: Before leaving for Song Si-yeol, he was the young scholar who found the page in his practice sheets and brought it to his teacher. The teacher's instruction ("do not say that outside this room") was the first layer. Song Si-yeol's teaching was the second: not just the secret, but the framework for how it might one day be corrected
+- **Early distinction**: Recognized for exceptional intellect in capital scholarly circles from youth
+- **Sought out Song Si-yeol**: Traveled to meet the exiled patriarch, presented himself as a serious student. Song Si-yeol accepted him — recognizing rare intellectual quality
+- **Under Song Si-yeol**: Received Westerner intellectual tradition directly from its source. Learned that Sejo's usurpation represented unresolved foundational moral crisis. This became his intellectual framework — not sentiment but systematic analysis
+- **Capital reputation**: Known among serious scholars as one of the most promising minds of his generation
 
 ### Parents' Deaths
 - Father died ~1679, mother ~1682 (approximate — the exact dates matter less than the effect)
@@ -40,23 +40,27 @@
 - He grieved genuinely but the mourning also gave him cover for what he actually wanted: solitude and work
 
 ### The National Exam
-- After mourning, sat for the munkwa (national civil service examination)
-- Passed on the first try — exceptional but not unprecedented for someone of his preparation
-- Song Si-yeol's circle noted him as one of the most promising young scholars of the generation
-- Received an official appointment — minor but positioning him within the capital's scholarly networks
+- Sat for the munkwa at 16 or 17 — prodigiously young
+- **First rank, first attempt** — almost unprecedented intellectual achievement  
+- Song Si-yeol's circle recognized him as generationally exceptional
+- Capital scholarly circles took notice: this was intellectual rarity
+- Received promising official appointment, positioning him within elite networks
 
-### Political Exposure
-- After the Noron-Soron split (1683), his close association with Song Si-yeol marked him factionally
-- Good families hesitated to marry daughters into that risk — brilliance attracted; political exposure repelled
-- By his late twenties he was: parentless, brilliant, politically marked, and socially isolated
-- This was not unhappiness. It was the life he had built, and it fit
+### Political Position After Song Si-yeol's Death (1689)
+- Song Si-yeol's execution made all his students politically toxic
+- Yeong-hak was brilliant, capital-based, and well-known — now dangerous rather than advantageous
+- **The marriage paradox**: Good families admired his intellect but wouldn't risk binding themselves to him
+- **Quality without safety**: Respected by the right minds, avoided by prudent families
+- By his late twenties: brilliant, politically marked, structurally undesirable in conventional marriage market
+- This created availability for an unconventional but meaningful marriage
 
 ## THE MARRIAGE
 
 ### How They Met
-- Through the shared network of provincial seowon scholars connected to Master Kim (Lady Yoon's teacher)
+- Through Master Kim's scholarly network in the capital - both were "difficult" marriage cases
 - He was 30. She was 25. Both impossibly late for Joseon marriage
-- He was the prodigy who had run out of excuses not to marry. She was the educated woman no conventional family wanted
+- He was the brilliant scholar no prudent family would risk their daughter on. She was the educated woman no conventional family wanted
+- **Perfect mutual solution**: Each solved the other's structural problem in the marriage market
 
 ### What Drew Him
 - He noticed her mind before he noticed anything else — and it annoyed him

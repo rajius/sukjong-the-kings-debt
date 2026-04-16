@@ -12,24 +12,27 @@
 
 ## BACKGROUND & FORMATION
 
-### Modest Origins
-- **Birth**: ~1670, from a modest provincial household
-- **Father**: Not military. A provincial civil figure — respectable but not powerful
-- **Childhood world**: Provincial life, ordinary households living under decisions made far away
-- **Early impression**: Government is distant but not unreal; good officials can still matter
+### Yangban Military Background
+- **Birth**: 1670, from a yangban family known more for military service than literary prestige
+- **Father**: Military officer from respectable yangban lineage — solid family but not politically powerful
+- **Childhood training**: Raised among men who trusted the bow first. Learned riding, archery, sword work, and field discipline from early age
+- **Family expectation**: Take the practical, martial path like his father and uncles
+- **His choice**: Chose the civil/classical route instead — disappointment but not rebellion, but the old training never left him
 
-### Education and Rise
-- **Schooling**: Strong classical education through discipline rather than elite connection
-- **Civil exam (munkwa)**: Passed at ~24-25 (~1694-95) — not a prodigy, but solid. Earned through discipline rather than brilliance
-- **Placed in military office**: After passing the civil exam, was assigned to a military posting — a civil official working inside the military apparatus. This is where his body changed. The military environment shaped his hands, his posture, his instincts. The soldier in him comes from the job, not the family
-- **What the posting taught him**: How policy reaches the ground at its roughest — supply shortages, conscription abuses, the gap between what the capital ordered and what actually happened. He saw the state from the bottom
-- **Temperament**: Methodical, patient, physically capable, slow to speak. Reads a room the way a soldier reads terrain — entry points, threats, who's armed. These instincts were learned, not inherited
+### Education and Rise  
+- **Schooling**: Strong classical education, more disciplined than naturally brilliant. Though he chose the brush, he had been raised among men who trusted action over argument
+- **Civil exam (munkwa)**: Passed first attempt at 23-24 (1693-1694) — young enough to impress, but not Yeong-hak-level prodigy
+- **A strong marriage prospect**: Young mungwa passer, respectable yangban background, healthy, capable, real advancement potential
+- **Early assignments**: Even in civil office, his first duties kept putting him where horses, escorts, and armed men were more useful than elegant prose — border logistics, provincial security, administrative work adjacent to military operations
+- **What this experience taught him**: How policy reaches the ground at its roughest — supply shortages, conscription abuses, the gap between what the capital ordered and what actually happened. He saw the state from the bottom, but with the skills to survive it
+- **Temperament**: Methodical, patient, physically capable, slow to speak. Reads a room the way a soldier reads terrain — entry points, threats, who's armed. These instincts were inherited from childhood, then sharpened by experience
 
 ### Why Sukjong Uses Him
-- **Not a typical scholar-inspector**: Most amhaeng-eosa are young civil officials who have never left the capital. Yi Hwon has field experience they lack
+- **Not a typical scholar-inspector**: Most amhaeng-eosa are young civil officials who have never left the capital. Yi Hwon has field experience they lack, and martial competence unusual for scholar-officials
 - **Can handle himself**: Three weeks alone in a hostile province where the local officials might not want him to come back — the typical inspector can read the records but cannot survive the road. Yi Hwon can do both
-- **Reads records AND rooms**: Has the literacy and legal training the role requires, plus the physical instincts to know when a situation is about to turn
-- **Social range**: Can speak to provincial officials, clerks, innkeepers, soldiers, and local elders without sounding theatrical. His military background means he is not condescending to the people the state usually ignores
+- **Reads records AND rooms**: Has the literacy and legal training the role requires, plus the tactical instincts to know when a situation is about to turn. Comfortable with documents and weapons both
+- **Social range**: Can speak to provincial officials, clerks, innkeepers, soldiers, and local elders without sounding theatrical. His military household upbringing means he is not condescending to the people the state usually ignores
+- **Unusual combination**: Scholar's education with soldier's instincts, civil credentials with field competence
 - **Moral usefulness**: Still believes reports should describe what is actually there
 
 ## WHY HE MATTERS IN THE NOVEL
@@ -49,9 +52,20 @@
 - **Yi Hwon**: Begins with belief rather than wound
 - **Effect**: She knows too much to be innocent; he still wants innocence to be possible
 
+### The Two Women: Soonyi vs. Lady Yoon
+- **Soonyi**: Sees the husband and the man together — his market value is part of what draws her, though real feeling develops
+- **Lady Yoon**: Sees the man first, and only later allows the husband — his value does not persuade her, sometimes barely registers
+- **What this means for Yi Hwon**: 
+  - Soonyi confirms his market value (comfortable, predictable)
+  - Lady Yoon tests his actual worth (unsettling, meaningful)
+- **The devastation**: Other women want him partly because he is a strong prospect; Lady Yoon wants him only when he has become unavoidable to her in other terms
+- **The contrast**: Lady Yoon wants him despite not being especially moved by what the capital finds impressive
+
 ### How He Contrasts with the Husband
-- **The husband**: Pure intellect — lean, forgot to eat, lived in his head. A prodigy who saw the Danjong question as a problem to solve through rigorous thought
-- **Yi Hwon**: A body that has been used. Competent but not brilliant. Sees the same questions through practical experience rather than intellectual architecture
+- **Yeong-hak**: Pure intellect — severe, precise, lived in his head. A prodigy who saw the Danjong question as a problem to solve through rigorous thought
+- **Yi Hwon**: Capable in the body as well as the document. Competent but not brilliant. Sees the same questions through practical experience rather than intellectual architecture
+- **Essential distinction**: Yeong-hak was the kind of man a mind remembers first; Yi Hwon is the kind of man a life begins to depend on
+- **Different competences**: Yeong-hak had intellectual rarity; Yi Hwon has physical and tactical skills unusual for a scholar-official
 - **Shared quality**: Moral seriousness — both believe the work matters more than the career
 - **Crucial difference**: The husband was consumed by the system from below; Yi Hwon carries its seal from within
 - **Effect on Lady Yoon**: He is nothing like the man she lost. That is precisely why he reaches her — he is not a reminder, not an echo, not a lesser version of the same type. He is something she has no framework for
@@ -60,9 +74,9 @@
 
 ### Physical Presence
 - **Age**: About 24-28 across the main action (born 1670). First meeting 1694 (age 24). Second meeting 1695 (age 25). Third meeting 1698 (age 28).
-- **Appearance**: Not large, but solid — the body of a man who has carried packs, walked garrison walls, and slept on ground. His hands are not a scholar's hands
-- **Bearing**: Alert, grounded. He occupies space differently from the scholars Lady Yoon has known — not with intellectual authority but with physical certainty. He knows where his body is at all times
-- **Habits**: Keeps orderly notes, handles documents carefully, but also checks exits, watches hands, and sits where he can see the door
+- **Appearance**: Not large, but solid — the body of a man trained from childhood in riding, archery, and sword work. His hands show the calluses of someone who learned the bow before the brush
+- **Bearing**: Alert, grounded. He occupies space differently from the scholars Lady Yoon has known — not with intellectual authority but with physical certainty. Moves like someone who learned to read terrain and threats before he learned to read classical texts
+- **Habits**: Keeps orderly notes, handles documents carefully, but also checks exits, watches hands, and sits where he can see the door. Military household training never left him
 
 ### Social Position
 - **Status**: Minor royal inspector, respectable but not grand
@@ -83,6 +97,7 @@
 - **Travel legitimacy**: He can move openly where she must move indirectly
 - **Male presence**: He can enter institutional spaces closed to her
 - **Credibility**: He can test whether her private suspicions survive contact with official paper
+- **Note**: She values these practical capabilities, not his status or credentials — she needs what he can do, not what he represents
 
 ### What Makes Her Useful to Him
 - **Local memory**: She knows what the records leave out
@@ -93,10 +108,16 @@
 ## PERSONAL LIFE & DEVELOPMENT
 
 ### Relationship with Soonyi
-- **Soonyi**: Born 1674. Merchant family with money, not yangban. Attends elite parties through family wealth. Four years younger than Yi Hwon.
-- **The arrangement**: Her money, his credentials (munkwa passer). Converts merchant wealth into status. Never formally engaged — an understanding, assumed by both families and community.
-- **Compatible temperaments**: Real warmth, comfortable companionship. She knows him. She does not challenge him.
+- **Soonyi's background**: Born 1674. Daughter of wealthy Jongno grain-and-textile merchant who supplies government offices and elite households. Mother from fallen yangban lineage. Rich enough to be useful, polished enough for elite spaces.
+- **The arrangement**: Her father's money and connections, his munkwa credentials. Converts merchant wealth into yangban status. Never formally engaged — an understanding, assumed by both families.
+- **Her emotional progression**: 
+  - **At first**: Clear-eyed about exactly what he is worth — young mungwa passer, respectable background, royal appointment potential. Strategy explains why she notices him.
+  - **By the middle**: Genuinely attached to him for himself. Real warmth, comfortable companionship develops. She comes to want him beyond his market value.
+  - **By the end**: Cannot separate love from advantage. Both feelings are real and intertwined.
+- **The test**: If Yi Hwon lost status, would she still want him? Yes, though with more fear. Her feeling became genuine.
 - **He never initiates**: Every conversation about the marriage comes from her side. He doesn't resist. He doesn't refuse. He just never authors it.
+- **What makes it painful**: She is not a schemer pretending to feel. She is a practical woman whose real feeling grew inside a strategic courtship.
+- **Her "higher prospect"**: After Yi Hwon breaks with her, her father marries her to an older assistant section chief from a better-connected capital yangban family that needs cash. Better house, better political shelter, higher marriage-market value - but older, cooler, less vital than Yi Hwon.
 - **After the memorial (1694)**: He stares at a woman from behind at a capital event — same air as someone he saw. Soonyi asks, he says "she looks familiar." Soonyi identifies the woman, explains she's recently widowed. Passes easily. Files it.
 - **The scholarly turn (1695)**: He starts studying classical texts. Everyone surprised — he had been developing toward physical/military excellence. Soonyi notices.
 - **Soonyi seeks answers**: Older woman, matchmaker, shaman — three consultations, no clear answer. Then overhears about an underground professional service at an elite party. Pays for guidance. Lady Yoon's answer in two sentences: "Connect the dots. Once you get it right, ask for a confirmation."
@@ -159,6 +180,7 @@
 - **Proof of cost**: She makes abstract injustice specific
 - **Proof of endurance**: She has done real work without recognition or protection
 - **Proof of limit**: She shows him how much the state never sees unless forced
+- **Test of actual worth**: Unlike other women, she is not moved by his credentials, status, or prospects — forcing him to discover what he offers beyond market value
 
 ## THE YEONGWOL MISSION
 
@@ -249,7 +271,7 @@
   - The kind of man who changes the temperature of a room with thought alone
   - Capable of the extraordinary mental partnership she once had
 - **But he offers different strengths**: More inhabitable, more responsive, more bodily present, more emotionally generous, harder to lose in daily life - made for life rather than for thought alone
-- **His deepest vulnerability**: Facing someone whose standard is shaped by a rarer kind of man, realizing conventional success cannot compete with intellectual brilliance
+- **His deepest vulnerability**: Facing someone whose standard is shaped by a rarer kind of man, realizing conventional success cannot compete with intellectual brilliance. More devastating: she doesn't care about his market value, so he must discover what he offers when credentials don't matter
 - **His path to irreplaceability**: Not by becoming like Yeong-hak, but by proving his own distinct value
 - **The arc**: From publicly desirable → to privately insufficient → to irreplaceable on his own terms
 
