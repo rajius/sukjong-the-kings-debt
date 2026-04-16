@@ -50,6 +50,20 @@ Sukjong considered. Yu was a known quantity — neither aligned with the purged 
 
 ---
 
+Inspector Yu sat alone in his office that evening with a short list in front of him.
+
+Three names. He had worked with two of them before. The third — Yi Hwon — he had never met, but the report had reached his desk through a man whose judgment he trusted. A junior officer in a military posting who had filed a careful, useless little memorandum about diverted supply quantities. Useless because nothing had been done with it. Careful because nothing in it had been wrong.
+
+Yu had read the memorandum twice. The first time he had noted the precision of the observation. The second time he had noted what was not in it — no excuses, no political framing, no attempt by the writer to position himself for advancement. A man who had described what he saw and let the description stand.
+
+That was rare. That was rarer than it should have been.
+
+He drew a line through the other two names.
+
+He took out paper and wrote the order summoning Yi Hwon to the capital.
+
+---
+
 Two days' ride from the capital, Ok-sun arrived at Lady Yoon's gate without sending word ahead.
 
 That alone was the message. Ok-sun did not travel without reason and did not visit without notice. Lady Yoon poured tea and waited.
