@@ -16,7 +16,9 @@ The one who had invited Song Si-yeol back from exile and then ordered his death.
 
 He had restored a dead king's name, and the restoration was real. It had also cost the living years, husbands, children, futures. Perhaps that was what power was: the authority to decide which wound would be answered in public and which would be left to private houses.
 
-And yet some part of her still wanted to imagine a better arrangement of the world. One in which setting one thing right did not require the breaking of something else. One in which justice did not arrive carrying fresh damage in its hands. If such a world existed, it had not been made for their generation.
+And yet some part of her still wanted to imagine a better arrangement of the world: one in which setting one thing right did not require the breaking of something else, one in which justice did not arrive carrying fresh damage in its hands. If such a world existed, it had not been made for their generation.
+
+Once, she would have carried a thought like this home and heard it made sharper in reply.
 
 She absorbed what she could. She would only see him once.
 
