@@ -36,11 +36,9 @@ Sukjong looked at him carefully. Nam's expression revealed nothing, but his pres
 
 "The Westerners will be removed from office. Their students will be questioned. Their networks will be examined." Nam paused. "There are scholars in the provinces whose work has been...noticed."
 
-The formula sat in Sukjong's private chest, written in his own hand, dependent on the very faction that was now forcing this choice. To support Lady Jang's son was to destroy the only political group that might have carried forward the restoration of Prince Danjong.
+Sukjong thought of the chest where the formula waited, written in his own hand, in the faction's intellectual register, on the assumption of their continued power.
 
-But to bow to the court's will on the succession was to accept that the crown served at the pleasure of the nobility, not the other way around.
-
-"Summon the council," Sukjong said. "I will announce my decision."
+"Summon the council," he said.
 
 ---
 
@@ -100,7 +98,7 @@ One evening, she found Yeong-hak at his desk with ink and brush but no paper. He
 
 "Master Yi. But his nephew came by this afternoon. Master Yi thinks correspondence with the capital has become... inadvisable."
 
-She understood. The network was not being destroyed. It was being pruned, contact by contact, until what remained was too small to threaten anyone and too isolated to accomplish anything.
+She set the brush back in its holder. There was nothing to say.
 
 Three days later, a letter arrived that did not fit the pattern.
 
@@ -128,9 +126,9 @@ Outside, the palace was settling into the new order. The kingdom was stable. The
 
 ---
 
-In the days that followed, Yeong-hak worked with a different quality of attention.
+In the days that followed, Yeong-hak burned more than he wrote.
 
-He completed documents that had been in progress for months. He organized papers that had accumulated in careful stacks. He burned others that she had never seen before. The work continued, but it felt like conclusion rather than continuation.
+He completed documents that had been in progress for months. He organized papers in stacks that no longer accumulated. The brush moved less. The brazier was lit every evening, even when the room did not need warming.
 
 She did not ask about the letter. She did not mention that she had seen it. But she watched him make choices that suggested he understood the warning it contained.
 
