@@ -56,6 +56,8 @@ The story was smooth as polished stone. Too smooth.
 
 "Where did this illness overtake him?"
 
+The tightening returned as she asked. She kept her hands folded in her lap and her face composed.
+
 "On the mountain road, perhaps half a day's journey from Wonju. A difficult place to provide proper care."
 
 "Who was with him?"
