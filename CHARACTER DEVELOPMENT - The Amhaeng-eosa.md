@@ -253,6 +253,21 @@
 - **His path to irreplaceability**: Not by becoming like Yeong-hak, but by proving his own distinct value
 - **The arc**: From publicly desirable → to privately insufficient → to irreplaceable on his own terms
 
+### The Essential Distinction
+- **Yeong-hak is the kind of man a mind remembers first**
+- **Yi Hwon is the kind of man a life begins to depend on**
+
+**For Lady Yoon specifically:**
+- Yeong-hak was rarer; Yi Hwon is easier to live beside
+- Yeong-hak made thought sharper; Yi Hwon makes existence steadier  
+- Yeong-hak could answer a question completely; Yi Hwon stays when the question has no answer
+
+**Lady Yoon's internal formulation:**
+- "Yeong-hak had been the rarer mind. Yi Hwon was the more inhabitable man."
+- "One made the world more exact. The other made it more bearable."
+
+**This protects both marriages**: Neither man is lesser, both offer irreplaceable but different forms of value
+
 ## VALIDATION TESTS
 
 For any scene with Yi Hwon, ask:
