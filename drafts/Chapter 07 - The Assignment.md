@@ -60,7 +60,9 @@ That was rare. That was rarer than it should have been.
 
 He drew a line through the other two names.
 
-He took out paper and wrote the order summoning Yi Hwon to the capital.
+He took out paper and wrote the order. The order said little — only that Yi Hwon was reassigned from his garrison and was to report to the office of Inspector Yu in the capital within the month, for instructions concerning a provincial assessment.
+
+The actual instructions Yu would give in person. The road work could not be put on paper. The men who would carry the order would also read it.
 
 ---
 
