@@ -26,6 +26,8 @@ He kissed her forehead. "Three days. Four at most if the roads are bad."
 
 She watched him walk to the gate, then turn to wave once before disappearing down the path toward the main road. The gesture was automatic, performed without thought, the way married people say goodbye when they expect to say hello again soon.
 
+When she turned back to the house, something low in her belly tightened — small, brief, easy to mistake for the weight of a worry she had not put into words. By midday it had not eased. She walked to the physician's house in the late afternoon and walked home before dark. She told no one. There was no one to tell. He would be back in three days, four at most.
+
 It was the last time she saw him alive.
 
 ---
@@ -83,6 +85,8 @@ The color of his face was wrong for someone who had died of sudden fever. Too pa
 And there was a mark on his neck, small and dark, that could have been many things but looked most like a bruise from pressure applied in the wrong place for healing.
 
 She thanked the men who had brought him home. She made the proper arrangements for burial. She received the condolences of neighbors and prepared the household for mourning. She did everything that was expected of a widow who had received the body of her husband.
+
+That night her body did something she did not understand. The same low tightening from the morning he had left, but stronger now, lasting longer, and accompanied by a wetness she could not at first identify. She attributed it to grief. Bodies, she had heard women say, sometimes broke open after a great loss. She washed and changed her clothes and slept badly.
 
 And at night, alone with the certainty that everything she had been told was a lie, she began to plan what she would do about it.
 
