@@ -242,13 +242,16 @@
 - **Chapter 13**: Political impossibility despite personal readiness
 - **Chapter 14**: Shared witness and conscious choice despite systemic contamination
 
-### Yi Hwon's Deepest Vulnerability
-- **He is objectively desirable in his world**: Military background, civil exam success, royal appointment, physical capability
-- **He knows it**: Other women confirm his attractiveness and competence
-- **But Lady Yoon measures him against a dead man of unusual brilliance**: Yeong-hak's munkwa essay, Song Si-yeol's student, intellectual sophistication Yi Hwon cannot match
-- **This doesn't mean she dislikes him**: But her standard is shaped by a rarer man
-- **Yi Hwon must live in the shadow of someone he cannot outdo on those terms**: No amount of physical courage, official success, or conventional attractiveness can compete with extraordinary intellectual partnership
-- **This creates his most human wound**: He faces something he cannot overcome through his usual strengths, forced to find different ground on which to prove his worth
+### Yi Hwon's Character Arc: From Public to Private Worth
+- **Publicly desirable**: Military background, civil exam success, royal appointment, physical capability. Other women confirm his attractiveness and competence
+- **Privately insufficient**: Lady Yoon measures him against Yeong-hak's intellectual rarity. Yi Hwon is not:
+  - Intellectually singular like Yeong-hak
+  - The kind of man who changes the temperature of a room with thought alone
+  - Capable of the extraordinary mental partnership she once had
+- **But he offers different strengths**: More inhabitable, more responsive, more bodily present, more emotionally generous, harder to lose in daily life - made for life rather than for thought alone
+- **His deepest vulnerability**: Facing someone whose standard is shaped by a rarer kind of man, realizing conventional success cannot compete with intellectual brilliance
+- **His path to irreplaceability**: Not by becoming like Yeong-hak, but by proving his own distinct value
+- **The arc**: From publicly desirable → to privately insufficient → to irreplaceable on his own terms
 
 ## VALIDATION TESTS
 
