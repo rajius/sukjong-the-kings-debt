@@ -98,7 +98,7 @@ He could not have both.
 
 A king who restored a dead boy at the cost of his living son was not a king. A king who abandoned the dead boy for a smooth succession was not the king he had spent twenty years preparing to become.
 
-The cause he had carried since he was thirteen — the boy in the mountain, the river, the hand that had pulled him out of the cold at fifteen — would have to wait until he could find a way to be both kinds of king at once. He did not yet know if such a way existed.
+The cause he had carried since he was thirteen — the boy in the mountain, the tutor's lesson, the empty chair where Song Si-yeol should have sat the morning after his coronation — would have to wait until he could find a way to be both kinds of king at once. He did not yet know if such a way existed.
 
 ---
 
@@ -122,7 +122,7 @@ He set the brush down. His hand shook slightly. He pressed it flat against the d
 
 He had become the man Nam had been. He had become the voice that said *not yet.* He had spent five years arguing himself into the position he had once despised. There was no one in the room to argue him out of it. There was no one in the room at all.
 
-This was his cause. The boy in the mountain had been his since he was thirteen, since the tutor's lesson, since the cold water at fifteen. The arithmetic was his. The formula in his handwriting was his. The decision to file it away was his. And there was no one to make him do it and no one to forgive him for it.
+This was his cause. The boy in the mountain had been his since he was thirteen, since the tutor's lesson, since Song Si-yeol's empty chair the morning after his coronation. The arithmetic was his. The formula in his handwriting was his. The decision to file it away was his. And there was no one to make him do it and no one to forgive him for it.
 
 The hand that had shaken was not shaking because the decision was hard. It was shaking because the decision was his.
 
