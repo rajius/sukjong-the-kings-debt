@@ -32,7 +32,7 @@ It was the last time she saw him alive.
 
 ---
 
-The first day, she worked in the garden and caught up on correspondence. The second day, she reorganized the kitchen stores and mended clothes. On the third day, when he should have returned, she cleaned the study and prepared the ink he would need for the evening's work.
+The first day, she rested. She brewed the herbs the physician had given her and drank them slowly through the morning, and caught up on correspondence in the afternoon when the tightening had eased. The second day, she felt strong enough to reorganize the kitchen stores and mend clothes, though she still kept the herbs at hand. On the third day, when he should have returned, she cleaned the study and prepared the ink he would need for the evening's work.
 
 By the fourth day, the silence had weight.
 
