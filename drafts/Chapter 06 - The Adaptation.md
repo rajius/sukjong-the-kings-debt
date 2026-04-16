@@ -24,7 +24,7 @@ Scholar Pak signed it without reading it closely.
 
 Within a month, she was writing in three voices, and she knew the method had a short life.
 
-The next letter was addressed to her late husband. The correspondent in Gangwon was asking about burial site progress — specific enough to suggest real research, not idle curiosity. She studied Yeong-hak's previous letters until she could replicate his scholarly formality. The reply acknowledged the inquiry and redirected it toward safer sources.
+The next letter had been sent to her husband's old capital address and forwarded on by someone who still knew where she had gone. The correspondent in Gangwon was asking about burial site progress — specific enough to suggest real research, not idle curiosity. He did not know Yeong-hak was dead. She studied her husband's previous letters until she could replicate his scholarly formality. The reply acknowledged the inquiry and redirected it toward safer sources.
 
 Scholar Pak signed it readily. "Master Kim mentioned that you had assisted with scholarly correspondence. Your husband must have valued your education."
 
