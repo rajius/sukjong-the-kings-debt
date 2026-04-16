@@ -38,7 +38,7 @@ She sent a message through the network—a careful inquiry to a contact in Wonju
 
 *Your husband's research was concluded successfully. He departed as planned. No complications observed.*
 
-The phrasing was wrong. Their contact in Wonju was a retired scholar who wrote in classical, elaborate sentences. This message was brief, modern, careful. Someone else had written it using the contact's name.
+The phrasing was wrong. Their contact in Wonju was a retired scholar who wrote in classical, elaborate sentences. This message was too clipped, too bureaucratically tidy. Someone else had written it using the contact's name.
 
 She burned the message and waited.
 
@@ -88,7 +88,7 @@ And at night, alone with the certainty that everything she had been told was a l
 
 ---
 
-She tried to reach their provincial contacts first. Simple messages, carefully phrased, sent through the remaining channels that might still be secure. The responses, when they came at all, were wrong in the same way the first message had been wrong: brief, modern, careful.
+She tried to reach their provincial contacts first. Simple messages, carefully phrased, sent through the remaining channels that might still be secure. The responses, when they came at all, were wrong in the same way the first message had been wrong: too plain, too carefully neutral.
 
 One by one, the contacts fell silent. Not hostile, not threatening. Simply absent, as if they had never existed.
 
@@ -106,17 +106,17 @@ She helped him into the house and prepared tea while he settled himself carefull
 
 "They killed him," she said finally.
 
-"Yes."
+Master Kim was quiet for a long time. "I believe so."
 
 "You know who."
 
-"I know some of it. Not all." Master Kim's voice was thin but steady. "What I know, I will give you. What I cannot know, you will have to discover."
+"I know fragments. Pieces." His voice was thin, tired. "The network has been... dismantled. Much of what we knew is gone."
 
-He reached into his travel bundle and withdrew a wrapped package that she recognized as containing documents. But instead of the careful, coded materials she was used to, these papers felt different—urgent, essential, final.
+He reached into his travel bundle and withdrew a small wrapped package. His hands shook slightly as he placed it on the table.
 
-"The archive," he said, placing it on the table between them. "Everything your husband was working toward. Everything we have learned about the burial sites, the records, the people responsible for keeping the memory alive." He looked at her directly. "And the people responsible for keeping it buried."
+"What I could save," he said. "Much was lost when they came through the network. But this... this your husband made sure I could reach."
 
-She unwrapped the package. Inside were maps, correspondence, lists of names and locations, copies of official documents, and personal notes in handwriting she recognized as belonging to scholars who had been part of the network for decades. It was comprehensive, systematic, and dangerous.
+She unwrapped the package. Inside were a few maps, some correspondence, fragments of lists. Not the comprehensive archive she might have expected, but pieces—enough to suggest the shape of what had been larger.
 
 "Why are you giving this to me?"
 
@@ -124,38 +124,32 @@ She unwrapped the package. Inside were maps, correspondence, lists of names and 
 
 Master Kim reached into his bundle again and withdrew a single sheet of paper, folded small and worn from handling.
 
-"This was found among your husband's belongings when they searched his rooms in Wonju. They did not recognize its significance, but I did." He unfolded the paper and placed it before her.
+"This was found among your husband's belongings. They overlooked it." He unfolded the paper carefully.
 
-It was a fragment of correspondence, written in a formal hand she did not recognize. Only a portion remained, but the visible text was enough: *...the documentation work must be stopped before it reaches the capital. The connection to Song Si-yeol's students makes it politically dangerous, but the real concern is what they might discover about the original orders...*
+It was a fragment of correspondence, torn and partial. Only the bottom portion remained: *...before it reaches the capital. Song Si-yeol's students... politically dangerous... what they might discover...*
 
-The letter was unsigned, but at the top, in a different hand, someone had written: *For Minister Yi Saek, urgent.*
+The rest was missing, the characters broken and incomplete. At the top corner, barely visible, was part of an official seal with characters too damaged to read clearly.
 
-She stared at the name. Yi Saek—the same man who had spoken in council about problematic scholarly activities in the provinces. The same man who had suggested that some research was more beneficial than others.
+"What does this tell us?"
 
-"He ordered this?"
+"That someone wanted it stopped." Master Kim's hands shook as he refolded the paper. "Someone with... with authority to reach into the provinces."
 
-"He was involved. How directly, I do not know. But this connects your husband's death to someone in the capital who has the authority to make such orders and the reach to carry them out."
+Lady Yoon held the fragment carefully. It was evidence of something, though what exactly remained unclear.
 
-Lady Yoon folded the paper carefully and held it in her hands. It was thin, fragile, and incomplete. But it was evidence. It was a name. It was a direction to follow.
+"Why bring this to me?"
 
-"What do you expect me to do with this?"
+Master Kim looked at her with exhaustion that went deeper than the journey. "Because you are what remains. Because the work..." He paused, seeming to lose his thread. "Because someone should know."
 
-Master Kim looked at her with the same expression he had worn when she had challenged him about Duke Xiang's consultation—measuring, recalculating, arriving at a conclusion.
-
-"I expect you to finish what your husband started. I expect you to find out who ordered his death and why. And I expect you to use what you learn to honor the memory he died trying to preserve."
-
-He stood slowly, gathering his walking stick and empty bundle.
-
-"The network is yours now. The contacts that remain, the safe houses, the methods of communication. Use them carefully. Trust no one completely. And remember that the people who killed your husband know that the work continues, but they do not yet know who is doing it."
+He gathered his walking stick slowly. "Be careful. They know the work continues. They may not know who."
 
 After he left, Lady Yoon sat alone in the main room with the archive spread before her and the fragment of correspondence in her hands. Outside, winter was settling over the mountains, and the house felt larger and emptier than it had when she had shared it with a living husband.
 
-But the study was no longer his domain. The desk was no longer his responsibility. The work was no longer his burden to carry.
+The study door stood open. The desk waited, no longer forbidden territory but not yet claimed.
 
-The doorway that had kept her on the other side of dangerous knowledge had been removed by the same people who had removed the man who once sat behind it. She was on the inside now, not by invitation but by inheritance. Not by choice but by necessity.
-
-She looked at the fragment again, reading the partial text that connected her husband's death to a minister in the capital. It was not enough to prove anything in a court of law. But it was enough to begin the investigation that would eventually—she was certain of this with a clarity that surprised her—find its way to the truth.
+She looked at the fragment again, reading the broken characters that suggested her husband's death had been ordered by someone with authority. It was not enough to prove anything. But it was a beginning. A direction to turn toward.
 
 She folded the paper and placed it in the desk where Yeong-hak had once kept his most dangerous documents.
 
-Then she began to read the archive, starting with the maps that showed where the forgotten dead were buried and ending with the list of names of people who did not want those graves to be found.
+The work had killed him. Now it was hers to carry, though she did not yet know what carrying it would cost, or whether she had the strength to bear what he had borne.
+
+She began to read the archive, starting with the maps that showed where the forgotten dead were buried.
