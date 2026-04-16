@@ -54,15 +54,11 @@ Nam's expression tightened almost imperceptibly. "The queen's favor continues to
 
 They sat in silence. Through the window, Sukjong could see the spring light falling across the palace walls, the same light that had fallen on these same walls when Sejo made his choice, when Danjong died in exile, when Scholar Kim first asked his careful questions about the boy's grave.
 
-"There is another consideration," Nam said. "The debt to Wanli."
+"There is another consideration," Nam said. "Wanli's armies saved this dynasty. If the emperor who preserved us could restore his wronged nephew while we fail to restore ours, that is more than a missed precedent."
 
-"Explain."
+Sukjong understood. The Ming debt was real and would outlast them all. To ignore Wanli's example was its own kind of disloyalty.
 
-"Joseon owes its survival to the Ming intervention in the Japanese invasions. Wanli's armies saved this dynasty. If the Wanli Emperor could restore his wronged nephew while we fail to restore ours, what does that say about our gratitude? About our moral standing?"
-
-Sukjong had not considered this angle. The debt to China was real, profound, and would endure for generations. To ignore a precedent set by the emperor who had preserved Korea's independence was more than a missed opportunity. It was a form of ingratitude.
-
-"So we have both the moral foundation and the political precedent."
+"So we have the moral foundation and the precedent."
 
 "Yes. And we may have neither for much longer."
 
@@ -84,21 +80,17 @@ Sukjong looked around the council table. Half the faces were familiar, men who h
 
 "Of course, Majesty. But perhaps some research is more beneficial than others."
 
-When the council ended, Sukjong remained alone in the chamber, staring at the empty chairs around the table that no longer held the men who might have supported what he had written in private.
+When the council ended, Sukjong remained alone in the chamber, staring at the empty chairs around the table.
 
-The Southerners had a question he could not answer. *Your Majesty, do you wish your descendants to be free to make the same judgment about you that you propose to make about your ancestor?* He could imagine the voice. Polite. Reasonable. Once you established that ancestral judgment was acceptable, you licensed your own children to judge you.
+The Southerners had a question he could not answer. *Your Majesty, do you wish your descendants to judge you the way you propose to judge your ancestor?* Polite. Reasonable. Devastating.
 
 And there was the other thing.
 
-The queen had not given him a son. Eight years of marriage and her body had stayed quiet. Jang Hui-bin's body had not. The child she carried — a son, the physicians were certain — would be born before winter. Sukjong wanted the boy. He could not pretend otherwise.
+Jang Hui-bin's body had not stayed quiet the way the queen's had. The child she carried — a son, the physicians were certain — would be born before winter. Sukjong wanted the boy. He could not pretend otherwise.
 
-But the women were not just women. They were factional flags. The queen was the Westerners' standard. Jang Hui-bin was the Southerners' instrument. The same Westerners who would carry the Danjong restoration were the faction whose wound, when he chose Jang Hui-bin's son, would not survive.
+But the women were factional flags. The queen was the Westerners' standard. Jang Hui-bin was the Southerners' instrument. The faction that would carry the Danjong restoration was the faction he would have to destroy to seat his own son.
 
 He could not have both.
-
-A king who restored a dead boy at the cost of his living son was not a king. A king who abandoned the dead boy for a smooth succession was not the king he had spent twenty years preparing to become.
-
-The cause he had carried since he was thirteen — the boy in the mountain, the tutor's lesson, the empty chair where Song Si-yeol should have sat the morning after his coronation — would have to wait until he could find a way to be both kinds of king at once. He did not yet know if such a way existed.
 
 ---
 
