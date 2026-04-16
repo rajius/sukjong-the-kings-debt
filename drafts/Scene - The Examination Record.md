@@ -16,9 +16,13 @@ He found him in the second volume. First-attempt pass. Song Si-yeol's student.
 
 Yi Hwon's hand stopped on the page. He had sat for the munkwa himself. He knew what a first-attempt pass meant.
 
-He read the submission. The essay was on governance — the obligations of rulers during periods of institutional strain. Most candidates hedged. They balanced perspectives to protect themselves from factional blowback.
+He read the submission. The essay title was written in precise calligraphy: "There is no arrangement by which correction may be made free of cost."
 
-Lady Yoon's husband had not hedged. Every sentence carried weight. He argued that governance failed not when rulers were weak but when institutional structures permitted rulers to avoid accountability. He cited the Spring and Autumn Annals with the kind of close reading that suggested he had argued with them and won.
+Most candidates hedged. They balanced perspectives to protect themselves from factional blowback.
+
+Lady Yoon's husband had not hedged. Every sentence carried weight. He argued that rulers who promised to restore justice without acknowledging its price deceived both themselves and their subjects. That institutional wounds, once opened, could not be healed without creating new injuries elsewhere. That the wise ruler's task was not to avoid this cost, but to choose carefully which damage would be borne by whom.
+
+He cited the Spring and Autumn Annals with the kind of close reading that suggested he had argued with them and won.
 
 They passed him. First attempt.
 
