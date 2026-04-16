@@ -32,108 +32,42 @@ The unintended consequence. Sukjong had eliminated the Westerner resistance to h
 
 Sukjong turned back to Nam. "What do you recommend?"
 
-"An inspection. Someone with authority to clarify which activities are acceptable, which officials are performing adequately, which concerns are legitimate." Nam's expression was careful. "But it would need to be someone whose loyalty is unquestioned. Someone who can make judgments without political constraints."
+"A formal inspection. Someone with rank enough to clarify expectations, settle disputes on the spot, and remove officials whose caution has become obstruction." Nam's expression was careful. "Open authority, not covert. The provinces need to see the king's will, not suspect it."
 
-The suggestion hung in the air between them. A secret royal inspector—an amhaeng-eosa—sent to assess the provinces with full royal authority but without the formal apparatus that might create additional anxiety.
+"Who?"
 
-"Who would you recommend?"
+"Inspector Yu. He has handled provincial assessments under your father and during the early years of your reign. Steady, not brilliant. The local officials will not fear him as a political weapon and they will not dismiss him as a lightweight."
 
-Nam reached into his satchel and withdrew a personnel record. "Yi Hwon. Military family, solid education, passed the civil examinations at a respectable rank. No factional affiliations that would complicate his assessments."
+Sukjong considered. Yu was a known quantity — neither aligned with the purged faction nor a creature of the Southerners. The kind of man whose appointment would not itself provoke another round of paralysis.
 
-Sukjong reviewed the file. Yi Hwon was young enough to be energetic, old enough to command respect. His background suggested competence without brilliance—exactly what was needed for sensitive work that required good judgment rather than intellectual innovation.
+"He may select his own team."
 
-"His experience?"
+"He will. He keeps a small group he has worked with before. He will want one or two younger men for the road work — someone who can move through provinces without being recognized, talk to merchants and clerks without ceremony."
 
-"Three years in the Ministry of Justice, two in provincial tax administration. He understands both central and local government operations. More importantly, he has no connections to the political networks that were disrupted by the purge."
+"That part of the assessment is the part I want."
 
-Perfect, in other words. A man who could assess the provinces without being suspected of serving hidden agendas.
-
-"Summon him."
+"He understands. He has someone in mind."
 
 ---
 
-Yi Hwon arrived at the palace the following afternoon, precisely on time and appropriately dressed for a formal audience. Sukjong studied him while Nam made the introductions: steady bearing, alert expression, the kind of controlled attention that suggested military training tempered by scholarly discipline.
+Two days' ride from the capital, Ok-sun arrived at Lady Yoon's gate without sending word ahead.
 
-"You have been observing provincial administration," Sukjong said without preamble.
+That alone was the message. Ok-sun did not travel without reason and did not visit without notice. Lady Yoon poured tea and waited.
 
-"Yes, Majesty. In my previous assignments."
+"Three families this week," Ok-sun said. "Polite men. They asked about gatherings, about correspondence, about the seowon. Nothing that could be called accusation. They did not name what they were looking for. They did not have to."
 
-"What do you observe now?"
+"Local?"
 
-Yi Hwon was quiet for a moment, organizing his thoughts. "Hesitation, Majesty. Local officials are seeking approval for decisions they have the authority to make independently. They seem concerned about being judged for their choices."
+"No. They asked the kind of questions someone in the capital had told them to ask. The phrasing was the same in two of the houses." Ok-sun paused. "I would not have come if it were one. Three is a pattern."
 
-Direct answer, no elaboration. Sukjong appreciated precision.
+Lady Yoon set the teapot down. "And who has heard?"
 
-"And your assessment of why this is happening?"
+"Everyone who matters. Quietly. Some of the women I know are already burning what they should not have kept."
 
-"The recent changes in court have made everyone cautious about political associations. Local officials are not certain which kinds of activities might be interpreted as factional. They are erring toward excessive consultation rather than risking independent action."
+After Ok-sun left, Lady Yoon sat at the desk for a long time. The investigators were not from the prefecture. The questions were too consistent for that. Someone in the capital had decided to look more carefully at scholarly research connected to the recent purge — and had begun the looking through people who did not announce themselves.
 
-"Which creates administrative delays."
+She did not yet know who was doing the asking. She did not know whether the asking was a probe or an opening move. She only knew that it had begun.
 
-"And commercial disruptions, and social tensions, and a general sense that the government is not functioning reliably." Yi Hwon's tone remained respectful but matter-of-fact. "The paralysis is spreading."
+She began composing letters in her head — to the women, to the contacts in the further provinces, to the one or two former students who had survived and were quietly reachable. The next round of warnings would have to be sent by morning.
 
-Sukjong exchanged a glance with Nam. Yi Hwon had identified the problem clearly and without diplomatic evasion.
-
-"What would you recommend?"
-
-"Clarification, Majesty. Local officials need to understand what is expected of them, what activities are acceptable, what kinds of judgment they are trusted to exercise." Yi Hwon paused briefly. "They need to see that competent administration is valued more than political caution."
-
-"And how would you provide such clarification?"
-
-"Direct observation. Visit the provinces, assess local operations, identify what is working and what is not. Provide guidance to officials who are uncertain, support to those who are performing well, and correction to those who are not."
-
-The answer was thorough, practical, and demonstrated understanding of both the administrative and political dimensions of the problem.
-
-"You would be prepared to undertake such an assignment?"
-
-"Yes, Majesty."
-
-Sukjong made his decision. "You will be assigned to conduct a preliminary assessment of provincial administration in the affected areas. Your mission is to observe local operations, identify specific problems, and recommend solutions."
-
-Yi Hwon bowed deeply. "I am honored by Your Majesty's confidence."
-
-"Nam will provide you with the specific provinces to be examined and the proper credentials for your assignment. You will report directly to me, and your findings will inform how we address these administrative difficulties."
-
-"Understood, Majesty."
-
-As Yi Hwon prepared to leave, Sukjong added one final instruction. "You will observe carefully. Commercial disruptions, social tensions, any patterns that might explain the administrative difficulties we are seeing."
-
-"Yes, Majesty."
-
-After Yi Hwon left, Sukjong remained in his study with Nam, contemplating the commission they had just issued.
-
-"He may discover more than administrative problems," Nam said quietly.
-
-"Perhaps."
-
-"The provincial networks that survived the purge may still be active. Operating differently now, but not gone."
-
-Sukjong nodded. The elimination of the Westerner faction had not eliminated all resistance to royal authority. It had simply forced such resistance underground, into new methods and new forms of organization.
-
-"If Yi Hwon's assessment reveals broader patterns, we will consider what additional authority he might require."
-
-"And then?"
-
-Sukjong walked to the wooden chest where he kept his private documents. Inside lay the formula he had written years earlier, the solution to a problem that had haunted the dynasty for two centuries. The political circumstances that might have implemented it were gone, destroyed by his own actions.
-
-But perhaps, if the provincial situation was as complex as he suspected, there might be new circumstances. Different opportunities. Alternative approaches to questions that had never truly been resolved.
-
-"Then we will have information we can use."
-
----
-
-In a house two days' ride from the capital, Lady Yoon sat in the early evening light, reviewing correspondence that had arrived through her transformed network.
-
-Three more families had received unofficial warnings about genealogical research. A merchant in the county seat had been questioned about his customers' interests in historical texts. Two women who had attended her recent gathering had been visited by men who asked polite questions about their activities at the seowon.
-
-The pattern was clear: someone was systematically investigating anyone who might be connected to research into the Prince Danjong period. The investigation was thorough, but it was also careful—no official accusations, no formal proceedings, just enough pressure to discourage continued activity.
-
-But pressure applied broadly often revealed as much as it concealed. Lady Yoon had begun to map not only who was being investigated, but who was conducting the investigation. The questions were too consistent, too well-informed, to be the result of local initiative. Someone with authority and resources was coordinating the effort.
-
-She folded the letters and placed them in the desk where Yeong-hak had once kept his most dangerous documents. Tomorrow she would need to decide how to respond to the escalating surveillance.
-
-And somewhere, she knew, decisions were being made in the capital that would determine whether the work her husband had died for would survive or be destroyed entirely.
-
-The network had adapted once. It might need to adapt again.
-
-Outside, the spring evening was settling over the mountains, peaceful and ordinary. Inside, Lady Yoon prepared to discover what new kinds of danger were approaching from directions she had not yet learned to recognize.
+She drew a sheet of paper toward her and ground the ink.
