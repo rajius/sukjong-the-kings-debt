@@ -122,17 +122,9 @@ But when she went to bed, she heard him remain in the study longer than usual. A
 
 ---
 
-In his private study, two days' ride from the provincial house where a scholar sat with a warning letter, King Sukjong opened the wooden chest where he kept his personal documents.
+In his private study, Sukjong opened the wooden chest. The formula was there, written in his own hand. He folded it and returned it to the chest.
 
-The formula was there, written in his own hand, dated from the autumn when everything had still seemed possible. The solution to a problem that had haunted the dynasty for two centuries, rendered useless by the political storm he had chosen to unleash.
-
-He read the document again, noting how optimistic the language seemed now, how dependent on circumstances that no longer existed. The Westerner faction that might have carried the restoration forward was gone. The scholars who had been mapping burial sites were being hunted. The careful work of decades was being undone by the machinery he had set in motion.
-
-He folded the formula and returned it to the chest.
-
-Outside, the palace was settling into the new order: Southern ministers in positions that had been held by Westerners, new voices in council meetings, different balances of power and influence. The kingdom was stable. The succession was secure. The crown's authority had been preserved.
-
-And somewhere in a provincial study, a scholar who had once served the cause Sukjong could no longer support was burning papers by lamplight, unaware that the king who had destroyed his faction had also written the answer to their common question.
+Outside, the palace was settling into the new order. The kingdom was stable. The succession was secure. The crown's authority had been preserved.
 
 ---
 
@@ -142,22 +134,10 @@ He completed documents that had been in progress for months. He organized papers
 
 She did not ask about the letter. She did not mention that she had seen it. But she watched him make choices that suggested he understood the warning it contained.
 
-When he worked late into the night, she ground his ink and trimmed his brushes as she always had. When he paused to consider a difficult passage, she offered the kind of practical observation that helped him think through the problem. When he sealed documents and placed them in the desk compartment, she was there to hand him the wax he needed.
-
-But she said nothing about what she had read. And he said nothing about what he clearly believed was coming.
+When he worked late into the night, she ground his ink and trimmed his brushes as she always had. When he sealed documents and placed them in the desk compartment, she was there to hand him the wax he needed.
 
 ---
 
-In the royal palace, Sukjong sat alone with the wooden chest open before him. Inside lay the formula written in his own hand, the solution to a problem that had haunted the dynasty for two centuries. The answer was complete. The political circumstances that might have implemented it were gone.
-
-He closed the chest and locked it.
-
-In a provincial house, Lady Yoon lay awake in the dark. Beside her, Yeong-hak breathed with the even rhythm of sleep. In the study down the corridor lay the warning letter he had received and read but had not told her about.
-
-She had read it too, without his knowledge. The letter that said someone in the capital wanted his work stopped. The letter that mentioned his name specifically. The letter that suggested what would happen if the work continued.
+That night Lady Yoon lay awake in the dark. Beside her, Yeong-hak breathed with the even rhythm of sleep.
 
 She knew what he knew. He did not know that she knew it.
-
-In the morning, she would prepare his tea and ask about his plans for the day. He would answer as he always did, careful and considerate. Neither of them would mention the letter that had changed everything.
-
-Both of them understood that some knowledge was too dangerous to share, even with the person sleeping beside you.
