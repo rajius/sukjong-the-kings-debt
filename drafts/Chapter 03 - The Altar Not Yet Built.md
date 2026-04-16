@@ -20,45 +20,27 @@ They were in the king's private study three days later, the volume open between 
 
 "The parallel is exact," Sukjong said.
 
-"Yes."
+Scholar Yoon was quiet for a long moment. "Yes. But Majesty should consider what the Ming court was like when Wanli made this choice."
 
-"Wanli's uncle took the throne from a child. Two hundred years later, Wanli restored the child's name without condemning the uncle." Sukjong touched the marked page. "Both were called legitimate."
+"Explain."
 
-"The Ming solved the problem we have been unable to solve."
-
-Sukjong stood and walked to the window. The palace courtyard stretched below, orderly and quiet. "What does the shrine look like now?"
-
-"Larger. Prince Jianwen has his own altar beside his uncle's. The inscription reads: *Two branches of the same root, both nourished by Heaven's mandate.*"
-
-"And the people accepted this?"
-
-Scholar Yoon was quiet for a moment. "The people understand that emperors may be tested by circumstances beyond their choosing. A child-emperor who falls to a usurper and a regent who claims the throne to prevent chaos may both be acting within the will of Heaven."
-
-Sukjong turned back to the room. "A child-king who loses his throne to his uncle, and an uncle who takes it to preserve the dynasty."
-
-"The shape is identical."
-
-"Then why has no one presented this solution before?"
-
-"Because, Majesty, we had not yet found a way to honor the victim without condemning the ancestor."
+"Stable. Prosperous. Wanli had ruled for thirty years. He could afford to be generous with the past." Scholar Yoon's expression was careful. "Our court is not the Ming court of that time."
 
 ---
 
-Nam Guman arrived the following month, travel-worn and carrying the formal case that meant he bore documents requiring immediate attention.
+Nam Guman arrived the following month, travel-worn and carrying news that showed in his face before he spoke.
 
-"The formula," he said, settling into his chair in the private study. "You have it."
+"The Southerners are moving faster than expected," he said, settling into his chair. "They know something significant is being prepared. They are asking questions."
 
-Sukjong placed the Chinese volume on the desk between them. Nam opened it to the marked page and read in silence.
+Sukjong placed the Chinese volume on the desk between them. "Then they should have the answer."
 
-"This changes the structural problem," Nam said at last.
+Nam read the marked passage, his expression growing more troubled with each line. When he finished, he closed the book and was quiet for a long time.
 
-"It solves the structural problem."
+"This is exactly what they will not permit," he said finally.
 
-"Yes." Nam closed the book. "If the Ming could restore a wronged prince without destroying the legitimacy of the regime that followed, then we can restore Prince Danjong without calling Sejo's line false."
+"Because?"
 
-"The shrine expands. Both names endure."
-
-Nam nodded slowly. "It is elegant. It addresses the moral debt without creating a political crisis." He paused. "But the weather is changing."
+"Because it makes the Westerner position intellectually unassailable. If you can honor both the wronged prince and the dynasty that followed, then the moral argument becomes politically sustainable." Nam looked directly at the king. "They would rather the question remain unsolved than solved in our favor."
 
 Sukjong had been expecting this. Nam's sources were better than the court's gossip, and the court's gossip had been shifting for months.
 
@@ -86,15 +68,23 @@ Sukjong had not considered this angle. The debt to China was real, profound, and
 
 ---
 
-The signs accumulated through the summer.
+The test came in late summer, during a routine council meeting about grain taxes.
 
-Appointments shifted. Conversations grew careful. The balance of voices in council meetings tilted by degrees toward men whose loyalty to the Westerner cause was less certain, whose memories of Song Si-yeol's guidance were shorter.
+Minister Yi Saek, newly elevated to the council after years in minor posts, paused at the end of his report. "Majesty, there is another matter. Concerns have been raised about certain scholarly activities in the provinces."
 
-Jang Hui-bin's presence in the palace grew more pronounced. Not through formal elevation — that would come later, if it came — but through the subtle recalibration of attention that preceded such changes. Servants bowed differently. Officials lingered outside her quarters. The queen's household contracted into a kind of defensive silence.
+The room went quiet. Sukjong kept his expression neutral. "What concerns?"
 
-Sukjong watched it all with the particular awareness of a king who had learned to read political weather before it became political storm. He had seen this pattern before, in the decade after his father's death, when the court had chosen sides in preparation for a struggle that everyone knew was coming but no one would name directly.
+"Research into burial sites from the Sejo period. Questions being asked about... historical records that might better remain undisturbed." Yi's voice was respectful, careful. "The Southern scholars believe such inquiries serve no useful purpose and may cause unnecessary discord."
 
-The restoration formula sat in his desk, complete and unused.
+The message was clear: they knew. They were watching. They were prepared to act.
+
+Sukjong looked around the council table. Half the faces were familiar, men who had served with his father. The other half were newer, aligned with different priorities. The balance had shifted without his permission.
+
+"Scholarly research has always been encouraged in this kingdom," he said finally.
+
+"Of course, Majesty. But perhaps some research is more beneficial than others."
+
+When the council ended, Sukjong remained alone in the chamber for a long time, staring at the empty chairs around the table that no longer held the men who might have supported what he had written in private.
 
 ---
 
@@ -120,12 +110,8 @@ The commitment was genuine. The timing was not yet right. The argument would wai
 
 ---
 
-That evening, alone in the study, Sukjong looked out at the palace courtyard where the first frost was beginning to silver the stone. Somewhere in the provinces, scholars were still mapping burial sites, still documenting the locations of graves the state had tried to forget. Somewhere in the capital, men who had studied under Song Si-yeol were still carrying forward work they believed would honor the dead.
+That evening, Sukjong sat alone in his study with the written formula in his hands. Outside, the first frost silvered the courtyard stones.
 
-They did not know that the answer they were building toward was already complete, already written, already filed away in the king's private chest.
+He folded the document, sealed it with his private seal, and placed it in the wooden chest where it would wait.
 
 The formula existed. The timing did not.
-
-A king had learned to separate what he knew from what he could say, and what he could say from what he could do.
-
-The altar that would be built for Prince Danjong waited in his desk, unannounced and unspoken, for a day when the kingdom might be ready to expand its memory rather than defend it.
