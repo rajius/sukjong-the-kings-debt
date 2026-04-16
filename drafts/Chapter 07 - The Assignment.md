@@ -50,9 +50,9 @@ Sukjong considered. Yu was a known quantity — neither aligned with the purged 
 
 ---
 
-Inspector Yu sat alone in his office that evening with a short list in front of him.
+Inspector Yu sat alone in his office that evening. His core staff were already named — three men he had worked with for years. The question was the fourth seat. The road work. The man who would walk through provincial markets and provincial inns and listen to what officials would not say in a yamen.
 
-Three names. He had worked with two of them before. The third — Yi Hwon — he had never met, but the report had reached his desk through a man whose judgment he trusted. A junior officer in a military posting who had filed a careful, useless little memorandum about diverted supply quantities. Useless because nothing had been done with it. Careful because nothing in it had been wrong.
+He had a short list of three. Two were known to him from previous assignments. The third — Yi Hwon — he had never met, but a memorandum had reached his desk months ago through a man whose judgment he trusted. A junior officer in a military posting who had documented a small pattern of diverted supply quantities. Careful, precise, and useless, because nothing had been done with it.
 
 Yu had read the memorandum twice. The first time he had noted the precision of the observation. The second time he had noted what was not in it — no excuses, no political framing, no attempt by the writer to position himself for advancement. A man who had described what he saw and let the description stand.
 
