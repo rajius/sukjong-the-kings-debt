@@ -108,6 +108,10 @@ He set the brush down. His hand shook slightly. He pressed it flat against the d
 
 He had become the man Nam had been. He had become the voice that said *not yet.* He had spent five years arguing himself into the position he had once despised. There was no one in the room to argue him out of it. There was no one in the room at all.
 
+This was his cause. The boy in the mountain had been his since he was thirteen, since the tutor's lesson, since the cold water at fifteen. The arithmetic was his. The formula in his handwriting was his. The decision to file it away was his. And there was no one to make him do it and no one to forgive him for it.
+
+The hand that had shaken was not shaking because the decision was hard. It was shaking because the decision was his.
+
 He sealed the document. He placed it in the wooden chest where it would wait.
 
 The formula existed. The timing did not. And the king who had built both was alone with the silence between them.
