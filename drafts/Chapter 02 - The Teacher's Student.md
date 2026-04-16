@@ -40,7 +40,7 @@ Master Kim set down his brush. "That is not how the passage is taught."
 
 "I know. I have listened to how it is taught. That is why I am asking."
 
-A silence. Then: "Where did you read Wang Bi's commentary on the same passage?"
+A silence. Then: "Where did you read the commentary on the same passage?"
 
 "In the volume your wife gave me in the third month."
 
@@ -116,11 +116,11 @@ Not directly — she had no channel to the capital that would carry a direct que
 
 She started with the wife of a scholar in the neighboring county — a woman named Ok-sun whose husband corresponded with colleagues in the capital and who received, through her own channels, the kind of news that did not appear in any letter between men.
 
-They sat in Ok-sun's kitchen. The visit was social — a gift of dried persimmons, a polite inquiry about the children. Lady Yoon waited until the second cup of tea before she mentioned that Master Kim was considering a match for her with a former student.
+They sat in Ok-sun's kitchen. The visit was social — a gift of dried persimmons, a polite inquiry about the children. She waited until the second cup of tea before she mentioned that Master Kim was considering a match for her with a former student.
 
 "In the capital?" Ok-sun said. "Which student?"
 
-Lady Yoon gave the name.
+She gave the name.
 
 Ok-sun's expression shifted — not recognition exactly, but the particular alertness of a woman who has heard a name in a context she is now trying to recall.
 
@@ -138,7 +138,7 @@ Ok-sun looked at her over the tea. "People are asking questions. They just do no
 
 "Marked. My husband says the connection to Song Si-yeol makes him brilliant but untouchable — too risky for the families that matter, too accomplished for those that don't."
 
-Lady Yoon asked the question she had come to ask. "Is he the kind of man who would walk into a woman's kitchen uninvited?"
+She asked the question she had come to ask. "Is he the kind of man who would walk into a woman's kitchen uninvited?"
 
 Ok-sun understood the question beneath the question. "No," she said. "From what I hear, he is the kind of man who would not notice the kitchen existed."
 
@@ -198,7 +198,7 @@ He was quiet for a moment. Then: "That is not what the commentary tradition says
 
 "The commentary tradition is wrong."
 
-He stared at her the way he had stared at her across Master Kim's table — the look of a man recalculating. Then he said, "The commentary tradition has been refined across six generations of scholars."
+He was quiet for a long moment. Then he said, with what might have been the beginning of respect, "The commentary tradition has been refined across six generations of scholars."
 
 "And none of them noticed that hope is not evidence."
 
@@ -302,50 +302,6 @@ But neither of them withdrew.
 
 ---
 
-The room had been warm that evening. She had finished her reading earlier than usual and sat mending beside the table while he worked. The lamp cast steady light between them. She was aware of the quiet — not empty, but full of the particular peace that comes when two people occupy the same space without effort.
-
-When he set down his brush, she glanced up.
-
-He was looking at her. Not the way he looked when he had a question about her reading, or when he was calculating whether she needed more light. This was different. Direct in a way that made her hands still on the cloth.
-
-"What is it?" she said.
-
-He did not answer immediately. Instead he rose from his seat and crossed to where she sat. He stopped in front of her chair — close enough that she had to tilt her face up to meet his eyes.
-
-For a moment they looked at each other without speaking.
-
-Then he reached down and touched her face. Not casually. Not as if he were brushing away a thread or adjusting a strand of hair. His fingers found her cheek and stayed there, deliberate and unmistakable.
-
-She did not move away. She did not lean into the touch. She simply looked at him, reading the intention in his eyes the way she had learned to read the intention in his arguments.
-
-"Are you certain?" she said quietly.
-
-He nodded once. "Yes."
-
-She considered this. His hand remained against her face, patient and still.
-
-"Then yes," she said.
-
-"Was this always what you wanted?"
-
-"Not always," he said. "But for some time."
-
-"How long?"
-
-He was quiet only a moment.
-
-"Since you told me the commentary tradition was wrong."
-
-She smiled in spite of herself. "That was the second month."
-
-"Yes."
-
-"You waited a year."
-
-"I wanted you to choose it."
-
----
-
 She found the page on a morning in the third year.
 
 He had left early — one of the provincial trips, a bundle of papers under his arm, the tension in his jaw sharper than usual. She was cleaning the study, a task she had always done herself because the study was where the work lived and the work required a kind of care the other servants did not know to give. She opened the desk to replace a brush that had been left out, and the compartment was not fully closed.
@@ -356,7 +312,7 @@ The page was a list. Names, written in a hand she did not know, with locations b
 
 She held the page in the silence of the empty study. She had seen this question before — not this exact page, but this exact question, in the margins of a genealogy in Master Kim's seowon, in the practice sheets the students never quite explained, in the song the grandmothers sang about a boy who slept in the mountain and could not wake up. The question had been following her since before she knew it was a question. Now it was in her hands, in her husband's handwriting, in the desk where he kept the work he did not share.
 
-She understood. Not everything — not the names, not the network, not the full shape of what her husband and Master Kim had been building in the study behind the closed door. But enough. The life she had chosen — the marriage, the household, the partnership she had built with a man who argued with her more than anyone and shared his work one document at a time — contained a purpose she had not been invited into. The men around her were serving something larger than a household. And the knowledge had arrived, as it always arrived, not because she demanded it but because she was ready.
+She understood enough.
 
 She placed the page back in the compartment. She closed the desk. She finished cleaning the study.
 
