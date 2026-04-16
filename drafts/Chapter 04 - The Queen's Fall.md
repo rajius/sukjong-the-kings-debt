@@ -108,7 +108,7 @@ She paused, holding the brush she had been arranging. The letter was positioned 
 
 The handwriting was careful, modern. The message was brief:
 
-*The interest from the capital is not general but specific. Someone in the new government wants this work stopped, and they have connected it to you personally. The recommendation is immediate cessation of all activities and removal from the area if possible. The alternative is likely to be permanent.*
+*The interest is not general but specific. Someone in the new government wants this work stopped, and they have connected it to you personally. The recommendation is immediate cessation of all activities and departure from the capital if possible. The alternative is likely to be permanent.*
 
 There was no signature. No indication of who had sent it or how it had arrived.
 
