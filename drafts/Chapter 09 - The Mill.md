@@ -6,11 +6,7 @@ By the second summer, the administrative paralysis Yu had sent him to assess had
 
 He had also begun to read its opposite. A counter-network was moving in the provinces — women's correspondence, household channels, paper that did not belong to the apparatus he was tracking. He could not yet trace its shape. He knew only that it was older than the thing hunting it, and that it was faster than it should have been.
 
-He had begun to suspect who was at the center of it.
-
-The widow at the memorial. The woman whose face he had not finished looking at.
-
-He did not say this in any report.
+He had not connected it, yet, to the woman whose face he had not finished looking at.
 
 ---
 
