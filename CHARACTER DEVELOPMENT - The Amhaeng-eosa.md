@@ -242,6 +242,14 @@
 - **Chapter 13**: Political impossibility despite personal readiness
 - **Chapter 14**: Shared witness and conscious choice despite systemic contamination
 
+### Yi Hwon's Deepest Vulnerability
+- **He is objectively desirable in his world**: Military background, civil exam success, royal appointment, physical capability
+- **He knows it**: Other women confirm his attractiveness and competence
+- **But Lady Yoon measures him against a dead man of unusual brilliance**: Yeong-hak's munkwa essay, Song Si-yeol's student, intellectual sophistication Yi Hwon cannot match
+- **This doesn't mean she dislikes him**: But her standard is shaped by a rarer man
+- **Yi Hwon must live in the shadow of someone he cannot outdo on those terms**: No amount of physical courage, official success, or conventional attractiveness can compete with extraordinary intellectual partnership
+- **This creates his most human wound**: He faces something he cannot overcome through his usual strengths, forced to find different ground on which to prove his worth
+
 ## VALIDATION TESTS
 
 For any scene with Yi Hwon, ask:
