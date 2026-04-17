@@ -10,9 +10,15 @@ They stopped at a stream crossing south of Jecheon. Midday, early autumn, the ki
 
 He was refilling the water gourd. She sat on a flat rock near the bank, her face tilted toward the warmth. She looked, for a moment, like someone who was not running anything.
 
-He watched her and tried to reconcile the two things: the woman who had put him in a hold that used his own weight against him, and the woman sitting in the sun with her eyes half closed. The hold had been trained. The network had been built. The yamen questions she had given him that morning had been sequenced with a precision that suggested years of practice reading official records.
+He watched her and tried to reconcile the two things: the woman who had put him in a hold that used his own weight against him, and the woman sitting in the sun with her eyes half closed.
 
-Someone had taught her. Not the seowon — the seowon taught classical texts, not operational intelligence.
+"You are not ordinary," he said. "Even by seowon standards. May I ask who taught you?"
+
+She did not open her eyes. "Taught me what?"
+
+"The questions you gave me this morning. The way you sequenced them. That is not classical education."
+
+She was quiet for a moment. The stream moved over the stones.
 
 "Your husband," he said. "What was he like?"
 
