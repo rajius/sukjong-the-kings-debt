@@ -1,4 +1,4 @@
-# Chapter 9 -- The Stone Rubbing
+# Chapter 10 -- The Stone Rubbing
 
 The problem revealed itself when Scholar Pak brought her a letter that made her stomach tighten.
 

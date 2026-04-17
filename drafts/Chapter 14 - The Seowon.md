@@ -1,4 +1,4 @@
-# Chapter 13 -- The Seowon
+# Chapter 14 -- The Seowon
 
 She did not find him for two days. He spent the time at an inn in the county seat, writing nothing, asking no questions, letting the inn keeper believe he was a merchant waiting on a delivery.
 

@@ -1,4 +1,4 @@
-# Chapter 5 -- The Murder
+# Chapter 7 -- The Murder
 
 The morning was ordinary.
 

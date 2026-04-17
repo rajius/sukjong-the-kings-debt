@@ -1,4 +1,4 @@
-# Chapter 10 -- The Queen Restored
+# Chapter 11 -- The Queen Restored
 
 The evidence arrived before dawn on a gray morning in autumn, carried by a messenger whose urgency suggested the kind of revelation that would reshape everything that followed.
 
@@ -90,29 +90,19 @@ The machinery of restoration operated efficiently. The human consequences remain
 
 In his private study that evening, Sukjong took inventory of what the second reversal had accomplished.
 
-The Southerner fabrication had been exposed and the fabricators removed. The Westerner faction had been returned to court, but damaged by the purge and divided between those who sought revenge and those who counseled patience. The Noron scholars had been vindicated but not empowered. The Soron moderates remained moderate, which made them useful for preventing bloodshed but ineffective for implementing policy.
+The court was stable. No single faction possessed enough power to threaten royal authority. But it was also paralyzed by the mutual suspicion that followed two complete reversals of political fortune. 
 
-The court was stable in the sense that no single faction possessed enough power to threaten royal authority. But it was also paralyzed by the mutual suspicion that followed two complete reversals of political fortune.
-
-Officials who had survived the first purge were afraid to express strong opinions that might mark them for the next reversal. Ministers who had been restored to power were careful to avoid the mistakes that had led to their initial removal. Everyone understood that political fortune could change completely and without warning, which made long-term planning impossible and decisive action dangerous.
-
-Sukjong had preserved royal prerogative by preventing any faction from gaining permanent dominance. But he had also created a government that was too frightened of change to function effectively.
-
-The cost would be measured in opportunities missed, problems deferred, and the gradual erosion of confidence in royal judgment.
+Sukjong had preserved royal prerogative by preventing any faction from gaining permanent dominance. But he had also created a government too frightened of change to function effectively.
 
 ---
 
 Sukjong retrieved the wooden chest from its place in his private cabinet and opened it to examine the document he had written years earlier.
 
-The formula remained valid: the Wanli precedent for restoring wronged princes while maintaining dynastic continuity. The solution to a problem that had haunted the kingdom for two centuries was complete, tested against Chinese historical precedent, ready for implementation.
+The formula remained valid: the Wanli precedent for restoring wronged princes while maintaining dynastic continuity. The solution to a problem that had haunted the kingdom for two centuries was complete, ready for implementation.
 
-But the political foundation required for implementation had been shattered by the very actions that had preserved royal authority.
-
-The Westerner faction that might have supported the restoration of Prince Danjong was broken, its leaders dead or discredited, its networks disrupted by five years of factional warfare. The court's confidence in royal consistency had been destroyed by two complete policy reversals. Any attempt to implement the formula would be seen as another change of direction rather than the culmination of long-held principles.
+But the political foundation required for implementation had been shattered by the very actions that had preserved royal authority. 
 
 The irony was precise: Sukjong had gained the power to restore the wronged prince at the exact moment when using that power would undermine everything he had done to obtain it.
-
-He reread the formula, understanding that it remained intellectually sound while becoming politically impossible. The solution existed, but the circumstances required for its application had been destroyed by the process of creating those circumstances.
 
 Sukjong closed the chest and locked it.
 

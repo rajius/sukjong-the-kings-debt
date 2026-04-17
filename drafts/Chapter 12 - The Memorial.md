@@ -1,4 +1,4 @@
-# Chapter 11 -- The Memorial
+# Chapter 12 -- The Memorial
 
 The order found Yi Hwon at his garrison posting in the third week of the seventh month.
 
@@ -68,7 +68,13 @@ The road south was long enough that Yi Hwon had time to consider what kind of ma
 
 He had taken the civil exam to become a civil official. He had instead become a man in plain clothes carrying nothing that proved who he was, sent to listen at the edges of a memorial for a scholar whose execution had killed half a faction. The order had not used the word *intelligence.* It had not needed to.
 
-He had no opinion about Song Si-yeol. He had been a child during the funeral disputes that had built the man's reputation, and a young man during the purge that had ended his life. The names of factions had been background to Yi Hwon's life — the way weather was background. They moved through the country whether he attended to them or not.
+He told himself he had no opinion about Song Si-yeol. He had been a child during the funeral disputes that had built the man's reputation, and a young man during the purge that had ended his life. The names of factions had been background to Yi Hwon's life — the way weather was background. They moved through the country whether he attended to them or not.
+
+But riding toward a memorial for the dead teacher, Yi Hwon found himself wondering what Song Si-yeol had actually done wrong. The man had advised the throne. He had taught students. He had written commentaries on classical texts. For this, he had been executed.
+
+Now Yi Hwon was being sent to watch people honor that memory, to note who attended, to report back on scholars whose crime might be nothing more than studying with the wrong teacher.
+
+The country itself felt different when seen from this angle. Not the ordered landscape of administrative efficiency he had learned to navigate, but something more fragmented. Places where people were afraid to speak. Questions that could not be asked. A silence that followed in the wake of royal attention like frost after a clear night.
 
 What Yi Hwon did know was the country itself. He knew how grain moved between counties and what happened when it did not. He knew the look of a magistrate's clerk who was being asked to explain a discrepancy he had spent six months hoping no one would notice. He knew which inns kept clean records and which kept second sets. He knew the sound of a road that had been recently traveled by men who did not want to be seen.
 

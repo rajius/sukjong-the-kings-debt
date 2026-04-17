@@ -40,8 +40,6 @@ The teacher set down his brush. He looked at the young man the way the grandmoth
 
 This had been happening for two hundred and twenty-four years. Seven generations. A stonecutter outside the county had carved a poem on a rock face that said nothing about kings or thrones -- only that a pine tree on the eastern ridge had witnessed something the snow covered by morning. The rock was too high and too remote for officials to bother reading. The poem had outlasted every magistrate sent to govern the county. It would outlast the next.
 
-That is how long a country can remember what a state has ordered it to forget -- if the women keep singing and the men keep placing pages where the right students will find them, and no one says the name aloud, and the grandmothers keep deciding, child by child, who is ready to carry it.
-
 ---
 
 The report arrived on a morning in the third month of Sukjong's sixth year, carried by a secretary who did not understand what he was delivering.

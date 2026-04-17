@@ -108,16 +108,10 @@ He took out brush, ink, and paper. He wrote slowly, in his own hand:
 
 He sat with the document in front of him.
 
-He thought of his twenty-year-old self, six years ago, leaning across a desk to argue with Nam Guman over a single syllable. *I want to restore him fully.* The voice that had said it was still in him. He could feel it now, pushing his hand toward the door, toward the council chamber, toward the decree that would convert this private paper into public action.
+He thought of his twenty-year-old self, six years ago, leaning across a desk to argue with Nam Guman over a single syllable. *I want to restore him fully.* The voice that had said it was still in him. 
 
 He set the brush down. His hand shook slightly. He pressed it flat against the desk until it stopped.
 
-He had become the man Nam had been. He had become the voice that said *not yet.* He had spent five years arguing himself into the position he had once despised. There was no one in the room to argue him out of it. There was no one in the room at all.
-
-This was his cause. The boy in the mountain had been his since he was thirteen, since the tutor's lesson, since Song Si-yeol's empty chair the morning after his coronation. The arithmetic was his. The formula in his handwriting was his. The decision to file it away was his. And there was no one to make him do it and no one to forgive him for it.
-
-The hand that had shaken was not shaking because the decision was hard. It was shaking because the decision was his.
+He had become the man Nam had been. He had become the voice that said *not yet.* 
 
 He sealed the document. He placed it in the wooden chest where it would wait.
-
-The formula existed. The timing did not. And the king who had built both was alone with the silence between them.

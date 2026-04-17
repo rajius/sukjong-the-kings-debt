@@ -1,4 +1,4 @@
-# Chapter 12 -- The Dead Man
+# Chapter 13 -- The Dead Man
 
 A year passed before he saw her face again.
 

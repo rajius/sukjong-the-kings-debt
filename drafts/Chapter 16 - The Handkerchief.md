@@ -1,4 +1,4 @@
-# Chapter 15 -- The Handkerchief
+# Chapter 16 -- The Handkerchief
 
 The inquiry went out that afternoon. She wrote a letter to a contact in the capital — one of Master Kim's former students — asking after a merchant family in the Jongno district. She embedded the question inside other business, so light it barely registered: *I understand there is a well-established family of that name. Do they have daughters?*
 

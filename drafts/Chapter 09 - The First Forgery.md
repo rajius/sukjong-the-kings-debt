@@ -1,4 +1,4 @@
-# Chapter 8 -- The First Forgery
+# Chapter 9 -- The First Forgery
 
 Scholar Pak arrived in the third month of the new year, grateful and overwhelmed in equal measure.
 
