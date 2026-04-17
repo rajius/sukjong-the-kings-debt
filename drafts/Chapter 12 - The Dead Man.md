@@ -1,4 +1,4 @@
-# Chapter 11 -- The Dead Man
+# Chapter 12 -- The Dead Man
 
 A year passed before he saw her face again.
 
@@ -10,58 +10,142 @@ He had not connected it, yet, to the woman whose face he had not finished lookin
 
 ---
 
-He found her, finally, in a low room behind a private residence in a county he had been working for three weeks.
+The residence was at the end of a lane that did not appear on any official map of the county. Yi Hwon had found it through three weeks of careful work — tracing the clerk's movements, his contacts, the places he went when his shift at the provincial office ended and he became a different kind of worker.
 
-The man on the floor was already dead. He had been a contact in the network — Yi Hwon's network, not hers — a clerk with access to provincial dispatches who had been selling small quantities of information for several months. Yi Hwon had come to the residence to question him about a series of recent leaks. He had arrived too late.
+The door was open. That was the first wrong thing.
 
-The body lay in the middle of the room. A woman was crouched beside it, going through the dead man's belongings with the unhurried efficiency of someone who had work to finish before she left.
+Yi Hwon stopped in the lane and listened. No voices. No movement. The particular quality of silence that means a space has recently been occupied and is no longer. He waited for the count of twenty breaths, then moved to the doorway and looked in.
 
-She wore a dark veil. She did not look up when Yi Hwon stepped through the door.
+The room was small and had been searched. Not ransacked — the furniture was upright, the shelves intact — but searched by someone who knew what they were looking for. A writing desk had been opened, its drawers pulled to their full extension and then pushed back, not quite aligned. A document case lay on the floor, empty, its clasp unfastened from the inside. The brazier in the corner was cold, but the ash showed the edges of recently burned paper — fragments too small to read, destroyed by someone who had taken the time to feed them to the fire one piece at a time.
 
-He took another step into the room. He was testing.
+The clerk lay near the desk, face down, one arm extended toward the document case as if he had been reaching for it when he stopped reaching.
+
+Yi Hwon stepped inside. He crouched by the body without touching it. The clerk had been dead for hours — the skin was cool, the limbs beginning to stiffen. No visible wound. No blood. The kind of death that could be many things and would officially be one of the simpler ones.
+
+He was still reading the body when he became aware that he was not alone in the room.
+
+The awareness came through his training — not a sound, not a movement, but the particular displacement of air that meant another body was occupying space behind him and to the left. Close enough to touch. Close enough to have been there since before he entered.
+
+He started to turn.
 
 She moved.
 
-The hold she put him in was professional. His arm was twisted in a way that suggested resistance would dislocate the shoulder; her forearm was across his throat at a position where struggle would damage them both. She had done this before. She had probably done it more than once.
+---
+
+The hold was not a fight. It was a correction.
+
+One moment he was turning; the next his arm was locked behind him at an angle that made his shoulder announce, very clearly, that any further motion would be a mistake. Her forearm was across his throat — not crushing but placed, the way a blade is placed against a surface to show where it could cut. The pressure was precise. The position was the kind that used the attacker's weight against him: the more he resisted, the tighter the lock would become.
 
 He held still.
 
-A draft moved through the doorway. The veil shifted at her temple. She did not adjust it. The fabric lifted, settled, then slipped free.
+He had been trained. He knew how to break a hold like this — the counter-rotation, the hip shift, the way you drop your weight to change the angle. He also knew what the counter would cost: a dislocated shoulder at minimum, and the sound of the struggle carrying into the lane. Whoever this was, they had chosen the hold deliberately. It was the kind that punished resistance and rewarded patience.
 
-He saw her face.
+He chose patience.
 
-He went very still in a different way, and she felt the change in his body before her mind had finished naming it — the tension recalibrating from escape to recognition.
+Her breathing was even. Not fast, not labored. The breathing of a person who was working, not fighting. He could feel the control in her arms — not strength exactly, but leverage applied with the economy of someone who had learned this from a teacher, not from desperation.
 
-She stepped back at once.
+He learned three things from the hold.
 
-"Turn around," she said.
+She had been trained formally, not self-taught. The placement of her forearm was too precise for improvisation.
 
-He turned. She was at the far wall when he turned back, hands empty, the veil retied. She had not picked up a weapon. She had not needed to.
+She was smaller than him. The angle of the lock compensated for a difference in height and weight. She had been taught by someone who understood that the student would always be fighting larger opponents.
+
+She was not trying to kill him. If she had wanted him dead, the forearm would have been two inches higher, and the conversation would already be over.
+
+---
+
+The knot at her veil had loosened in the struggle. She felt it at once — the slackening cloth against her cheek, the faint shift of air at her temple.
+
+She should have tightened it.
+
+Instead she hesitated. A fraction of a second — the body deciding something the mind had not yet authorized.
+
+A draft moved through the open doorway. The edge of the veil lifted, settled, then slipped free.
+
+For a moment he saw only part of her face. The line of a jaw. The edge of a cheekbone. A quality of attention in the visible eye that was not panic and was not calculation but something between — the expression of a person who has just realized that the next two seconds will determine everything.
+
+Then the veil fell completely.
+
+He went very still.
+
+The memorial returned between them all at once. The courtyard. The tea table. The donor's wife and the three words that resolved it. The gaze that had held a beat too long. The morning she had not returned.
+
+A year of carrying an unresolved image, and the image was here, pressed against his back, with her forearm across his throat.
+
+She felt the change before she let herself understand it. The tension in him had altered — no longer gathered wholly for escape. Something else had entered the hold. Not relaxation. Recognition. The particular stillness of a body that has identified the person touching it and does not want the touching to stop for reasons that have nothing to do with combat.
+
+That was enough.
+
+She stepped back at once, before either of them betrayed too much.
+
+---
+
+"Turn around."
+
+He turned. She was at the far wall when he turned back. Hands empty. The veil retied — hastily, the knot different from before. She had not picked up a weapon. She had not needed to.
+
+He looked at her. She looked at him. The dead man lay between them on the floor, and neither of them glanced at him, because the dead man had stopped being the most important thing in the room.
 
 "So it was you," she said.
 
+Her voice was steady. The voice he had heard once, at the memorial, telling the host she would return tomorrow. The same voice, in a room with a body, behind a veil that had already failed.
+
 "Yes."
 
-He looked at the dead man between them.
+He did not say anything else. He was waiting to see what she would do — the way he had waited at the memorial, the way he had waited in the hold. He was learning, without anyone having taught him, that with this woman the correct response was almost always to wait.
 
-"Compromised," she said. "By others. There is a coordinated effort."
+She studied him. Not the way she had studied him at the memorial — from across a courtyard, through the professional distance of a room-reader assessing a stranger. This was closer. This was a woman deciding, in real time, whether the man standing in front of her was a threat, an asset, or a complication she could not yet classify.
 
-"By whom?"
+"You came here for the clerk," she said.
 
-"That is what I am trying to determine."
+"Yes."
 
-She moved toward the door. She stopped at the threshold without turning.
+"You are too late."
 
-"Your investigation ends here. Your report on this man does not enter the record. He died of an illness that was already with him. You did not see me. You did not see this room."
+"I can see that."
+
+"Can you." She looked at the body, then back at him. "What do you see?"
+
+He understood the question. It was not rhetorical. She wanted to know how much he could read from the scene — whether he was an investigator or merely an official who had stumbled into a room he did not understand.
+
+"The desk was searched by someone who knew what they were looking for. The document case was opened from the inside — he gave them what they wanted before he died. The papers in the brazier were burned one piece at a time, which means someone stayed after the death to clean. The body has no visible wound." He paused. "And you are still here. Which means you arrived after whoever killed him, and you are looking for what they did not find."
+
+She was quiet for a moment.
+
+"Or," she said, "I arrived before."
+
+The silence that followed was the loudest thing Yi Hwon had heard in a year.
+
+---
+
+She moved toward the door.
+
+"Your investigation ends here."
+
+"Does it."
+
+"Your report on this man does not enter the record. He died of an illness that was already with him. You did not see me. You did not see this room."
 
 "And in exchange?"
 
-"You will know what I know about the people hunting your contacts. Which is more than you currently know."
+She stopped at the threshold. She did not turn.
 
-"How do I find you?"
+"I will find you," she said. "When I am ready."
 
-"You do not." She paused. "I will find you."
+"And if I am not willing to wait?"
 
-She left.
+Now she turned. Her face was half in shadow, half in the grey light from the doorway. The veil was still imperfect — the hasty knot, the fabric not quite flush against her temple.
 
-Yi Hwon stood alone with the body in the empty room. He had been arranged. He had walked into a situation she had already controlled. The only choice she had given him was the one he had already made.
+"You have been waiting for a year," she said. "One day you will understand why."
+
+She adjusted the veil. She walked through the door without looking back.
+
+Yi Hwon stood alone with the body in the empty room. He had been arranged. He had walked into a situation she had already mastered — the search completed, the scene read, the exit prepared — before he crossed the threshold. The hold had not been panic. It had been protocol. And the veil slipping had not been accident.
+
+He was not certain about that last part. But he was not certain it was wrong, either.
+
+He looked at the dead clerk on the floor. The man who had been selling information from two directions and had run out of directions.
+
+He left the room the way he had entered it. He closed the door. He walked back up the lane that did not appear on any official map.
+
+He did not file a report that night.
