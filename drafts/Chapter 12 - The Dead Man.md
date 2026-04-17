@@ -44,13 +44,7 @@ He chose patience.
 
 Her breathing was even. Not fast, not labored. The breathing of a person who was working, not fighting. He could feel the control in her arms — not strength exactly, but leverage applied with the economy of someone who had learned this from a teacher, not from desperation.
 
-He learned three things from the hold.
-
-She had been trained formally, not self-taught. The placement of her forearm was too precise for improvisation.
-
-She was smaller than him. The angle of the lock compensated for a difference in height and weight. She had been taught by someone who understood that the student would always be fighting larger opponents.
-
-She was not trying to kill him. If she had wanted him dead, the forearm would have been two inches higher, and the conversation would already be over.
+The placement of her forearm was too precise for improvisation. The angle of the lock compensated for someone smaller. And if she had wanted him dead, the forearm would have been two inches higher.
 
 ---
 
@@ -72,11 +66,9 @@ The memorial returned between them all at once. The courtyard. The tea table. Th
 
 A year of carrying an unresolved image, and the image was here, pressed against his back, with her forearm across his throat.
 
-She felt the change before she let herself understand it. The tension in him had altered — no longer gathered wholly for escape. Something else had entered the hold. Not relaxation. Recognition. The particular stillness of a body that has identified the person touching it and does not want the touching to stop for reasons that have nothing to do with combat.
+She felt the change before she let herself understand it. The tension in him had altered — no longer gathered wholly for escape. Something else had entered the hold.
 
-That was enough.
-
-She stepped back at once, before either of them betrayed too much.
+She stepped back at once.
 
 ---
 
@@ -84,7 +76,7 @@ She stepped back at once, before either of them betrayed too much.
 
 He turned. She was at the far wall when he turned back. Hands empty. The veil retied — hastily, the knot different from before. She had not picked up a weapon. She had not needed to.
 
-He looked at her. She looked at him. The dead man lay between them on the floor, and neither of them glanced at him, because the dead man had stopped being the most important thing in the room.
+He looked at her. She looked at him. The dead man lay between them on the floor.
 
 "So it was you," she said.
 
