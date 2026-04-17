@@ -66,9 +66,11 @@ The memorial returned between them all at once. The courtyard. The tea table. Th
 
 A year of carrying an unresolved image, and the image was here, pressed against his back, with her forearm across his throat.
 
-She felt the change before she let herself understand it. The tension in him had altered — no longer gathered wholly for escape. Something else had entered the hold.
+She felt the change before she let herself understand it. The tension in him had altered, no longer gathered wholly for escape.
 
-She stepped back at once.
+That was enough.
+
+She stepped back at once, before either of them betrayed too much.
 
 ---
 
