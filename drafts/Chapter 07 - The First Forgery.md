@@ -22,9 +22,21 @@ Scholar Pak signed it without reading it closely.
 
 ---
 
-A letter forwarded from Yeong-hak's old capital address reached her two weeks later. The correspondent in Gangwon did not know he was dead. She wrote back as her husband — once. The reply redirected the contact toward another channel.
+A letter forwarded from Yeong-hak's old capital address reached her two weeks later. The correspondent in Gangwon did not know he was dead. He was asking about burial documentation in Wonju — the same work that had gotten Yeong-hak killed.
 
-This was not a system. It was triage. Each letter was a question of how long the lag would last before someone noticed.
+She could not answer the question. She could not ignore it. And she could not tell the man he was writing to a dead man without explaining how the dead man had died.
+
+She opened Master Kim's archive and searched for a safer destination. The maps showed three seowon in Gangwon that had housed contacts in the old network. One she recognized as compromised — its master had been questioned after Song Si-yeol's execution. One she had no information on at all. The third was small, remote, run by a scholar named Woo whose name appeared in two of Master Kim's letters as reliable but cautious.
+
+She had never met Scholar Woo. She did not know if he was still at the seowon, or still willing to receive correspondence, or still alive. The last letter in the archive mentioning him was eight months old.
+
+She wrote back as Yeong-hak. The reply was polite, regretful: her husband's research had been interrupted by personal matters, and he was unable to continue the work directly. However, he had a colleague in Gangwon — Scholar Woo at the Hwaseong seowon — who might be able to assist with provincial records. She suggested the correspondent write to Woo and mention Master Kim's name as introduction.
+
+If Scholar Woo was still there, the contact would reach a safe node and the inquiry would survive. If Woo was gone, the letter would arrive at an empty address and die quietly. If the seowon had been compromised, the damage would fall on a connection Lady Yoon had never used and could not be traced back to her.
+
+Each redirection was a gamble. She did not know the odds. She only knew they were better than answering the question herself.
+
+This was not a system. It was triage.
 
 She spent three evenings learning to reproduce Yeong-hak's handwriting. His brush strokes were more angular, his spacing tighter. He began sentences with classical phrases, then shifted to direct language.
 
