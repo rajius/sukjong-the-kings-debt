@@ -14,23 +14,15 @@ Sukjong studied the documents again. The language was too crude, the political a
 
 "This is fabrication."
 
-"Yes, Majesty. The Southerners have manufactured evidence to justify another purge. They believe they can eliminate the remaining Westerner influence by framing the Noron faction for sedition."
-
-The trap was elegant in its simplicity. The Southerners had consolidated power by supporting Sukjong's decision to elevate Lady Jang Hui-bin. Now they would maintain that power by removing the faction that opposed the elevation, using forged evidence to justify the removal.
-
-But Sukjong had learned to recognize the machinery of factional manipulation. The same techniques that had been used to eliminate Song Si-yeol were now being deployed against the Noron scholars. The pattern was too familiar to be convincing.
+"Yes, Majesty. The Southerners have manufactured evidence to justify another purge."
 
 "What do they expect?"
 
-"Orders to arrest the named conspirators. Executions or exile for the leaders. The destruction of the Noron faction as a political force." Nam paused. "They believe you will support the action because it removes opposition to your marriage choices."
-
-The assumption revealed how completely the Southerners had misunderstood his motives. They thought the purge of the Westerners had been about Lady Jang Hui-bin. They had not recognized that it had been about royal authority versus factional constraint.
-
-Now they were attempting to use fabricated evidence to eliminate their rivals, expecting royal approval because the victims had opposed the royal marriage.
+"Orders to arrest the named conspirators. Executions or exile for the leaders." Nam paused. "They believe you will support the action because it removes opposition to your marriage choices."
 
 "The young men they have accused?"
 
-"Scholars. Minor officials. None with actual influence or capacity for the kind of conspiracy described in these documents." Nam's tone was matter-of-fact. "They are guilty of holding opinions, not of plotting rebellion."
+"Scholars. Minor officials. Guilty of holding opinions, not of plotting rebellion."
 
 Sukjong walked to the window. Five years earlier, he had eliminated Westerner opposition to preserve royal prerogative. That had created the political vacuum that allowed the Southerners to attempt this fabrication.
 
@@ -70,13 +62,11 @@ The stability achieved by the first purge had been destroyed by the attempt to e
 
 ---
 
-Queen Inhyeon returned to the palace on a cold morning in late autumn, accompanied by the formal ceremonies due her station and surrounded by the careful courtesy that acknowledged political necessity rather than personal triumph.
+Queen Inhyeon returned to the palace on a cold morning in late autumn.
 
-Sukjong received her in the throne room, following protocols that had been suspended but not abolished during her exile. She performed the required obeisances, spoke the prescribed words of gratitude, accepted restoration to her position with the dignity expected of someone returning to place rather than power.
+Sukjong received her in the throne room. She performed the required obeisances, spoke the prescribed words of gratitude. Her voice was steady. Her hands were not. He noticed them shaking against the fabric of her ceremonial robe — a small tremor she controlled before the court could see it, the way a woman controls something she has been practicing on the road for days.
 
-But five years had passed. The queen who returned was not the woman who had been sent away.
-
-The ceremonial language spoke of restoration, but what had been destroyed could not be returned. The position existed; the relationships that had given it meaning were gone.
+Five years had passed. The queen who returned was not the woman who had been sent away.
 
 Lady Jang Hui-bin was not dismissed. She remained in the palace, her status reduced but not eliminated, her son still acknowledged as crown prince. The arrangement satisfied no one completely but provided everyone with reasons to accept what could not be changed.
 
