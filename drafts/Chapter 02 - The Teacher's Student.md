@@ -228,7 +228,7 @@ He set the document down. He considered her the way he considered problems at th
 
 "The noble families were out of the question," he said. "Anyone with standing would have looked into my connections. The teacher's execution had drawn a circle around everyone associated with him. My connection was there for anyone willing to look."
 
-She knew this.
+She knew this. And also what it implied when connection gave more room for promotion than merit.
 
 "So the proposals came from below," she said.
 
