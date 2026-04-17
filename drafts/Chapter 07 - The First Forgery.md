@@ -54,7 +54,7 @@ Two more names arrived within the month. Scholar Hong from Jeonju — dead of il
 
 Five voices now. She kept the details in her head during the day and committed them to paper at night, in a compartment Scholar Pak would never examine. Who had been told what. Which correspondent expected a follow-up. Which classical reference each dead man would have chosen. The weight of it was not intellectual — any of them would have been easy alone. The weight was simultaneity. Five men thinking at once through a single woman's hand, and none of them could contradict each other.
 
-She made one mistake. A letter written as Scholar Min cited a passage from the Zuozhuan that Min would never have known — it was from the commentary Mrs. Kim had given her years ago, not from any text in Min's collection. The correspondent did not notice. But Lady Yoon noticed, and she sat with the error for a long time that evening, understanding that the dead names were beginning to blur into her own voice. The forgeries would fail not because someone exposed them but because she would eventually forget where she ended and they began.
+She made one mistake. A letter written as Scholar Min drew a connection between two passages that Min — a methodical, curriculum-trained scholar — would never have drawn. It was one of her connections, the lateral kind, linking texts through an angle that only someone who had read unsystematically by firelight would see. The correspondent did not notice. But Lady Yoon noticed, and she sat with the error for a long time that evening. The forgeries would fail not because someone exposed them but because she would eventually forget where she ended and they began.
 
 ---
 
