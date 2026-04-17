@@ -44,7 +44,13 @@ The second letter addressed to him was easier. Polite deflection, suggestion of 
 
 By the fourth letter, she could inhabit his voice completely. She knew which classical references he would choose, which diplomatic phrases he would use to decline dangerous requests.
 
-She was keeping her husband alive on paper.
+She was keeping her husband alive on paper. She was keeping Master Kim alive on paper. And both were dying again, slowly, as the news of their deaths traveled outward through the same provincial networks that carried everything else.
+
+She had asked Scholar Pak to delay the formal announcement of Master Kim's death — explaining, truthfully, that the transition would go more smoothly if correspondents continued to receive replies in the familiar voice while the seowon established its new administration. Scholar Pak had agreed. He was a practical man, and the argument was practical.
+
+But delay was not erasure. A visiting scholar from Chungju had already asked after Master Kim's health. A letter of condolence had arrived from a former student in Jeonju who had heard the news through family channels. Each one was a crack. Each crack shortened the time before a distant correspondent realized that the letter he had received last month from Master Kim had been written by a dead man.
+
+She counted the cracks. She did not yet know how many it would take.
 
 ---
 
