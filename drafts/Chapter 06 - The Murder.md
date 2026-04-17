@@ -88,7 +88,7 @@ And there was a small, dark mark on his neck that looked like a bruise from pres
 
 She thanked the men who had brought him home. She made the proper arrangements for burial. She received the condolences of neighbors and prepared the household for mourning. She did everything that was expected of a widow who had received the body of her husband.
 
-That night her body did something she did not understand. The same low tightening, but stronger now, lasting longer, accompanied by a wetness she could not at first identify. She attributed it to grief. She washed and changed her clothes and slept badly.
+That night her body did something that felt both familiar and wrong. The same low tightening, but stronger now, lasting longer, accompanied by a wetness that was not tears. She did not attribute this to grief. She washed and changed her clothes and slept badly.
 
 And at night, alone with the certainty that everything she had been told was a lie, she began to plan what she would do about it.
 
@@ -97,10 +97,6 @@ And at night, alone with the certainty that everything she had been told was a l
 She tried to reach their provincial contacts. Simple messages, carefully phrased, sent through remaining channels. The responses, when they came at all, were wrong: too plain, too carefully neutral.
 
 One by one, the contacts fell silent. Simply absent, as if they had never existed.
-
-Someone had been through the network before her. They had not destroyed it so much as hollowed it out, leaving the appearance of function while removing all capability.
-
-She was alone with questions that no one would answer and evidence that no one would examine.
 
 ---
 
@@ -145,9 +141,5 @@ After he left, Lady Yoon sat alone in the main room.
 She held the fragment, reading the few visible characters again. *...capital... urgent...* It was not enough to build on.
 
 She folded it and placed it in the desk where Yeong-hak had kept his most dangerous documents.
-
-The work had killed him. She did not know who, or how to find out. Master Kim's mind was failing. The network was gone.
-
-She was alone with a fragment that meant nothing and a dead husband's cause she did not know how to carry forward.
 
 Scholar Pak would come within the month. She would have cover. But that would only keep her safe if she could learn to be someone who posed no threat to anyone.

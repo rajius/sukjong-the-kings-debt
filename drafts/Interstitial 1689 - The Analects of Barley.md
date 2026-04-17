@@ -1,5 +1,7 @@
 # Interstitial -- 1689 -- The Analects of Barley
 
+*Six months after Song Si-yeol's execution*
+
 The magistrate had sent a gift. This happened occasionally — minor tokens to minor officials, the social grease that kept provincial government from seizing entirely. Usually it was dried fish or chestnuts. Today it was barley, two bags of it, delivered by a servant who bowed exactly the right amount and left without being offered tea.
 
 Lady Yoon inspected the bags. The barley was good — better than what they bought at market. She mentioned this during the evening report, between the cloth merchant's wife's ongoing drainage dispute and the news that the schoolteacher had stopped drinking.
@@ -93,3 +95,5 @@ The room was quiet.
 "Don't."
 
 He ate. She thought she saw the mouth move again. She couldn't be certain. She never could.
+
+Later, when she remembered this evening, she would think of the barley. How good it had been. How careful he was to eat two bowls, to show appreciation without words. How they had argued about Confucius and corruption as if they had all the time in the world to settle such questions.
