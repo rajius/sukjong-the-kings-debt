@@ -86,22 +86,28 @@ The machinery of restoration operated efficiently. The human consequences remain
 
 ---
 
-In his private study that evening, Sukjong took inventory.
+In his private study that evening, Sukjong summoned Nam.
 
-The court was stable. No single faction possessed enough power to threaten royal authority. But it was also paralyzed by mutual suspicion following two complete reversals of political fortune.
+"The provinces," he said. "I need to know what survived."
 
----
+Nam understood without elaboration. The purge had scattered the Westerner networks. The counter-purge had scattered the Southerner apparatus that had been hunting them. What remained in the provinces was an open question — and the Danjong restoration could not move forward without an answer.
 
-Sukjong retrieved the wooden chest from its place in his private cabinet.
+"An inspection," Nam said. "Someone with rank enough to assess the ground without creating another cycle of fear."
 
-The formula was where he had left it, written in his own hand, dated from the autumn when he had filed it away because the political ground could not bear its weight. The ground had changed. The Westerners were back. The intellectual tradition that demanded this restoration was in power again — diminished, cautious, but in power.
+"Open authority. Not covert. The provinces need to see the king's will, not suspect it."
 
-He read the document. For the first time since he had written it, the formula was not an argument filed for the future. It was a plan that could be set in motion.
+"Inspector Yu. He has handled provincial assessments before. Steady, not brilliant. The local officials will not fear him and will not dismiss him."
 
-Not today. The court was still fractured from two reversals. The provinces were paralyzed. The men who would need to carry the restoration forward were still reassembling their networks and their nerve. But the direction was no longer theoretical.
+"He may select his own team."
 
-He did not close the chest. He left the document where it was and walked to the window.
+"He will. He keeps a small group. He will want one or two younger men for the road work — someone who can move through provinces without being recognized."
 
-The question had changed. It was no longer whether. It was how fast, and at what cost, and whether the ground would hold long enough for the work to be completed before the weather turned again.
+"That part of the assessment is the part I want."
 
-He would need information from the provinces. He would need to know what had survived.
+"He understands."
+
+Sukjong walked to the wooden chest and opened it. The formula was where he had left it, written in his own hand. For the first time since he had written it, the document was not an argument filed for the future. It was a plan waiting for the ground to be mapped.
+
+He left the chest open.
+
+"Send the order to Yu tonight."
