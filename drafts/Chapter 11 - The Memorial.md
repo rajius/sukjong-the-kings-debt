@@ -1,4 +1,4 @@
-# Chapter 8 -- The Memorial
+# Chapter 11 -- The Memorial
 
 The order found Yi Hwon at his garrison posting in the third week of the seventh month.
 

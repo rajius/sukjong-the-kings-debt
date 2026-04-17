@@ -1,40 +1,10 @@
-# Chapter 6 -- The Correspondence Web
-
-Scholar Pak arrived in the third month of the new year, grateful and overwhelmed in equal measure.
-
-Lady Yoon met him at the gate and explained the essential routines: morning lectures, meal schedules, the correspondence that required attention. Scholar Pak asked intelligent questions, took careful notes, and by evening seemed confident about managing the teaching. Everything else would continue to depend on her knowledge.
-
-Which was exactly as Master Kim had intended.
-
-The first test came three days later, when Scholar Pak brought her a letter that had arrived addressed to "Master Kim, regarding autumn genealogy inquiries."
-
-"I should reply that Master Kim has passed away," Scholar Pak said, examining the letter. "But the inquiry seems urgent, and I am not familiar with the context."
-
-Lady Yoon read the letter carefully. The writer was asking about burial records from the Sejo period, specifically whether Master Kim had made progress tracing connections to families in Chungju. The kind of inquiry that had gotten men killed.
-
-"The correspondent is elderly," she said. "Perhaps I should draft a reply for your signature. Master Kim often relied on my assistance with such research matters."
-
-Scholar Pak looked relieved. "That would be most helpful."
-
-She spent the afternoon crafting Master Kim's voice: the formal courtesy, the careful indirection, the scholarly references that established credibility without revealing dangerous knowledge. By evening, she had produced a letter that would satisfy the correspondent while providing no actual information.
-
-Scholar Pak signed it without reading it closely.
-
----
-
-A letter forwarded from Yeong-hak's old capital address reached her two weeks later. The correspondent in Gangwon did not know he was dead. She wrote back as her husband — once. The reply redirected the contact toward another channel.
-
-This was not a system. It was triage. Each letter was a question of how long the lag would last before someone noticed.
-
-Then a problem she had not anticipated.
-
----
+# Chapter 9 -- The Stone Rubbing
 
 The problem revealed itself when Scholar Pak brought her a letter that made her stomach tighten.
 
 "This arrived this morning," he said, "but the handwriting is unfamiliar, and the contents..." He paused, looking puzzled. "Perhaps you should read it."
 
-The letter was addressed to Master Kim, but the tone was wrong—too urgent, too specific. The writer was asking about stone rubbings from Eom Heung-do's tomb, whether Master Kim had obtained the inscriptions discussed in "our previous correspondence." 
+The letter was addressed to Master Kim, but the tone was wrong—too urgent, too specific. The writer was asking about stone rubbings from Eom Heung-do's tomb, whether Master Kim had obtained the inscriptions discussed in "our previous correspondence."
 
 Lady Yoon had never seen any previous correspondence about Eom Heung-do. The request suggested knowledge of research that Master Kim had kept entirely separate from his work with the network. But someone thought Master Kim had been pursuing it.
 
@@ -56,29 +26,7 @@ He had been expecting something else.
 
 ---
 
-Scholar Pak began to read the letters before he signed them.
-
-He had a habit when he found something that puzzled him — he would set the letter on the desk, square its edges with the side of his thumb, and look at it for a long moment before he asked the question. Lady Yoon learned to watch for the thumb.
-
-"We receive a remarkable amount of genealogical correspondence," he said one afternoon, the thumb already moving along the paper's edge. "Families from quite distant provinces seem to know about our research resources."
-
-Lady Yoon continued grinding ink. "Master Kim developed a reputation for thoroughness."
-
-"Yes. But some of these inquiries are quite specific. Burial sites. Inscription records. Documentation from the Sejo period." He looked at her. "That is sensitive historical territory."
-
-"Master Kim believed that historical truth should not be suppressed for political convenience. Some families have been trying to recover information about ancestors whose service was... officially forgotten."
-
-Scholar Pak nodded slowly. The thumb stilled. "I see. And you have been assisting with this research?"
-
-"When my education permits."
-
-"Of course." He set the letter aside but did not sign it. "Perhaps in the future, you should prepare a brief summary of each inquiry for my review. So I can better understand the context of my replies."
-
-She would now write twice for every letter. The doubling cost her sleep.
-
----
-
-The mistake happened in late autumn, when two letters arrived on the same day.
+The revelation came three weeks later, when two letters arrived on the same day.
 
 The first was routine: an inquiry about genealogical records from a scholar in Andong, addressed to Master Kim. Lady Yoon prepared her usual careful reply, explaining research limitations and suggesting alternative sources.
 
@@ -102,6 +50,8 @@ She resealed the letter carefully and arranged for its delivery to the correct a
 
 She knew two of them.
 
+---
+
 That evening she did not begin with the letters. She began with the women.
 
 She wrote first to Ok-sun, who had brought her into the wives' gathering at the magistrate's residence years ago and had since become the source she trusted most for things men did not say at home. The note was a request to share dried persimmons next month — the kind of invitation that established a meeting without naming one. Ok-sun would understand.
@@ -110,8 +60,50 @@ She wrote next to Madam Choe, whose nephew worked in a section of the chanceller
 
 She wrote to three others. Wives, one widow, one merchant's mother. None of the letters mentioned scholarship. None mentioned politics. Each one carried, beneath the ordinary words, a question that would be answered in the same form. The women would talk to their husbands and brothers and sons and servants. The answers would come back through the same channel — gathering invitations, fabric samples, polite inquiries about the price of rice.
 
+---
+
+The understanding came slowly, over the weeks that followed, as the women's replies arrived.
+
+Someone was hunting the old network methodically. Not just the obvious connections — the formal correspondence between known scholars — but the secondary associations, the family relationships, the commercial ties that had supported the original work.
+
+The investigation was sophisticated. It was asking the right questions of the right people. And it was being coordinated from the capital with resources that far exceeded anything the provincial authorities could mount independently.
+
+Lady Yoon realized that the correspondence web she had built — the letters written in dead men's voices — had bought time, not safety. The investigators knew that the network had not died with Song Si-yeol's execution. They were looking for who had inherited it and how it continued to operate.
+
+Eventually, they would trace the letters back to their source.
+
+Unless the source became something they were not looking for.
+
+---
+
 The first client had come to her two years before. A wealthy wife wanted to know whether her husband's failing prospects were the result of his own missteps or of someone in the capital working against him. Lady Yoon had taken the case and named no fee. When the answer was ready, she had sent word that she was prepared to deliver it, and let the wife propose what the answer was worth. The wife had offered information about her own father-in-law's correspondence with a Southerner faction member. Lady Yoon had accepted. The information had become two more leads. Each lead had become two more.
 
 She did not advertise the service. She did not need to. The women told one another carefully and slowly, in the way women shared the names of physicians and seamstresses, and by now she had a small steady stream of clients whose payments — never coin — built the operation more reliably than coin would have.
 
+Now, sitting with the evidence of Scholar Yi's investigation spread before her, Lady Yoon understood what she had been building without knowing it.
+
+The men's network had been about scholarship, memory, historical justice. It had operated through formal channels, official correspondence, documented connections.
+
+The women's network was about survival. It operated through domestic spaces, informal relationships, practical concerns. It gathered different information, moved through different channels, served different purposes.
+
+And it was invisible to investigators who were looking for the wrong thing.
+
+---
+
 She finished the last note and sealed it. The dead names had bought her a season. The women would buy her years.
+
+But first, she had to let the dead men die.
+
+She gathered the correspondence files, the voice notes, the careful records of what had been said to whom. All the apparatus of maintaining the deception that scholarly network still existed.
+
+She burned them in the kitchen brazier, one document at a time, watching five months of careful forgery turn to ash.
+
+Master Kim's voice. Yeong-hak's scholarly formality. Scholar Min's classical references. All gone.
+
+When the fire had consumed everything, she sat in the empty kitchen and contemplated what came next.
+
+The memorial network was dead. The intelligence network was about to be born.
+
+And Scholar Yi, whoever he was, would never find what he was looking for because he would be looking in the wrong place, among the wrong people, asking the wrong questions.
+
+The correspondence web had been a bridge. She had crossed it. Now she would burn it behind her.

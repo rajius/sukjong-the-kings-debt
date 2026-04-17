@@ -1,4 +1,4 @@
-# Chapter 7 -- The Queen Restored
+# Chapter 10 -- The Queen Restored
 
 The evidence arrived before dawn on a gray morning in autumn, carried by a messenger whose urgency suggested the kind of revelation that would reshape everything that followed.
 
