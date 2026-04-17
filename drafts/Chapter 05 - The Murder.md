@@ -116,38 +116,40 @@ She helped him into the house and prepared tea while he settled himself carefull
 
 "You know who."
 
-"I know fragments." His voice was thin. "The network has been dismantled. Much of what we knew is gone."
+He was quiet for a long time. When he spoke, his voice was thin, uncertain. "I know... pieces. Much is gone. The network..." He gestured vaguely, then let his hand fall.
 
-He placed a wrapped package on the table. His hands shook.
+He reached into his bundle and withdrew something small, wrapped in cloth. His hands shook as he placed it on the table.
 
-"What I could save."
+"From Yeong-hak's last letter to me. I kept this part."
 
-She unwrapped it. Maps. Correspondence. Fragments of lists. Not what had once existed. What remained.
+She unwrapped it. A scrap of paper, edges burned or torn. A few characters visible: *...capital... urgent...*
 
-He reached into his bundle once more and withdrew a single sheet of paper, folded small and worn. He laid it beside the rest.
+Nothing more. No names. No clear meaning.
 
-"They overlooked this."
+"Is this all?"
 
-She unfolded it. The paper was torn diagonally. What remained was a strip with one phrase: *...stopped before it reaches...*
+Master Kim seemed to have trouble focusing. "There was... someone asked about him. Before. But I cannot..." He rubbed his temples. "The fever took much. I remember the worry in his letter. Nothing else clear."
 
-Nothing else legible. No seal. No date.
+They sat in silence. The fragment told her nothing useful. A direction, perhaps, but toward what?
 
-"It is not enough," she said.
-
-"No."
-
-"It is a direction."
-
-"Yes."
-
-He looked at her for a long moment, then said: "I have written to Scholar Pak about the seowon. He will take formal responsibility. I told him you already manage the accounts and the correspondence — that he will need you. He understands."
+"I have arranged... Scholar Pak will come for the seowon. I told him you manage the practical matters. He will need that." Master Kim's voice grew stronger with this concrete detail. "You will have a place. Cover."
 
 She nodded.
 
-"Be careful," Master Kim said. "They know the work continues. They may not know who."
+"Be careful," he said. "They are still looking. They know something continues."
 
-After he left, Lady Yoon sat alone with the archive spread before her. Outside, winter was settling over the mountains.
+He could not tell her what. He could not tell her how to proceed. He could only tell her to be careful of dangers he could not name.
 
-She folded the fragment and placed it in the desk where Yeong-hak had once kept his most dangerous documents.
+After he left, Lady Yoon sat alone in the main room. Outside, winter was settling over the mountains.
 
-She began to read the maps.
+She held the fragment, reading the few visible characters again. *...capital... urgent...* It was not enough to build on. Barely enough to constitute a clue.
+
+She folded it and placed it in the desk where Yeong-hak had once kept his most dangerous documents.
+
+The work had killed him. Someone in the capital, perhaps, but she did not know who, or how to find out, or what she would do with the knowledge if she had it. Master Kim's mind was failing. The network was gone. The contacts had been silenced or turned.
+
+She was alone with a fragment that meant nothing and a dead husband's cause that she did not know how to carry forward.
+
+Scholar Pak would come within the month. She would have cover, a place to remain. But that would only keep her safe if she could learn to be someone who posed no threat to anyone.
+
+She was not sure she knew how to be that person.
