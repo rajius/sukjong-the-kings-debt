@@ -50,23 +50,17 @@ A lie wrapped around reasonable precaution. If Scholar Min was still alive, he w
 
 ---
 
-Within two months, Lady Yoon was writing in five different voices.
+Two more names arrived within the month. Scholar Hong from Jeonju — dead of illness the previous winter. Master Chu from Daegu — his family had stopped responding without explanation. She wrote as both, once each, to redirect contacts and close channels that were no longer safe.
 
-Each dead man presented different challenges. Master Kim's scholarly formality was easiest — she had been reading his letters for years. Yeong-hak's academic precision required attention to his argumentative structure. Scholar Min's classical references demanded research.
+Five voices now. She kept the details in her head during the day and committed them to paper at night, in a compartment Scholar Pak would never examine. Who had been told what. Which correspondent expected a follow-up. Which classical reference each dead man would have chosen. The weight of it was not intellectual — any of them would have been easy alone. The weight was simultaneity. Five men thinking at once through a single woman's hand, and none of them could contradict each other.
 
-Two other names had appeared: Scholar Hong from Jeonju, who had died of illness the previous winter, and Master Chu from Daegu, whose family had stopped responding without explanation.
-
-She kept detailed notes about each correspondence: what questions had been asked, what answers given, what future communications promised. The record grew complex enough that she developed a system — certain information in the main desk, other details hidden in compartments Scholar Pak would never examine.
-
-The work was exhausting but effective.
-
-Dangerous inquiries continued to arrive, but now they were handled in ways that protected the living while satisfying correspondents. Information was shared, but nothing that could compromise active contacts.
-
-She was becoming the network's memory.
+She made one mistake. A letter written as Scholar Min cited a passage from the Zuozhuan that Min would never have known — it was from the commentary Mrs. Kim had given her years ago, not from any text in Min's collection. The correspondent did not notice. But Lady Yoon noticed, and she sat with the error for a long time that evening, understanding that the dead names were beginning to blur into her own voice. The forgeries would fail not because someone exposed them but because she would eventually forget where she ended and they began.
 
 ---
 
 The problem she had not anticipated was Scholar Pak himself.
+
+He was a decent man. That was the difficulty. A dishonest man she could have managed. A lazy one she could have ignored. Scholar Pak was neither. He did his work carefully, treated her with genuine courtesy, and brought her tea in the afternoon without being asked — a small kindness that made her feel, each time, the specific weight of what she was doing under his roof.
 
 He began to read the letters before he signed them.
 
@@ -88,8 +82,8 @@ Scholar Pak nodded slowly. The thumb stilled. "I see. And you have been assistin
 
 She would now write twice for every letter. The doubling cost her sleep.
 
-But it taught her to be more careful. Each letter had to satisfy two readers: the original correspondent and Scholar Pak's growing curiosity.
+One night, grinding ink past midnight for the second version of a letter Scholar Pak would read in the morning, she caught herself writing in Yeong-hak's voice instead of Master Kim's. She had been tired. The brush had chosen the wrong man.
 
-The voices of the dead were becoming more elaborate, more cautious.
+She stared at the page for a long time. Then she burned it and started again.
 
-And still the letters kept arriving.
+The dead names were buying her a season. She could feel the season ending.
