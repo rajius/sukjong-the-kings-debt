@@ -74,7 +74,7 @@ She stood in the kitchen doorway. She did not step back. She did not step forwar
 
 "I have considered. The answer is the same."
 
-The answer is wrong. You are a servant in another man's house. You have no family. No dowry. No name that protects you. When he dies, you will have nothing. I am offering you a household.
+"The answer is wrong. You are a servant in another man's house. You have no family. No dowry. No name that protects you. When he dies, you will have nothing. I am offering you a household.
 
 "I have declined."
 
