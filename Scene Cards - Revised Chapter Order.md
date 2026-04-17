@@ -14,13 +14,13 @@ Her formation: maid, Mrs. Kim's books, Master Kim's teaching. Becomes household 
 POV: Sukjong  
 The Wanli/Jianwen formula. Nam returns. Sukjong has the answer but reads the political weather — files the argument. "Not yet."
 
-## Ch 4 — The Queen's Fall (1689)
-POV: Sukjong primary, Lady Yoon secondary
-The Gisa Hwanguk. Sukjong triggers the purge of the Westerners. Song Si-yeol executed. Lady Yoon watches from inside the marriage as her husband's world collapses.
-
-## Ch 5 — The Investigation (1685-1688)
+## Ch 4 — The Investigation (1685-1688)
 POV: Lady Yoon  
 Husband research through women's networks. Meeting, testing, selection. Marriage, early dynamics, "I heard you like reading." Work discovery and Master Kim's midnight visit.
+
+## Ch 5 — The Queen's Fall (1689)
+POV: Sukjong primary, Lady Yoon secondary
+The Gisa Hwanguk. Sukjong triggers the purge of the Westerners. Song Si-yeol executed. Lady Yoon watches from inside the marriage as her husband's world collapses.
 
 ## Ch 6 — [CUT - redundant with Chapter 2]
 Was "The Match" - "Why did you choose me?" scene. Redundant with Chapter 2's "I heard you like reading" conversation. Removed. May add bridge content later.

@@ -1,4 +1,4 @@
-# Chapter 5 -- The Investigation
+# Chapter 4 -- The Investigation
 
 She had never met him. He had left the seowon five years before she arrived — a prodigy, Master Kim said, though he did not use the word with the warmth most teachers use for their best students. He used it the way a craftsman describes a tool that performs beyond specification: precisely, with respect, and with a faint undertone of something that was not quite caution but not quite comfort either.
 
