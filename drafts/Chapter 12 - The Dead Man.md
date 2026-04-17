@@ -80,13 +80,7 @@ He turned. She was at the far wall when he turned back. Hands empty. The veil re
 
 He looked at her. She looked at him. The dead man lay between them on the floor.
 
-"So it was you," she said.
-
-Her voice was steady. The voice he had heard once, at the memorial, telling the host she would return tomorrow. The same voice, in a room with a body, behind a veil that had already failed.
-
-"Yes."
-
-He did not say anything else. He was waiting to see what she would do — the way he had waited at the memorial, the way he had waited in the hold. He was learning, without anyone having taught him, that with this woman the correct response was almost always to wait.
+He did not say anything. He was waiting to see what she would do — the way he had waited at the memorial, the way he had waited in the hold.
 
 She studied him. Not the way she had studied him at the memorial — from across a courtyard, through the professional distance of a room-reader assessing a stranger. This was closer. This was a woman deciding, in real time, whether the man standing in front of her was a threat, an asset, or a complication she could not yet classify.
 
