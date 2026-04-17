@@ -52,26 +52,26 @@ He told her what he had been able to learn from his end. The patterns of inquiry
 
 She listened. She asked three questions. The questions told him she had been working this problem longer than he had and had reached further into it.
 
-When she had finished her last question, she said: "We will meet once more. After that we will not see each other again."
+When she had finished her last question, the professional part of the meeting was over. She could feel the shape of it ending — the moment when the exchange was complete and the distance should return.
 
-"That was not the agreement."
+A timber above the mill wheel had shifted during the conversation — loosened by age, leaning at an angle that would bring it down by the next rain. Yi Hwon noticed it the way he noticed everything structural. Without a word, he moved to the wall, set his shoulder under the beam, and pushed it back into its joint.
 
-"It was the agreement. Two more meetings. This is one. The next is the last."
+His outer robe pulled open with the effort. The inner garment tightened across his back and shoulders — and for a moment, before he settled the timber and stepped away, she saw what the robe had been covering. Not a scholar's body. Not the soft frame of a man who had spent his life at a desk. The body she had held in the dead man's room, felt from the inside of a hold — now seen from the outside, in daylight, doing something that had nothing to do with her and everything to do with the kind of man he was when he was not thinking about being watched.
 
-He held her gaze.
+He straightened. He adjusted his robe. He did not look at her while he did it.
+
+She had been watching. She knew he knew she had been watching. And he had not looked at her — which meant he was giving her the choice of whether to acknowledge what she had just seen or to let it pass.
+
+She did not let it pass. She did not acknowledge it either. She stood very still, the way she stood when she was calculating, except that she was not calculating. She was holding something in place that wanted to move.
+
+"We will meet once more," she said. Her voice was steady. It cost her something to make it steady.
 
 "And then?"
 
 She did not answer immediately. She was looking at the mill wheel — the old mechanism, the wood darkened by years of water, the place where something had once turned and no longer did.
 
-"We will discuss that at the next meeting," she said.
+"When I have decided what to do about you," she said.
 
-"When?"
+She turned and walked toward the trees. At the treeline she stopped and looked back — not at his face, but at his shoulders, the way she might look at something she was considering and had not yet resolved.
 
-"When I have decided what to do about you."
-
-The phrasing was deliberate. Not *about this.* About *you.* He heard it. She had meant him to.
-
-She turned and walked toward the trees on her side of the clearing. At the treeline she stopped and looked back — not at his face, but at his hands, the way she might look at something she was considering and had not yet resolved.
-
-Then she was gone. The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.
+The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.
