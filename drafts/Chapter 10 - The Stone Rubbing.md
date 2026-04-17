@@ -96,8 +96,4 @@ She burned them in the kitchen brazier, one document at a time. Five months of c
 
 Master Kim's voice. Yeong-hak's scholarly formality. Scholar Min's classical references. All gone.
 
-When the fire had consumed everything, she sat in the empty kitchen.
-
-The memorial network was dead. The intelligence network was about to be born.
-
-Scholar Yi would never find what he was looking for because he would be looking in the wrong place, among the wrong people.
+When the fire had consumed everything, she sat in the empty kitchen and contemplated what came next.

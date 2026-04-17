@@ -1,69 +1,104 @@
-# Scene Cards — Revised Chapter Order
+# Scene Cards — CURRENT Chapter Order (17-Chapter Structure)
+
+**ACTIVE STRUCTURE: 17 Chapters (Post-Reorganization)**
 
 ## Ch 1 — The Boy Who Inherited a Crime (1681)
 POV: Multiple (grandmother/girl, scholar/teacher, Sukjong)
-Sukjong elevates Nosan-gun to Nosan Daegun. One word.
+Sukjong elevates Nosan-gun to Nosan Daegun. One word. Memory vs. forgetting.
 
-## Interstitial 1 — The Body (1457)
-Eom Heung-do carries the body up the mountain.
-
-## Ch 2 — The Teacher's Student (1685-1688)
+## Ch 2 — The Teacher's Student (1685-1688)  
 POV: Lady Yoon
-Her formation: maid, Mrs. Kim's books, Master Kim's teaching, the threat, the investigation of the husband, the marriage, the hidden current.
+Her formation: maid, Mrs. Kim's books, Master Kim's teaching. Becomes household manager. Marriage research and selection. "I heard you like reading."
 
 ## Ch 3 — The Altar Not Yet Built (1687-1689)
-POV: Sukjong
-The Wanli/Jianwen formula. Nam returns. Sukjong has the answer but reads the political weather — the storm is coming. Files the argument.
+POV: Sukjong  
+The Wanli/Jianwen formula. Nam returns. Sukjong has the answer but reads the political weather — files the argument. "Not yet."
 
 ## Ch 4 — The Queen's Fall (1689)
 POV: Sukjong primary, Lady Yoon secondary
-The Gisa Hwanguk. Sukjong triggers the purge of the Westerners. Song Si-yeol executed. Lady Yoon watches from inside the marriage as the husband's world collapses. Letters stop. Papers burn.
+The Gisa Hwanguk. Sukjong triggers the purge of the Westerners. Song Si-yeol executed. Lady Yoon watches from inside the marriage as her husband's world collapses.
 
-## Interstitial 2 — Preparation (1457)
-Eom Heung-do prepares the burial. His wife in the doorway.
+## Ch 5 — [MISSING - needs writing]
+TBD - likely more marriage development or hidden current
 
-## Ch 5 — The Murder (1690)
+## Ch 6 — The Match
 POV: Lady Yoon
-The husband dies — hwanguk fallout. His death is meant to look ordinary. Master Kim is dying. She inherits the papers and one concrete clue pointing beyond the province.
+"Why did you choose me?" The marriage negotiation. Distance as respect. "I heard you like reading."
 
-## Ch 6 — The Correspondence Web (~1691-1693)
+## Ch 7 — The Murder (1690)
+POV: Lady Yoon  
+The husband dies — hwanguk fallout. Master Kim failing, fragmentary. She inherits minimal clues: "*...capital... urgent...*" Scholar Pak arrangement.
+
+## Ch 8 — [MISSING - needs writing]
+TBD - likely transition or development chapter
+
+## Ch 9 — The First Forgery (~1691-1693)
 POV: Lady Yoon
-She turns the teacher's network into a covert investigative instrument. First forgery. The stone rubbing. Two lines of inquiry converge on the same name.
+She begins writing in dead men's voices. Correspondence web operations. Scholar Pak's growing suspicion.
 
-## Ch 7 — The Queen Restored (1694)
+## Ch 10 — The Stone Rubbing (~1693)
+POV: Lady Yoon
+The Eom Heung-do inquiry. Scholar Yi's misdirected letter reveals capital investigation. Network pivot to women's channels.
+
+## Ch 11 — The Queen Restored (1694)
 POV: Sukjong
-The Gapsul Hwanguk. Westerners return. Reversal is not repair. The country becomes governable enough for restoration to become possible.
+The Gapsul Hwanguk. Southerner fabrication exposed. Westerners return fragmented. "Order returning over wreckage."
 
-## Ch 8 — The Inspector (1694)
+## Ch 12 — The Memorial (1694)
 POV: Yi Hwon
-Introduction. Military background, civil exam, selected as amhaeng-eosa. Sent to the provinces. Sees what policy becomes outside the capital. First meeting with Lady Yoon.
+Introduction as investigator. Memorial observation. First sight of Lady Yoon managing the room. His moral qualms about surveillance.
 
-## Ch 9 — The Road (1695)
-POV: Yi Hwon and Lady Yoon
-Second meeting. Mutual testing. Goals overlap without matching. Professional recognition and personal rejection.
+## Ch 13 — The Dead Man (early 1694)
+POV: Yi Hwon & Lady Yoon  
+**DURING PEAK SOUTHERNER HUNT.** First real encounter. Professional recognition. Terms established.
 
-## Ch 10 — The Petition (1698)
-POV: Sukjong with Yi Hwon's reports as pressure
-Third meeting between Yi Hwon and Lady Yoon. Local findings become public royal action. Court objections. Sukjong forces the debate and commits to restoration.
+## Ch 14 — The Seowon (early 1694)
+POV: Yi Hwon & Lady Yoon
+Negotiation in her sanctuary. "Two more meetings." Personal declaration alongside professional arrangement.
 
-## Interstitial 3 — The Ascent (1457)
-The physical labor of carrying the body uphill. The pine tree.
+## Ch 15 — The Road (1694)
+POV: Yi Hwon & Lady Yoon
+Working journey. Stream crossing intimacy. "There is someone. In the capital. Soonyi."
 
-## Ch 11 — The Name (1698)
-POV: All three threads converge
-Danjong restored. The decree lands. Yi Hwon witnesses reception. Lady Yoon's guard lowers.
-
-## Ch 12 — The Altar (1698)
-POV: Sukjong
-Jongmyo ceremony restoring Danjong. Public ritual complete, doubt intact. Ceremony fixes memory, not motive.
-
-## Ch 13 — The Name Behind the Name
-POV: Lady Yoon and Yi Hwon
-She discovers the husband's death belongs inside the same political victory the novel has just achieved. The relationship becomes impossible.
-
-## Ch 14 — The Procession (1699)
+## Ch 16 — The Handkerchief (1694)
 POV: Lady Yoon
-Capital. Jongmyo procession. She sees Sukjong from the crowd. Married life with Yi Hwon built within acknowledged institutional complexity.
+Discovery of Soonyi's handkerchief. Inquiry sent. Devastating reply: "Twenty-four. Unmarried." The pain.
 
-## Final Interstitial — The Finished Grave (1457)
-The burial is complete. Snow covers disturbed earth by morning.
+## Ch 17 — The Mill (1694)
+POV: Yi Hwon & Lady Yoon
+Final intelligence exchange. Her men outflanking his men. She ends it: "You go home." **SOUTHERNERS STILL HUNTING.**
+
+---
+
+## PLANNED (Development Notes):
+
+## Ch 18 — The Infrastructure Lost (1694-1698)
+POV: Sukjong
+Yi Hwon reports back: knowledge infrastructure systematically destroyed. Sukjong's realization: "Those were my people." Political readiness meets infrastructural devastation.
+
+## Ch 19 — The Third Meeting (1698) 
+POV: Yi Hwon & Lady Yoon
+**COLLABORATIVE.** "I need your help to restore what was destroyed." From surveillance to reconstruction partnership.
+
+## Final Scene — The Procession (1699)
+POV: Lady Yoon
+She sees Sukjong at the Jongmyo procession - the culmination of her need to see the face behind all their sacrifices. "The machinery never stopped."
+
+---
+
+## KEY TIMELINE:
+- **Early 1694**: Yi Hwon/Lady Yoon partnership during Southerner systematic hunt (Chapters 13-17)
+- **Mid 1694**: Yi Hwon reports infrastructure destruction to Sukjong  
+- **Late 1694**: Southerners eliminated (Chapter 11) - partly due to Yi Hwon's intelligence
+- **1694-1698**: Court stabilization, Sukjong's growing realization
+- **1698**: Third meeting - collaborative infrastructure restoration
+- **1699**: Final procession scene
+
+## STRUCTURAL NOTES:
+- Chapters 5 and 8 remain TBD 
+- Yi Hwon/Lady Yoon sequence (13-17) successfully expanded from overloaded single chapter
+- Widow transition (6-7, 9-10) now develops in stages rather than summary
+- **Tone risk**: Chapter 6 standalone coldness needs later warmth to justify
+- **Ending issue**: Chapter 10 still explains meaning instead of landing turn
+
+**The king's debt gets paid through partnership with the networks he tried to destroy.**
