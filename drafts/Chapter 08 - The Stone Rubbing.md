@@ -50,16 +50,10 @@ The rubbing was not in the archive because it did not yet exist. Her husband had
 
 ---
 
-She did not sleep that night. She sat with the notes spread on the desk and traced Yeong-hak's sketch of the tablet with her finger. The stone was still there — if it had not been found and destroyed in the year since his death. The inscriptions were still readable — if weather and neglect had not done what the state had failed to do two centuries ago.
+She did not sleep that night. She sat with the notes spread on the desk and traced Yeong-hak's sketch of the tablet with her finger.
 
-The rubbing her husband had died trying to complete was still possible.
+The final entry was a list of materials for the second visit. Heavy paper. Ink blocks. A mallet. Cloth for padding.
 
-She could not go herself. A widow traveling alone to a remote mountain tomb would be noticed, questioned, remembered. She could not send anyone from the seowon — Scholar Pak's curiosity was already too sharp, and any connection between the seowon and Eom Heung-do's tomb would finish them both.
+The list of a man who expected to return.
 
-But the young man who had come asking about the rubbing — he knew the tomb existed. He knew the inscriptions were there. And he had come to the seowon expecting to find the evidence, which meant he wanted it to survive.
-
-She did not know who he was. She did not know who had sent him. She did not know whether he was an ally, a trap, or something she had not yet learned to recognize.
-
-She knew only that her husband's unfinished work was sitting in a mountainside in Chungju, carved in stone, waiting for someone to press paper against it and bring it home.
-
-She folded the notes and placed them back in the compartment. She would need to think about this carefully. The young man had said he would return. He had not said when.
+She folded the notes and placed them back in the compartment. The young man had said he would return too. He had not said when.
