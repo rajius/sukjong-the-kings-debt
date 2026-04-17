@@ -76,7 +76,11 @@ Each return told her something. Scholar Woo in Gangwon had not answered — his 
 
 She kept a list. Not of the living — of the dead. Each failed redirection was a node she could cross off the map. The network was shrinking, and the returns were drawing its new borders.
 
-Five voices now. She kept the details in her head during the day and committed them to paper at night, in a compartment Scholar Pak would never examine. Who had been told what. Which correspondent expected a follow-up. Which classical reference each dead man would have chosen. The weight of it was not intellectual — any of them would have been easy alone. The weight was simultaneity. Five men thinking at once through a single woman's hand, and none of them could contradict each other.
+Five voices now. She kept the details in her head during the day and committed them to paper at night, in a compartment Scholar Pak would never examine. Who had been told what. Which correspondent expected a follow-up. Which classical reference each dead man would have chosen.
+
+Her hands had begun to cramp in the evenings. She soaked them in warm water after the household was asleep, flexing the fingers in the dark until the joints loosened enough to hold a brush again in the morning. She was losing weight. The herbs the physician had given her months ago were finished, and she had not gone back, because going back would mean explaining how her days were spent, and no explanation she could give would survive a physician's attention.
+
+The weight of it was not intellectual — any of them would have been easy alone. The weight was simultaneity. Five men thinking at once through a single woman's hand, and none of them could contradict each other.
 
 She made one mistake. A letter written as Scholar Min drew a connection between two passages that Min — a methodical, curriculum-trained scholar — would never have drawn. It was one of her connections, the lateral kind, linking texts through an angle that only someone who had read unsystematically by firelight would see. The correspondent did not notice. But Lady Yoon noticed, and she sat with the error for a long time that evening. The forgeries would fail not because someone exposed them but because she would eventually forget where she ended and they began.
 
@@ -104,10 +108,12 @@ Scholar Pak nodded slowly. The thumb stilled. "I see. And you have been assistin
 
 "Of course." He set the letter aside but did not sign it. "Perhaps in the future, you should prepare a brief summary of each inquiry for my review. So I can better understand the context of my replies."
 
+He said it gently. He said everything gently. The previous week he had noticed her light burning past midnight and left a blanket folded outside her door without comment. She had held the blanket for a long time before she could bring herself to use it.
+
 She would now write twice for every letter. The doubling cost her sleep.
 
 One night, grinding ink past midnight for the second version of a letter Scholar Pak would read in the morning, she caught herself writing in Yeong-hak's voice instead of Master Kim's. She had been tired. The brush had chosen the wrong man.
 
-She stared at the page for a long time. Then she burned it and started again.
+She stared at the page. Her hands ached. The blanket Scholar Pak had left was around her shoulders. Outside, the first frost had come.
 
-The dead names were buying her a season. She could feel the season ending.
+She burned the page and started again. But she understood now that she was running out of time, out of hands, and out of dead men whose voices could carry what the living were too afraid to say.
