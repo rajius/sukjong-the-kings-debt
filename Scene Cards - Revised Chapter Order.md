@@ -21,9 +21,8 @@ The Gisa Hwanguk. Sukjong triggers the purge of the Westerners. Song Si-yeol exe
 ## Ch 5 — [MISSING - needs writing]
 TBD - likely more marriage development or hidden current
 
-## Ch 6 — The Match
-POV: Lady Yoon
-"Why did you choose me?" The marriage negotiation. Distance as respect. "I heard you like reading."
+## Ch 6 — [CUT - redundant with Chapter 2]
+Was "The Match" - "Why did you choose me?" scene. Redundant with Chapter 2's "I heard you like reading" conversation. Removed. May add bridge content later.
 
 ## Ch 7 — The Murder (1690)
 POV: Lady Yoon  
@@ -95,10 +94,10 @@ She sees Sukjong at the Jongmyo procession - the culmination of her need to see 
 - **1699**: Final procession scene
 
 ## STRUCTURAL NOTES:
-- Chapters 5 and 8 remain TBD 
+- Chapters 5, 6, and 8 remain TBD (Chapter 6 cut due to redundancy with Chapter 2)
 - Yi Hwon/Lady Yoon sequence (13-17) successfully expanded from overloaded single chapter
-- Widow transition (6-7, 9-10) now develops in stages rather than summary
-- **Tone risk**: Chapter 6 standalone coldness needs later warmth to justify
-- **Ending issue**: Chapter 10 still explains meaning instead of landing turn
+- Widow transition (7, 9-10) now develops in stages rather than summary
+- **Resolved**: Chapter 6 tonal risk eliminated by cutting redundant scene
+- **Fixed**: Chapter 10 ending no longer overexplains
 
 **The king's debt gets paid through partnership with the networks he tried to destroy.**
