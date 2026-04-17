@@ -74,15 +74,13 @@ Unless the source became something they were not looking for.
 
 ---
 
-The first client had come to her two years before. A wealthy wife wanted to know whether her husband's failing prospects were the result of his own missteps or of someone in the capital working against him. Lady Yoon had taken the case and named no fee. When the answer was ready, she had sent word that she was prepared to deliver it, and let the wife propose what the answer was worth. The wife had offered information about her own father-in-law's correspondence with a Southerner faction member. Lady Yoon had accepted. The information had become two more leads. Each lead had become two more.
+The skill had been there since the capital. She had learned it without naming it — placing two ordinary facts beside each other until a third thing emerged that was not ordinary at all. Her husband had seen it. *Be careful with your skills,* he had said. She had been careful. She had also been building.
 
-She did not advertise the service. She did not need to. The women told one another carefully and slowly, in the way women shared the names of physicians and seamstresses, and by now she had a small steady stream of clients whose payments — never coin — built the operation more reliably than coin would have.
+The women told one another carefully and slowly, in the way women shared the names of physicians and seamstresses. By now she had a small steady stream of clients whose payments — never coin — built the operation more reliably than coin would have.
 
-Now, sitting with the evidence of Scholar Yi's investigation spread before her, Lady Yoon understood what she had been building without knowing it.
+Now, sitting with the evidence of Scholar Yi's investigation spread before her, she understood what the men's network could not survive and the women's network could.
 
-The men's network had operated through formal channels, official correspondence, documented connections.
-
-The women's network operated through domestic spaces, informal relationships. It was invisible to investigators looking for the wrong thing.
+The investigators were looking for scholarly correspondence, documented connections, formal channels. They were not looking for gathering invitations, fabric samples, and polite inquiries about the price of rice.
 
 ---
 
