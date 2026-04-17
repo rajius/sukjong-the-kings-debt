@@ -74,9 +74,17 @@ Unless the source became something they were not looking for.
 
 ---
 
-The skill had been there since the capital. She had learned it without naming it — placing two ordinary facts beside each other until a third thing emerged that was not ordinary at all. Her husband had seen it. *Be careful with your skills,* he had said. She had been careful. She had also been building.
+The skill had been there since the capital. She had learned it without naming it.
 
-The women told one another carefully and slowly, in the way women shared the names of physicians and seamstresses. By now she had a small steady stream of clients whose payments — never coin — built the operation more reliably than coin would have.
+She remembered the evening she had told Yeong-hak about Lady Choe — how the woman had approached her at the magistrate's wives' gathering, worried about her brother's posting in Wonju. Lady Yoon had mentioned, as one detail among many, that the paper merchant who supplied the Wonju office had shifted his route south, and that a schoolteacher had heard from a colleague about new leadership making changes to the local curriculum. She had not told Lady Choe what it meant. She had placed the two things next to each other and let the woman see it herself.
+
+Within a month, Lady Choe had moved her brother's documents to safety. Within two months, the brother had been quietly reassigned. No shame. No surprise.
+
+Yeong-hak had watched her tell the story and had set down his chopsticks. *Be careful with your skills,* he had said.
+
+She had been careful. She had also been building.
+
+The women told one another carefully and slowly, in the way women shared the names of physicians and seamstresses. By now she had a small steady stream of clients. Some paid in coin — the practical income that kept her household standing. Some paid in something more useful: information, introductions, access to households she could not otherwise enter. Each payment of either kind fed the next investigation.
 
 Now, sitting with the evidence of Scholar Yi's investigation spread before her, she understood what the men's network could not survive and the women's network could.
 
