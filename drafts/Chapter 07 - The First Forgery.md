@@ -66,6 +66,10 @@ Two more names arrived within the month. Scholar Hong from Jeonju — one of Mas
 
 She had not routed their contacts to the seowon. She had routed them elsewhere — to provincial nodes she thought were safe. But those nodes had gone dark too, and the contacts, finding no answer at the address Lady Yoon had given them, had searched the scholarly network for whoever was still responding. The seowon was still responding. So the letters came back.
 
+Each return told her something. Scholar Woo in Gangwon had not answered — his seowon was either closed or compromised. The intermediary in Chungju had stopped forwarding. The contact in Andong had received no reply from the address she had given and was now writing directly to Master Kim instead.
+
+She kept a list. Not of the living — of the dead. Each failed redirection was a node she could cross off the map. The network was shrinking, and the returns were drawing its new borders.
+
 Five voices now. She kept the details in her head during the day and committed them to paper at night, in a compartment Scholar Pak would never examine. Who had been told what. Which correspondent expected a follow-up. Which classical reference each dead man would have chosen. The weight of it was not intellectual — any of them would have been easy alone. The weight was simultaneity. Five men thinking at once through a single woman's hand, and none of them could contradict each other.
 
 She made one mistake. A letter written as Scholar Min drew a connection between two passages that Min — a methodical, curriculum-trained scholar — would never have drawn. It was one of her connections, the lateral kind, linking texts through an angle that only someone who had read unsystematically by firelight would see. The correspondent did not notice. But Lady Yoon noticed, and she sat with the error for a long time that evening. The forgeries would fail not because someone exposed them but because she would eventually forget where she ended and they began.
