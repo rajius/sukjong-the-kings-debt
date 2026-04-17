@@ -1,4 +1,4 @@
-# Chapter 13 -- The Road
+# Chapter 14 -- The Road
 
 The first of the two meetings she had promised was not a meeting at all in the formal sense. It was a road.
 
@@ -29,33 +29,3 @@ The corner of her mouth moved.
 "You have no idea."
 
 They walked on. He carried the gourd the rest of the day. She did not ask him to. He did not offer.
-
-That evening at the inn, with the day's walking still in his legs and the stream crossing somewhere behind them, he said her name.
-
-"There is someone. In the capital."
-
-He did not look at her. His voice was easy — the voice of a man making a small offering to balance the one he had received.
-
-"Soonyi. We grew up on the same street."
-
-He said nothing else. She nodded.
-
-"Childhood friends."
-
-"Something like that."
-
-They did not speak of it again that night.
-
----
-
-Three days later, she was tidying the room at the inn they were sharing at separate ends of the corridor — he by the door, she by the window, the propriety neither of them discussed. His travel pack had shifted in the night, and a few items had spilled near the screen. She gathered them — a brush case, a folded map, a small cloth bundle — and as she lifted the bundle, something slipped from its folds.
-
-A handkerchief. Silk. Not expensive, but good — the kind of quality a prosperous merchant's household would produce. Pale blue-grey. The stitching along the edge was careful, even, patient. Not professional. Personal.
-
-At one corner, embroidered in thread only slightly darker than the silk: 순.
-
-She folded it, placed it back, and returned everything to his pack exactly as it had been.
-
----
-
-The yamen records gave up what she had expected they would. They returned north together, and at a crossroads two days short of his garrison, they parted without ceremony. She had a separate destination. He understood not to ask what it was.
