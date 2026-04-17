@@ -2,7 +2,7 @@
 
 Scholar Pak arrived in the third month of the new year, grateful and overwhelmed in equal measure.
 
-Lady Yoon met him at the gate and explained the essential routines: morning lectures, meal schedules, the correspondence that required attention. Scholar Pak asked intelligent questions, took careful notes, and by evening seemed confident about managing the teaching. Everything else would continue to depend on her knowledge.
+Lady Yoon met him at the gate and explained the essential routines. Scholar Pak asked intelligent questions, and by evening seemed confident about managing the teaching. Everything else would depend on her knowledge.
 
 Which was exactly as Master Kim had intended.
 
@@ -16,7 +16,7 @@ Lady Yoon read the letter carefully. The writer was asking about burial records 
 
 Scholar Pak looked relieved. "That would be most helpful."
 
-She spent the afternoon crafting Master Kim's voice: the formal courtesy, the careful indirection, the scholarly references that established credibility without revealing dangerous knowledge. By evening, she had produced a letter that would satisfy the correspondent while providing no actual information.
+She spent the afternoon crafting Master Kim's voice: the formal courtesy, careful indirection, scholarly references that established credibility without revealing dangerous knowledge.
 
 Scholar Pak signed it without reading it closely.
 
@@ -26,13 +26,13 @@ A letter forwarded from Yeong-hak's old capital address reached her two weeks la
 
 This was not a system. It was triage. Each letter was a question of how long the lag would last before someone noticed.
 
-She spent three evenings learning to reproduce Yeong-hak's handwriting. His brush strokes were more angular than hers, his spacing tighter. He had a habit of beginning sentences with classical phrases, then shifting to more direct language in the body of his arguments. He used particular seals for different types of correspondence.
+She spent three evenings learning to reproduce Yeong-hak's handwriting. His brush strokes were more angular, his spacing tighter. He began sentences with classical phrases, then shifted to direct language.
 
-The second letter addressed to him was easier. She wrote as if she were Yeong-hak responding to an old academic acquaintance about shared research interests. Polite deflection, suggestion of other resources, gradual redirection of the inquiry away from anything that could compromise the remaining contacts.
+The second letter addressed to him was easier. Polite deflection, suggestion of other resources, gradual redirection away from anything that could compromise remaining contacts.
 
-By the fourth letter, she could inhabit his voice completely. The scholarly formality came naturally now. She knew which classical references he would choose, which diplomatic phrases he would use to decline dangerous requests.
+By the fourth letter, she could inhabit his voice completely. She knew which classical references he would choose, which diplomatic phrases he would use to decline dangerous requests.
 
-It was, she realized, a form of haunting. She was keeping her husband alive on paper, maintaining conversations he would never finish, honoring commitments he would never fulfill.
+She was keeping her husband alive on paper.
 
 ---
 
@@ -42,29 +42,27 @@ The correspondent was asking whether Master Kim had received Scholar Min's recen
 
 But someone thought Scholar Min was still active.
 
-She spent two days considering how to respond. The letter suggested that someone was testing connections, trying to determine which parts of the old network remained operational. A wrong answer could expose contacts that were still secure.
+She spent two days considering how to respond. The letter suggested someone was testing connections, trying to determine which parts of the old network remained operational.
 
-She wrote back as Master Kim, explaining that Scholar Min had indeed been in touch, but that recent political changes had made direct correspondence inadvisable. She suggested that future communications should be routed through intermediaries at provincial seowon, providing the names of three schools that could serve as neutral forwarding points.
+She wrote back as Master Kim, explaining that Scholar Min had been in touch, but that recent political changes made direct correspondence inadvisable. She suggested routing future communications through intermediaries at provincial seowon.
 
-It was a lie wrapped around a reasonable precaution. If Scholar Min was still alive and still working, he would understand the suggestion. If someone else was using his name to test the network, they would receive plausible information that revealed nothing dangerous.
+A lie wrapped around reasonable precaution. If Scholar Min was still alive, he would understand. If someone else was using his name, they would receive plausible information that revealed nothing dangerous.
 
 ---
 
 Within two months, Lady Yoon was writing in five different voices.
 
-Each dead man presented different challenges. Master Kim's scholarly formality was easiest to replicate — she had been reading his letters for years. Yeong-hak's academic precision required careful attention to his argumentative structure. Scholar Min's classical references demanded research she had to conduct in the seowon library. 
+Each dead man presented different challenges. Master Kim's scholarly formality was easiest — she had been reading his letters for years. Yeong-hak's academic precision required attention to his argumentative structure. Scholar Min's classical references demanded research.
 
-Two other names had appeared: Scholar Hong from Jeonju, who had died of illness the previous winter, and Master Chu from Daegu, whose family had stopped responding to letters without explanation.
+Two other names had appeared: Scholar Hong from Jeonju, who had died of illness the previous winter, and Master Chu from Daegu, whose family had stopped responding without explanation.
 
-Each voice required different knowledge, different social connections, different ways of deflecting dangerous inquiries while maintaining the appearance of scholarly cooperation.
+She kept detailed notes about each correspondence: what questions had been asked, what answers given, what future communications promised. The record grew complex enough that she developed a system — certain information in the main desk, other details hidden in compartments Scholar Pak would never examine.
 
-She kept detailed notes about each correspondence: what questions had been asked, what answers had been given, what future communications had been promised. The record grew complex enough that she had to develop a system for organizing it — certain information kept in the main desk, other details hidden in compartments that Scholar Pak would never think to examine.
+The work was exhausting but effective.
 
-The work was exhausting. But it was also effective.
+Dangerous inquiries continued to arrive, but now they were handled in ways that protected the living while satisfying correspondents. Information was shared, but nothing that could compromise active contacts.
 
-The dangerous inquiries continued to arrive, but now they were being handled in ways that protected the living while satisfying the correspondents. Information was shared, but nothing that could compromise active contacts. Research was discussed, but in terms that revealed no specific locations or current activities.
-
-She was becoming the network's memory, keeping track of what had been said to whom, maintaining the continuity that would prevent contradictions from exposing the deception.
+She was becoming the network's memory.
 
 ---
 
@@ -72,9 +70,9 @@ The problem she had not anticipated was Scholar Pak himself.
 
 He began to read the letters before he signed them.
 
-He had a habit when he found something that puzzled him — he would set the letter on the desk, square its edges with the side of his thumb, and look at it for a long moment before he asked the question. Lady Yoon learned to watch for the thumb.
+He had a habit when he found something puzzling — he would set the letter on the desk, square its edges with his thumb, and look at it for a long moment. Lady Yoon learned to watch for the thumb.
 
-"We receive a remarkable amount of genealogical correspondence," he said one afternoon, the thumb already moving along the paper's edge. "Families from quite distant provinces seem to know about our research resources."
+"We receive a remarkable amount of genealogical correspondence," he said one afternoon. "Families from quite distant provinces seem to know about our research resources."
 
 Lady Yoon continued grinding ink. "Master Kim developed a reputation for thoroughness."
 
@@ -90,8 +88,8 @@ Scholar Pak nodded slowly. The thumb stilled. "I see. And you have been assistin
 
 She would now write twice for every letter. The doubling cost her sleep.
 
-But it also taught her to be more careful. Each letter had to satisfy two readers now: the original correspondent and Scholar Pak's growing curiosity about the seowon's unexpected scholarly prominence.
+But it taught her to be more careful. Each letter had to satisfy two readers: the original correspondent and Scholar Pak's growing curiosity.
 
-The voices of the dead were becoming more elaborate, more cautious, more precise in their deceptions.
+The voices of the dead were becoming more elaborate, more cautious.
 
 And still the letters kept arriving.

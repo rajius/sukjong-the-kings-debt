@@ -2,7 +2,7 @@
 
 The volume arrived without ceremony.
 
-Sukjong found it on his private desk one morning in early spring, wrapped in plain silk. No note. No explanation. Only the careful placement that meant a trusted intermediary had delivered what someone thought the king should see.
+Sukjong found it on his private desk one morning, wrapped in plain silk. No note. Only the placement that meant a trusted intermediary had delivered what someone thought the king should see.
 
 The binding was Chinese, the paper thin and yellowed. Ming imperial records, copied during the Wanli reign. He opened it to a page marked with a strip of red silk.
 
@@ -16,7 +16,7 @@ He set the book down and stared at it for a long time.
 
 "You have read it," Scholar Yoon said.
 
-They were in the king's private study three days later, the volume open between them. Yoon was old enough to remember the early years of Hyojong's reign, careful enough to survive the decades since. Sukjong trusted his discretion more than his brilliance.
+They were in the king's private study three days later, the volume open between them. Yoon was old enough to remember Hyojong's early reign, careful enough to survive the decades since.
 
 "The parallel is exact," Sukjong said.
 
@@ -40,7 +40,7 @@ Nam read the marked passage, his expression growing more troubled with each line
 
 "Because?"
 
-"Because it makes the Westerner position intellectually unassailable. If you can honor both the wronged prince and the dynasty that followed, then the moral argument becomes politically sustainable." Nam looked directly at the king. "They would rather the question remain unsolved than solved in our favor."
+Because it makes the Westerner position intellectually unassailable. They would rather the question remain unsolved than solved in our favor.
 
 Sukjong had been expecting this. Nam's sources were better than the court's gossip, and the court's gossip had been shifting for months.
 
@@ -52,7 +52,7 @@ Sukjong had been expecting this. Nam's sources were better than the court's goss
 
 Nam's expression tightened almost imperceptibly. "The queen's favor continues to decline."
 
-They sat in silence. Through the window, Sukjong could see the spring light falling across the palace walls, the same light that had fallen on these same walls when Sejo made his choice, when Danjong died in exile, when Scholar Kim first asked his careful questions about the boy's grave.
+They sat in silence.
 
 "There is another consideration," Nam said. "Wanli's armies saved this dynasty. If the emperor who preserved us could restore his wronged nephew while we fail to restore ours, that is more than a missed precedent."
 
@@ -70,9 +70,9 @@ Minister Yi Saek, newly elevated to the council after years in minor posts, paus
 
 The room went quiet. Sukjong kept his expression neutral. "What concerns?"
 
-"Research into burial sites from the Sejo period. Questions being asked about... historical records that might better remain undisturbed." Yi's voice was respectful, careful. "The Southern scholars believe such inquiries serve no useful purpose and may cause unnecessary discord."
+Research into burial sites from the Sejo period. Questions being asked about historical records that might better remain undisturbed. The Southern scholars believe such inquiries serve no useful purpose.
 
-The message was clear: they knew. They were watching. They were prepared to act.
+The message was clear: they knew.
 
 Sukjong looked around the council table. Half the faces were familiar, men who had served with his father. The other half were newer, aligned with different priorities. The balance had shifted without his permission.
 
@@ -86,19 +86,19 @@ The Southerners had a question he could not answer. *Your Majesty, do you wish y
 
 And there was the other thing.
 
-Jang Hui-bin's body had not stayed quiet the way the queen's had. The child she carried — a son, the physicians were certain — would be born before winter. Sukjong wanted the boy. He could not pretend otherwise.
+Jang Hui-bin carried a son who would be born before winter. Sukjong wanted the boy.
 
-But the women were factional flags. The queen was the Westerners' standard. Jang Hui-bin was the Southerners' instrument. The faction that would carry the Danjong restoration was the faction he would have to destroy to seat his own son.
+But the women were factional flags. The faction that would carry the Danjong restoration was the faction he would have to destroy to seat his son.
 
 He could not have both.
 
 ---
 
-The decision came in autumn, on a day when the light slanted low through the study windows.
+The decision came in autumn.
 
-Sukjong sat with the book in his hands. The solution was there. The precedent was clear. The moral debt was undeniable. And the political ground was shifting beneath all of it.
+Sukjong sat with the book in his hands. The solution was clear. The precedent undeniable. But the political ground was shifting.
 
-To act now would be to tie the restoration to a faction in decline. The Southerners would see it as a Westerner project, something to be undone when they took control. The formula would be discredited along with the faction that had presented it.
+To act now would tie the restoration to a faction in decline. The Southerners would see it as a Westerner project, to be undone when they took control.
 
 To wait meant accepting that good ideas could be destroyed by bad timing.
 
@@ -108,10 +108,10 @@ He took out brush, ink, and paper. He wrote slowly, in his own hand:
 
 He sat with the document in front of him.
 
-He thought of his twenty-year-old self, six years ago, leaning across a desk to argue with Nam Guman over a single syllable. *I want to restore him fully.* The voice that had said it was still in him. 
+He thought of his twenty-year-old self, arguing with Nam Guman over a single syllable. *I want to restore him fully.* 
 
-He set the brush down. His hand shook slightly. He pressed it flat against the desk until it stopped.
+He set the brush down. His hand shook slightly.
 
-He had become the man Nam had been. He had become the voice that said *not yet.* 
+He had become the voice that said *not yet.* 
 
-He sealed the document. He placed it in the wooden chest where it would wait.
+He sealed the document and placed it in the wooden chest where it would wait.

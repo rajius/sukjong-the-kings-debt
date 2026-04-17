@@ -34,7 +34,7 @@ Two rooms behind a courtyard near the south wall of the palace complex, with a s
 
 Yi Hwon considered the question carefully. "No, sir. I thought it should be filed accurately. What was done with it after was not my decision."
 
-Yu studied him for a moment with the particular attention of a man who had heard many young officers explain their own work. He was not a tall man, and he held himself the way men hold themselves who have been making consequential decisions for long enough that the consequences had stopped frightening them. He looked, Yi Hwon thought, exactly like a man who was about to give an instruction.
+Yu studied him for a moment. He was not a tall man, and he held himself the way men hold themselves who have been making consequential decisions for long enough that the consequences had stopped frightening them.
 
 "There has been administrative paralysis in three provinces since the spring," Yu said. "Officials are afraid to make ordinary decisions because they do not know which way the political weather will turn. I am being sent to assess the situation and recommend corrections. My core staff will handle the formal inspection. I need one man for the road work."
 

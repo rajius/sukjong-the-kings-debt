@@ -12,7 +12,7 @@ Sukjong read without expression. The language was precise, respectful, and absol
 
 The conditional was pointed. The queen had been married to Sukjong for seven years. Lady Jang had given him a son in two.
 
-Sukjong set the memorial down and walked to the window. The palace courtyard was bright with summer light, the stones clean and orderly. The same courtyard where his father had walked when the Westerners had supported his decisions. Where his grandfather had walked when different factions had contested different questions.
+Sukjong set the memorial down and walked to the window.
 
 "They mean to decide this for me," he said.
 
@@ -58,15 +58,15 @@ The man who had walked away from the fourteen-year-old king was gone.
 
 Lady Yoon was alone in the kitchen when the visitor arrived.
 
-She heard voices at the gate—her husband's voice and another, unfamiliar but urgent. Through the window, she could see them standing by the entrance: Yeong-hak and a man she did not recognize, dressed in the plain robes of a provincial scholar.
+She heard voices at the gate—her husband's and another, unfamiliar. Through the window, she could see Yeong-hak and a man in plain robes.
 
-The conversation was brief. The visitor handed over something small, spoke words she could not hear, and departed quickly. Yeong-hak remained at the gate for a long moment, then walked toward the house with whatever he had received.
+The conversation was brief. The visitor handed over something small and departed quickly. Yeong-hak remained at the gate for a moment, then walked toward the house.
 
 She heard the study door close.
 
-An hour passed. Then another. When Yeong-hak finally emerged, something in his bearing had changed. Not dramatically—he was not a man given to dramatic expressions—but in the small ways she had learned to read: the set of his shoulders, the quality of his silence.
+When Yeong-hak finally emerged, something in his bearing had changed—the set of his shoulders, the quality of his silence.
 
-That evening, he worked later than usual. She heard him moving between the study and the kitchen several times after she had gone to bed. In the morning, she noticed that the fire had burned unusually late, and that some of the papers that had been on his desk the day before were no longer there.
+That evening, he worked later than usual. She heard him moving between study and kitchen after she had gone to bed. In the morning, the fire had burned unusually late, and some papers from his desk were gone.
 
 "Is everything well?" she asked as she prepared his morning tea.
 
@@ -84,13 +84,13 @@ Yeong-hak looked at her for a long moment. "It means the work becomes more caref
 
 ---
 
-Scholar Min stopped writing after two weeks. His letters had come monthly for three years—news from Andong, observations about local records, careful inquiries about research progress. When the silence stretched past a month, Yeong-hak sent a cautious message asking about a shared text. The response came from Min's son: his father was no longer corresponding with scholars outside the county.
+Scholar Min stopped writing after two weeks. When the silence stretched past a month, Yeong-hak sent a cautious message. The response came from Min's son: his father was no longer corresponding with scholars outside the county.
 
-Master Cho's letter arrived torn. Someone had opened it, read it, resealed it carelessly. The contents were innocuous—a request for book recommendations—but the violation was clear. Yeong-hak burned it without replying.
+Master Cho's letter arrived torn. Someone had opened it, resealed it carelessly. Yeong-hak burned it without replying.
 
-The man who delivered rice stopped asking about payment schedules. For months, he had carried messages between their house and contacts in the market town. Now he left the grain at the gate and departed without conversation.
+The man who delivered rice stopped asking about payment schedules. Now he left the grain at the gate and departed without conversation.
 
-Lady Yoon watched these small erasures accumulate. Each loss was minor, explicable, deniable. Together, they formed a pattern that felt like being slowly surrounded.
+Lady Yoon watched these small erasures accumulate.
 
 One evening, she found Yeong-hak at his desk with ink and brush but no paper. He sat for a long time, staring at nothing.
 
@@ -102,9 +102,9 @@ She set the brush back in its holder. There was nothing to say.
 
 Three days later, a letter arrived that did not fit the pattern.
 
-Lady Yoon was cleaning the study when she noticed it on the desk—a single sheet of paper, folded but not sealed, written in a hand she did not recognize. It had not been there that morning when she brought Yeong-hak his tea.
+Lady Yoon was cleaning the study when she noticed it on the desk—a single sheet, folded but not sealed, in a hand she did not recognize. It had not been there that morning.
 
-She paused, holding the brush she had been arranging. The letter was positioned deliberately, placed where she would see it if she happened to look but not so obviously that it seemed intended for her.
+She paused. The letter was positioned deliberately, where she would see it if she happened to look.
 
 The handwriting was careful, modern. The message was brief:
 
@@ -112,11 +112,11 @@ The handwriting was careful, modern. The message was brief:
 
 There was no signature. No indication of who had sent it or how it had arrived.
 
-Lady Yoon read it twice, then folded it exactly as it had been and returned it to its position on the desk. She finished arranging the brushes and left the study.
+Lady Yoon read it twice, then folded it exactly as it had been and returned it to its position. She finished arranging the brushes and left the study.
 
-That evening, when Yeong-hak came in for dinner, she watched his face as he moved around the house. He gave no sign that he had received unusual correspondence. He spoke normally about his day, asked about hers, worked at his desk after the meal as he always did.
+That evening, Yeong-hak gave no sign that he had received unusual correspondence. He spoke normally, worked at his desk as always.
 
-But when she went to bed, she heard him remain in the study longer than usual. And in the morning, when she cleaned the room again, the letter was gone.
+But he remained in the study longer than usual. In the morning, the letter was gone.
 
 ---
 
@@ -126,13 +126,11 @@ Outside, the palace was settling into the new order. The kingdom was stable. The
 
 ---
 
-In the days that followed, Yeong-hak burned more than he wrote.
+In the days that followed, Yeong-hak burned more than he wrote. He completed documents that had been in progress for months. The brazier was lit every evening.
 
-He completed documents that had been in progress for months. He organized papers in stacks that no longer accumulated. The brush moved less. The brazier was lit every evening, even when the room did not need warming.
+She did not ask about the letter. But she watched him make choices that suggested he understood the warning.
 
-She did not ask about the letter. She did not mention that she had seen it. But she watched him make choices that suggested he understood the warning it contained.
-
-When he worked late into the night, she ground his ink and trimmed his brushes as she always had. When he sealed documents and placed them in the desk compartment, she was there to hand him the wax he needed.
+When he worked late, she ground his ink and trimmed his brushes as always. When he sealed documents, she handed him the wax.
 
 ---
 

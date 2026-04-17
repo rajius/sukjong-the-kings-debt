@@ -22,7 +22,7 @@ The pain was so foreign she almost mistook it for illness.
 
 She had been a wife. She had been a widow. She had never been someone who wanted what belonged to another woman. The role was unfamiliar. She did not know how to carry it.
 
-But the pain was specific. Sharp. Located. It was not the generalized ache of loss she had carried since Yeong-hak's death. It was not the fear that accompanied the dangerous work she had inherited. This was different. Particular. Personal.
+But the pain was specific. Sharp. It was not the ache of loss she had carried since Yeong-hak's death. This was different.
 
 She wanted something she could not have and should not want.
 

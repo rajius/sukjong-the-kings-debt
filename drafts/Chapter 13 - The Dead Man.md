@@ -2,7 +2,7 @@
 
 A year passed before he saw her face again.
 
-By the second summer, the administrative paralysis Yu had sent him to assess had revealed something underneath — an apparatus mapping scholarly networks that had survived the Gisa Hwanguk. Careful. Well-funded. Patient. Yi Hwon learned to read its presence the way he had learned to read the absence of investigators in places they had been.
+By the second summer, the administrative paralysis had revealed something underneath — an apparatus mapping scholarly networks that had survived the Gisa Hwanguk. Careful. Well-funded. Patient.
 
 He had also begun to read its opposite. A counter-network was moving in the provinces — women's correspondence, household channels, paper that did not belong to the apparatus he was tracking. He could not yet trace its shape. He knew only that it was older than the thing hunting it, and that it was faster than it should have been.
 

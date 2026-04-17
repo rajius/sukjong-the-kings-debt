@@ -2,9 +2,9 @@
 
 The morning was ordinary.
 
-Lady Yoon woke before dawn to prepare the travel bundle. Yeong-hak was leaving for the provincial records office in Wonju—a three-day journey to examine burial registers that might confirm details they had only suspected. The kind of careful, methodical work that looked innocent to any casual observer but might yield the connections they needed.
+Lady Yoon woke before dawn to prepare the travel bundle. Yeong-hak was leaving for the provincial records office in Wonju—a three-day journey to examine burial registers. The kind of careful work that looked innocent but might yield the connections they needed.
 
-She laid out his traveling clothes while he washed. The routine was familiar: the good but not ostentatious robe, the sturdy traveling shoes, the oiled pouch for documents that needed protection from weather. He moved through the preparations with the same methodical attention he brought to everything else.
+She laid out his traveling clothes while he washed. The routine was familiar: good but not ostentatious robe, sturdy shoes, oiled pouch for documents.
 
 "The magistrate's clerk," she said, handing him the leather case containing his credentials. "You said he was helpful before."
 
@@ -18,7 +18,7 @@ She handed him the travel coat, thick enough for the mountain roads but not so f
 
 "You're worried about this trip."
 
-She was. More than usual. But she could not say why—only that something in the quality of the silence since Song Si-yeol's death felt different. Not hostile, but watchful. As if they were being observed by someone who had not yet decided what to do with what they saw.
+She was. More than usual. Something in the quality of the silence since Song Si-yeol's death felt different. Watchful.
 
 "I'm always worried when you travel."
 
@@ -26,7 +26,7 @@ He kissed her forehead. "Three days. Four at most if the roads are bad."
 
 She watched him walk to the gate, then turn to wave once before disappearing down the path toward the main road. The gesture was automatic, performed without thought, the way married people say goodbye when they expect to say hello again soon.
 
-When she turned back to the house, something low in her belly tightened — small, brief, easy to mistake for the weight of a worry she had not put into words. By midday it had not eased. She walked to the physician's house in the late afternoon and walked home before dark. She told no one. There was no one to tell. He would be back in three days, four at most.
+When she turned back to the house, something low in her belly tightened. By midday it had not eased. She walked to the physician's house in the late afternoon. She told no one.
 
 It was the last time she saw him alive.
 
@@ -36,17 +36,17 @@ The first day, she rested. She brewed the herbs the physician had given her and 
 
 By the fourth day, the silence had weight.
 
-She sent a message through the network—a careful inquiry to a contact in Wonju who might know if Yeong-hak had completed his business there. The response came back quickly. Too quickly, and in language that made her read it twice.
+She sent a message through the network to a contact in Wonju. The response came back quickly. Too quickly.
 
 *Your husband's research was concluded successfully. He departed as planned. No complications observed.*
 
-The phrasing was wrong. Their contact in Wonju was a retired scholar who wrote in classical, elaborate sentences. This message was too clipped, too bureaucratically tidy. Someone else had written it using the contact's name.
+The phrasing was wrong. Their contact wrote in elaborate sentences. This was too clipped, too bureaucratic. Someone else had written it.
 
 She burned the message and waited.
 
 ---
 
-The man who came to her gate on the sixth day was a stranger, but he carried himself with the particular authority that meant official business. He was middle-aged, travel-worn, and spoke with the measured courtesy of someone delivering news that had been carefully prepared.
+The man who came to her gate on the sixth day carried himself with official authority. He was middle-aged, travel-worn, and spoke with measured courtesy.
 
 "Lady Yoon. I bring word from Wonju concerning your husband."
 
@@ -78,33 +78,33 @@ The body arrived the next morning, carried by men she did not recognize but who 
 
 But when she looked at her husband's face, the details were wrong.
 
-Not dramatically. Nothing that would be obvious to someone who had not lived with him for five years. But wrong enough that she spent a long time studying features that should have been as familiar as her own reflection.
+Not dramatically. But wrong enough that she spent a long time studying features that should have been familiar.
 
-His hands were clean. Yeong-hak's hands were never completely clean—always stained with ink, callused from writing. These hands looked as if they had been scrubbed recently.
+His hands were clean. Yeong-hak's hands were never completely clean—always stained with ink, callused from writing.
 
-The color of his face was wrong for someone who had died of sudden fever. Too pale, but not flushed. Too composed, as if he had been prepared for display rather than dead of illness.
+The color of his face was wrong for someone who had died of fever. Too composed, as if prepared for display rather than dead of illness.
 
-And there was a mark on his neck, small and dark, that could have been many things but looked most like a bruise from pressure applied in the wrong place for healing.
+And there was a small, dark mark on his neck that looked like a bruise from pressure applied in the wrong place.
 
 She thanked the men who had brought him home. She made the proper arrangements for burial. She received the condolences of neighbors and prepared the household for mourning. She did everything that was expected of a widow who had received the body of her husband.
 
-That night her body did something she did not understand. The same low tightening from the morning he had left, but stronger now, lasting longer, and accompanied by a wetness she could not at first identify. She attributed it to grief. Bodies, she had heard women say, sometimes broke open after a great loss. She washed and changed her clothes and slept badly.
+That night her body did something she did not understand. The same low tightening, but stronger now, lasting longer, accompanied by a wetness she could not at first identify. She attributed it to grief. She washed and changed her clothes and slept badly.
 
 And at night, alone with the certainty that everything she had been told was a lie, she began to plan what she would do about it.
 
 ---
 
-She tried to reach their provincial contacts first. Simple messages, carefully phrased, sent through the remaining channels that might still be secure. The responses, when they came at all, were wrong in the same way the first message had been wrong: too plain, too carefully neutral.
+She tried to reach their provincial contacts. Simple messages, carefully phrased, sent through remaining channels. The responses, when they came at all, were wrong: too plain, too carefully neutral.
 
-One by one, the contacts fell silent. Not hostile, not threatening. Simply absent, as if they had never existed.
+One by one, the contacts fell silent. Simply absent, as if they had never existed.
 
-Someone had been through the network before her. Someone had reached every connection, every intermediary, every source of information she might have used. They had not destroyed the network so much as hollowed it out, leaving the appearance of function while removing all actual capability.
+Someone had been through the network before her. They had not destroyed it so much as hollowed it out, leaving the appearance of function while removing all capability.
 
 She was alone with questions that no one would answer and evidence that no one would examine.
 
 ---
 
-Master Kim arrived on a cold morning in late autumn, so frail that the journey had clearly cost him considerable effort. She had not expected him. When she opened the gate and saw him standing there with his walking stick and travel bundle, she understood.
+Master Kim arrived on a cold morning in late autumn, so frail the journey had clearly cost him considerable effort. She had not expected him.
 
 "Child," he said.
 
@@ -116,7 +116,7 @@ She helped him into the house and prepared tea while he settled himself carefull
 
 "You know who."
 
-He was quiet for a long time. When he spoke, his voice was thin, uncertain. "I know... pieces. Much is gone. The network..." He gestured vaguely, then let his hand fall.
+He was quiet for a long time. When he spoke, his voice was thin. "I know... pieces. Much is gone."
 
 He reached into his bundle and withdrew something small, wrapped in cloth. His hands shook as he placed it on the table.
 
@@ -128,11 +128,11 @@ Nothing more. No names. No clear meaning.
 
 "Is this all?"
 
-Master Kim seemed to have trouble focusing. "There was... someone asked about him. Before. But I cannot..." He rubbed his temples. "The fever took much. I remember the worry in his letter. Nothing else clear."
+Master Kim seemed to have trouble focusing. "There was... someone asked about him. Before. But I cannot..." He rubbed his temples. "The fever took much."
 
-They sat in silence. The fragment told her nothing useful. A direction, perhaps, but toward what?
+They sat in silence. The fragment told her nothing useful.
 
-"I have arranged... Scholar Pak will come for the seowon. I told him you manage the practical matters. He will need that." Master Kim's voice grew stronger with this concrete detail. "You will have a place. Cover."
+"I have arranged... Scholar Pak will come for the seowon. I told him you manage the practical matters. You will have a place. Cover."
 
 She nodded.
 
@@ -140,16 +140,14 @@ She nodded.
 
 He could not tell her what. He could not tell her how to proceed. He could only tell her to be careful of dangers he could not name.
 
-After he left, Lady Yoon sat alone in the main room. Outside, winter was settling over the mountains.
+After he left, Lady Yoon sat alone in the main room.
 
-She held the fragment, reading the few visible characters again. *...capital... urgent...* It was not enough to build on. Barely enough to constitute a clue.
+She held the fragment, reading the few visible characters again. *...capital... urgent...* It was not enough to build on.
 
-She folded it and placed it in the desk where Yeong-hak had once kept his most dangerous documents.
+She folded it and placed it in the desk where Yeong-hak had kept his most dangerous documents.
 
-The work had killed him. Someone in the capital, perhaps, but she did not know who, or how to find out, or what she would do with the knowledge if she had it. Master Kim's mind was failing. The network was gone. The contacts had been silenced or turned.
+The work had killed him. She did not know who, or how to find out. Master Kim's mind was failing. The network was gone.
 
-She was alone with a fragment that meant nothing and a dead husband's cause that she did not know how to carry forward.
+She was alone with a fragment that meant nothing and a dead husband's cause she did not know how to carry forward.
 
-Scholar Pak would come within the month. She would have cover, a place to remain. But that would only keep her safe if she could learn to be someone who posed no threat to anyone.
-
-She was not sure she knew how to be that person.
+Scholar Pak would come within the month. She would have cover. But that would only keep her safe if she could learn to be someone who posed no threat to anyone.

@@ -1,6 +1,6 @@
 # Chapter 11 -- The Queen Restored
 
-The evidence arrived before dawn on a gray morning in autumn, carried by a messenger whose urgency suggested the kind of revelation that would reshape everything that followed.
+The evidence arrived before dawn on a gray morning in autumn.
 
 Sukjong read the documents in his private study while Nam Guman waited in silence. The papers were convincing: correspondence between young Noron scholars, meeting schedules, fragments of plans to restore Queen Inhyeon through coordinated pressure on the throne. The kind of factional conspiracy that had justified the previous purge.
 
@@ -32,9 +32,7 @@ Now they were attempting to use fabricated evidence to eliminate their rivals, e
 
 "Scholars. Minor officials. None with actual influence or capacity for the kind of conspiracy described in these documents." Nam's tone was matter-of-fact. "They are guilty of holding opinions, not of plotting rebellion."
 
-Sukjong walked to the window and looked out at the palace courtyard where autumn light cast sharp shadows across the stones. Five years earlier, he had chosen to eliminate Westerner opposition to preserve royal prerogative. The decision had been necessary, justified, effective.
-
-It had also created the political vacuum that allowed the Southerners to attempt this fabrication.
+Sukjong walked to the window. Five years earlier, he had eliminated Westerner opposition to preserve royal prerogative. That had created the political vacuum that allowed the Southerners to attempt this fabrication.
 
 "Prepare orders for Minister Mok's arrest," Sukjong said. "And summons for the Westerner leaders to return to court."
 
@@ -76,9 +74,9 @@ Queen Inhyeon returned to the palace on a cold morning in late autumn, accompani
 
 Sukjong received her in the throne room, following protocols that had been suspended but not abolished during her exile. She performed the required obeisances, spoke the prescribed words of gratitude, accepted restoration to her position with the dignity expected of someone returning to place rather than power.
 
-But five years had passed. The queen who returned was not the woman who had been sent away, and the court that received her was not the court that had witnessed her departure.
+But five years had passed. The queen who returned was not the woman who had been sent away.
 
-The ceremonial language spoke of restoration, but restoration implied returning something to its previous condition. What had been destroyed could not be returned. What had been lost could not be recovered. The position existed; the relationships that had given it meaning were gone.
+The ceremonial language spoke of restoration, but what had been destroyed could not be returned. The position existed; the relationships that had given it meaning were gone.
 
 Lady Jang Hui-bin was not dismissed. She remained in the palace, her status reduced but not eliminated, her son still acknowledged as crown prince. The arrangement satisfied no one completely but provided everyone with reasons to accept what could not be changed.
 
@@ -88,11 +86,9 @@ The machinery of restoration operated efficiently. The human consequences remain
 
 ---
 
-In his private study that evening, Sukjong took inventory of what the second reversal had accomplished.
+In his private study that evening, Sukjong took inventory.
 
-The court was stable. No single faction possessed enough power to threaten royal authority. But it was also paralyzed by the mutual suspicion that followed two complete reversals of political fortune. 
-
-Sukjong had preserved royal prerogative by preventing any faction from gaining permanent dominance. But he had also created a government too frightened of change to function effectively.
+The court was stable. No single faction possessed enough power to threaten royal authority. But it was also paralyzed by mutual suspicion following two complete reversals of political fortune.
 
 ---
 
@@ -102,12 +98,10 @@ The formula remained valid: the Wanli precedent for restoring wronged princes wh
 
 But the political foundation required for implementation had been shattered by the very actions that had preserved royal authority. 
 
-The irony was precise: Sukjong had gained the power to restore the wronged prince at the exact moment when using that power would undermine everything he had done to obtain it.
+Sukjong had gained the power to restore the wronged prince at the exact moment when using that power would undermine everything he had done to obtain it.
 
-Sukjong closed the chest and locked it.
+He closed the chest and locked it.
 
-Somewhere in the provinces, he knew, the cost of his decisions was being borne by people whose names he would never learn, whose sacrifices would never be acknowledged, whose losses would never be restored by any formula.
+Somewhere in the provinces, the cost of his decisions was being borne by people whose names he would never learn.
 
-The throne remained secure. The dynasty continued. Order had returned to the court.
-
-The wreckage remained where it had fallen.
+The throne remained secure. The wreckage remained where it had fallen.

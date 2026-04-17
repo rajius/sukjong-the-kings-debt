@@ -22,7 +22,7 @@ He bowed slightly to Lady Yoon. She inclined her head a fraction. He stepped bac
 
 Yi Hwon understood several things in the time it took the man to vanish.
 
-Her network had men in it. The men deferred to her. Her men had been in position before his men were in position. While he had been congratulating himself on his hidden backup on the ridge, her people had been behind his people the entire time.
+Her network had men in it. The men deferred to her. Her men had been in position before his were. While he had been congratulating himself on his hidden backup, her people had been behind his the entire time.
 
 She had not done this to threaten him. She had done it to clarify the terms.
 
