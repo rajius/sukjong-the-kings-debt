@@ -174,4 +174,4 @@ Men moved at the edges. Women moved at the center. The investigators Scholar Yi 
 
 Lady Yoon sat at the center of it and managed what she had built — not with pride, not with satisfaction, but with the particular exhaustion of a woman who had started something because there was no one else to start it and could not stop because there was no one else to carry it.
 
-She was forty. She had not been touched by another person in eight years. She had not been asked "tell me about today" since the evening the chopsticks stopped.
+She was thirty-eight. She had not been touched by another person in eight years. She had not been asked "tell me about today" since the evening the chopsticks stopped.
