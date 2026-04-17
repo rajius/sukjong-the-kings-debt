@@ -62,7 +62,7 @@ A lie wrapped around reasonable precaution. If Scholar Min was still alive, he w
 
 ---
 
-Two more names arrived within the month. Scholar Hong from Jeonju — dead of illness the previous winter. Master Chu from Daegu — his family had stopped responding without explanation. She wrote as both, once each, to redirect contacts and close channels that were no longer safe.
+Two more names arrived within the month — not letters addressed to the seowon, but letters forwarded by contacts she had already redirected. Scholar Hong from Jeonju, one of Master Kim's former correspondents, had died of illness the previous winter. His contacts did not know and were still writing. Master Chu from Daegu, another name in the archive, had simply stopped — his family offered no explanation, which was its own kind of explanation. Their mail had found its way to the seowon because Lady Yoon had made the seowon the last address that still answered.
 
 Five voices now. She kept the details in her head during the day and committed them to paper at night, in a compartment Scholar Pak would never examine. Who had been told what. Which correspondent expected a follow-up. Which classical reference each dead man would have chosen. The weight of it was not intellectual — any of them would have been easy alone. The weight was simultaneity. Five men thinking at once through a single woman's hand, and none of them could contradict each other.
 
