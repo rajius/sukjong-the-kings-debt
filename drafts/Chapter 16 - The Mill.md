@@ -1,4 +1,4 @@
-# Chapter 15 -- The Mill
+# Chapter 16 -- The Mill
 
 The second meeting was at the abandoned mill by the river.
 
@@ -68,19 +68,7 @@ The word landed the way words did between them now — small, exact, doing work 
 
 "Lady Yoon —"
 
-"Listen to me."
-
-He closed his mouth.
-
-"There are many things between us I cannot control. The years between your age and mine. The distance between what I am and what you are permitted to want. The fact that I am a widow carrying the name of a dead man's cause through provinces that do not know they are being watched. These things are fixed."
-
-"But there is one thing I can make right."
-
-She paused.
-
-"You carry something from someone who cares for you. You carry it against your body. That is also a meaning. I will not be the reason you set that aside."
-
-He did not know how she knew about the handkerchief. He did not ask. The list of things she had known before he said them was already long enough that one more should not have surprised him, and yet it did.
+"You carry something from someone who cares for you. You carry it against your body." She paused. "I will not be the reason you set that aside."
 
 "What if I don't want —"
 
