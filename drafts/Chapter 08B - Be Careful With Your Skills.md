@@ -166,12 +166,8 @@ The training took three months. She practiced on Ok-sun's brother, who was patie
 
 ---
 
-By the eighth year, the network was something she could not have described to anyone and could not have built if she had tried to design it in advance. It had grown the way her education had grown — through placement, through necessity, through the accumulation of small decisions that only looked like a plan when viewed from the end.
+By the fifth year, the network was something she could not have described to anyone and could not have built if she had tried to design it in advance. It had grown the way her education had grown — through placement, through necessity, through the accumulation of small decisions that only looked like a plan when viewed from the end.
 
-Clients came. Some paid in coin. Some paid in access. Some paid in the kind of information that kept the political intelligence flowing without anyone in the capital understanding how a provincial widow knew what she knew.
+Women moved at the center. Men moved at the edges. The investigators were still looking for scholarly correspondence and documented connections. They found neither.
 
-Men moved at the edges. Women moved at the center. The investigators Scholar Yi had been coordinating were still looking for scholarly correspondence and documented connections. They found neither, because neither existed anymore. What existed was fabric patterns and dried persimmons and polite inquiries about the price of rice, carrying questions that would be answered in the same form, through channels that no one had thought to watch.
-
-Lady Yoon sat at the center of it and managed what she had built — not with pride, not with satisfaction, but with the particular exhaustion of a woman who had started something because there was no one else to start it and could not stop because there was no one else to carry it.
-
-She was thirty-eight. She had not been touched by another person in eight years. She had not been asked "tell me about today" since the evening the chopsticks stopped.
+She was thirty-five. She had not been touched by another person in five years. She had not been asked "tell me about today" since the evening the chopsticks stopped.
