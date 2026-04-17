@@ -54,15 +54,11 @@ Nam's expression tightened almost imperceptibly. "The queen's favor continues to
 
 They sat in silence. Through the window, Sukjong could see the spring light falling across the palace walls, the same light that had fallen on these same walls when Sejo made his choice, when Danjong died in exile, when Scholar Kim first asked his careful questions about the boy's grave.
 
-"There is another consideration," Nam said. "The debt to Wanli."
+"There is another consideration," Nam said. "Wanli's armies saved this dynasty. If the emperor who preserved us could restore his wronged nephew while we fail to restore ours, that is more than a missed precedent."
 
-"Explain."
+Sukjong understood. The Ming debt was real and would outlast them all. To ignore Wanli's example was its own kind of disloyalty.
 
-"Joseon owes its survival to the Ming intervention in the Japanese invasions. Wanli's armies saved this dynasty. If the Wanli Emperor could restore his wronged nephew while we fail to restore ours, what does that say about our gratitude? About our moral standing?"
-
-Sukjong had not considered this angle. The debt to China was real, profound, and would endure for generations. To ignore a precedent set by the emperor who had preserved Korea's independence was more than a missed opportunity. It was a form of ingratitude.
-
-"So we have both the moral foundation and the political precedent."
+"So we have the moral foundation and the precedent."
 
 "Yes. And we may have neither for much longer."
 
@@ -84,34 +80,44 @@ Sukjong looked around the council table. Half the faces were familiar, men who h
 
 "Of course, Majesty. But perhaps some research is more beneficial than others."
 
-When the council ended, Sukjong remained alone in the chamber for a long time, staring at the empty chairs around the table that no longer held the men who might have supported what he had written in private.
+When the council ended, Sukjong remained alone in the chamber, staring at the empty chairs around the table.
+
+The Southerners had a question he could not answer. *Your Majesty, do you wish your descendants to judge you the way you propose to judge your ancestor?* Polite. Reasonable. Devastating.
+
+And there was the other thing.
+
+Jang Hui-bin's body had not stayed quiet the way the queen's had. The child she carried — a son, the physicians were certain — would be born before winter. Sukjong wanted the boy. He could not pretend otherwise.
+
+But the women were factional flags. The queen was the Westerners' standard. Jang Hui-bin was the Southerners' instrument. The faction that would carry the Danjong restoration was the faction he would have to destroy to seat his own son.
+
+He could not have both.
 
 ---
 
-The decision came in autumn, on a day when the light slanted low through the study windows and cast long shadows across the floor where the Chinese volume lay open.
+The decision came in autumn, on a day when the light slanted low through the study windows.
 
-Sukjong sat with the book in his hands, reading again the passage about Prince Jianwen's restored shrine. The solution was there. The precedent was clear. The moral debt was undeniable.
+Sukjong sat with the book in his hands. The solution was there. The precedent was clear. The moral debt was undeniable. And the political ground was shifting beneath all of it.
 
-And the political ground was shifting beneath all of it.
+To act now would be to tie the restoration to a faction in decline. The Southerners would see it as a Westerner project, something to be undone when they took control. The formula would be discredited along with the faction that had presented it.
 
-To act now, while the Westerners still held nominal power but were losing actual influence, would be to tie the restoration to a faction in decline. The Southerners would see it as a Westerner project, something to be undone when they took control. The formula would be discredited along with the faction that had presented it.
+To wait meant accepting that good ideas could be destroyed by bad timing.
 
-To wait meant accepting that good ideas could be destroyed by bad timing. It meant understanding that a king's duty was not only to be right but to be right at the sustainable moment.
+He took out brush, ink, and paper. He wrote slowly, in his own hand:
 
-Sukjong closed the book. He walked to his desk and took out brush, ink, and paper.
+*The restoration of Prince Danjong may follow the precedent established by the Wanli Emperor in the restoration of Prince Jianwen. Both the wronged prince and the regent who succeeded him may be honored as legitimate. The shrine may expand to hold what division has kept separate.*
 
-He wrote slowly, in his own hand:
+He sat with the document in front of him.
 
-*The restoration of Prince Danjong may follow the precedent established by the Wanli Emperor in the restoration of Prince Jianwen. Both the wronged prince and the regent who succeeded him may be honored as legitimate. The shrine may expand to hold what division has kept separate. This formula preserves moral justice while maintaining political stability.*
+He thought of his twenty-year-old self, six years ago, leaning across a desk to argue with Nam Guman over a single syllable. *I want to restore him fully.* The voice that had said it was still in him. He could feel it now, pushing his hand toward the door, toward the council chamber, toward the decree that would convert this private paper into public action.
 
-He dated it, sealed it with his private seal, and placed it in the wooden chest where he kept documents meant for future consideration.
+He set the brush down. His hand shook slightly. He pressed it flat against the desk until it stopped.
 
-The commitment was genuine. The timing was not yet right. The argument would wait until the king who made it could see it through.
+He had become the man Nam had been. He had become the voice that said *not yet.* He had spent five years arguing himself into the position he had once despised. There was no one in the room to argue him out of it. There was no one in the room at all.
 
----
+This was his cause. The boy in the mountain had been his since he was thirteen, since the tutor's lesson, since Song Si-yeol's empty chair the morning after his coronation. The arithmetic was his. The formula in his handwriting was his. The decision to file it away was his. And there was no one to make him do it and no one to forgive him for it.
 
-That evening, Sukjong sat alone in his study with the written formula in his hands. Outside, the first frost silvered the courtyard stones.
+The hand that had shaken was not shaking because the decision was hard. It was shaking because the decision was his.
 
-He folded the document, sealed it with his private seal, and placed it in the wooden chest where it would wait.
+He sealed the document. He placed it in the wooden chest where it would wait.
 
-The formula existed. The timing did not.
+The formula existed. The timing did not. And the king who had built both was alone with the silence between them.

@@ -26,11 +26,13 @@ He kissed her forehead. "Three days. Four at most if the roads are bad."
 
 She watched him walk to the gate, then turn to wave once before disappearing down the path toward the main road. The gesture was automatic, performed without thought, the way married people say goodbye when they expect to say hello again soon.
 
+When she turned back to the house, something low in her belly tightened — small, brief, easy to mistake for the weight of a worry she had not put into words. By midday it had not eased. She walked to the physician's house in the late afternoon and walked home before dark. She told no one. There was no one to tell. He would be back in three days, four at most.
+
 It was the last time she saw him alive.
 
 ---
 
-The first day, she worked in the garden and caught up on correspondence. The second day, she reorganized the kitchen stores and mended clothes. On the third day, when he should have returned, she cleaned the study and prepared the ink he would need for the evening's work.
+The first day, she rested. She brewed the herbs the physician had given her and drank them slowly through the morning, and caught up on correspondence in the afternoon when the tightening had eased. The second day, she felt strong enough to reorganize the kitchen stores and mend clothes, though she still kept the herbs at hand. On the third day, when he should have returned, she cleaned the study and prepared the ink he would need for the evening's work.
 
 By the fourth day, the silence had weight.
 
@@ -53,6 +55,8 @@ She invited him into the main room and served tea while he explained. His accoun
 The story was smooth as polished stone. Too smooth.
 
 "Where did this illness overtake him?"
+
+The tightening returned as she asked. She kept her hands folded in her lap and her face composed.
 
 "On the mountain road, perhaps half a day's journey from Wonju. A difficult place to provide proper care."
 
@@ -84,6 +88,8 @@ And there was a mark on his neck, small and dark, that could have been many thin
 
 She thanked the men who had brought him home. She made the proper arrangements for burial. She received the condolences of neighbors and prepared the household for mourning. She did everything that was expected of a widow who had received the body of her husband.
 
+That night her body did something she did not understand. The same low tightening from the morning he had left, but stronger now, lasting longer, and accompanied by a wetness she could not at first identify. She attributed it to grief. Bodies, she had heard women say, sometimes broke open after a great loss. She washed and changed her clothes and slept badly.
+
 And at night, alone with the certainty that everything she had been told was a lie, she began to plan what she would do about it.
 
 ---
@@ -98,74 +104,50 @@ She was alone with questions that no one would answer and evidence that no one w
 
 ---
 
-Master Kim arrived on a cold morning in late autumn, so frail that the journey from the seowon had clearly cost him considerable effort. She had not expected him—had not even known if he was still alive—but when she opened the gate and saw him standing there with his walking stick and travel bundle, she understood that some conversations could not be delayed until convenient times.
+Master Kim arrived on a cold morning in late autumn, so frail that the journey had clearly cost him considerable effort. She had not expected him. When she opened the gate and saw him standing there with his walking stick and travel bundle, she understood.
 
-"Child," he said, and the word carried more weight than any formal condolence.
+"Child," he said.
 
-She helped him into the house and prepared tea while he settled himself carefully in the chair that had been her husband's favorite. They sat in silence for a long time, both understanding that this meeting was about more than expressing sympathy.
+She helped him into the house and prepared tea while he settled himself carefully in the chair that had been her husband's favorite.
 
-"They killed him," she said finally.
+"They killed him," she said.
 
-Master Kim was quiet for a long time. "I believe so."
+"I believe so."
 
 "You know who."
 
-"I know fragments. Pieces." His voice was thin, tired. "The network has been... dismantled. Much of what we knew is gone."
+"I know fragments." His voice was thin. "The network has been dismantled. Much of what we knew is gone."
 
-He reached into his travel bundle and withdrew a small wrapped package. His hands shook slightly as he placed it on the table.
+He placed a wrapped package on the table. His hands shook.
 
-"What I could save," he said. "Much was lost when they came through the network. But this... this your husband made sure I could reach."
+"What I could save."
 
-She unwrapped the package. Inside were a few maps, some correspondence, fragments of lists. Not the comprehensive archive she might have expected, but pieces—enough to suggest the shape of what had been larger.
+She unwrapped it. Maps. Correspondence. Fragments of lists. Not what had once existed. What remained.
 
-"Why are you giving this to me?"
+He reached into his bundle once more and withdrew a single sheet of paper, folded small and worn. He laid it beside the rest.
 
-"Because the work must continue. Because your husband died for it. And because you are the only one left who understands what it means."
+"They overlooked this."
 
-Master Kim reached into his bundle again and withdrew a single sheet of paper, folded small and worn from handling.
+She unfolded it. The paper was torn diagonally. What remained was a strip with one phrase: *...stopped before it reaches...*
 
-"This was found among your husband's belongings. They overlooked it." He unfolded the paper carefully.
+Nothing else legible. No seal. No date.
 
-It was a fragment of correspondence, torn and partial. Only the bottom portion remained: *...before it reaches the capital. Song Si-yeol's students... politically dangerous... what they might discover...*
+"It is not enough," she said.
 
-The rest was missing, the characters broken and incomplete. At the top corner, barely visible, was part of an official seal with characters too damaged to read clearly.
+"No."
 
-"What does this tell us?"
+"It is a direction."
 
-"That someone wanted it stopped." Master Kim's hands shook as he refolded the paper. "Someone with... with authority to reach into the provinces."
+"Yes."
 
-Lady Yoon held the fragment carefully. It was evidence of something, though what exactly remained unclear.
+He looked at her for a long moment, then said: "I have written to Scholar Pak about the seowon. He will take formal responsibility. I told him you already manage the accounts and the correspondence — that he will need you. He understands."
 
-"Why bring this to me?"
+She nodded.
 
-Master Kim looked at her with exhaustion that went deeper than the journey. "Because you are what remains. Because the work..." He paused, seeming to lose his thread. "Because someone should know."
+"Be careful," Master Kim said. "They know the work continues. They may not know who."
 
-He was quiet for a long moment, then seemed to come to some internal decision.
+After he left, Lady Yoon sat alone with the archive spread before her. Outside, winter was settling over the mountains.
 
-"There is another matter. The seowon. I have written to Scholar Pak—you remember him, the older student who assisted with the spring examinations. He will come to take formal responsibility for the school."
+She folded the fragment and placed it in the desk where Yeong-hak had once kept his most dangerous documents.
 
-Lady Yoon nodded. She had expected this. Master Kim was dying, and institutions needed continuity.
-
-"I have told him the household accounts and correspondence already pass through your hands. That you know the patrons, the storage arrangements, the seasonal requirements. That you understand the rhythms of the place better than anyone he could bring from outside." Master Kim's voice was matter-of-fact. "If he means to keep the seowon standing, he will keep you."
-
-The practical wisdom was obvious. Lady Yoon had managed the domestic operations for years. Any replacement would need months to learn what she already knew.
-
-"Scholar Pak is agreeable?"
-
-"Grateful for the recommendation. Not ambitious beyond his station. He will follow established routines and avoid unnecessary changes." Master Kim gathered his walking stick slowly. "Be careful. They know the work continues. They may not know who."
-
-After he left, Lady Yoon sat alone in the main room with the archive spread before her and the fragment of correspondence in her hands. Outside, winter was settling over the mountains, and the house felt larger and emptier than it had when she had shared it with a living husband.
-
-Master Kim had been practical, as always. Scholar Pak would arrive within the month, grateful for his appointment, dependent on her knowledge of how the seowon actually functioned. The household accounts would continue to pass through her hands. The correspondence would still require her attention. The patrons would expect the same courtesies they had always received.
-
-Nothing would change, officially.
-
-Everything would change, actually.
-
-She looked at the fragment again, reading the broken characters that suggested her husband's death had been ordered by someone with authority. It was not enough to prove anything. But it was a beginning. A direction to turn toward.
-
-She folded the paper and placed it in the desk where Yeong-hak had once kept his most dangerous documents.
-
-The work had killed him. Now it was hers to carry, though she did not yet know what carrying it would cost, or whether she had the strength to bear what he had borne. But Master Kim had ensured she would have the cover to try.
-
-She began to read the archive, starting with the maps that showed where the forgotten dead were buried.
+She began to read the maps.
