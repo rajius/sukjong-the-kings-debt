@@ -56,9 +56,11 @@ The proposals began after Mrs. Kim died.
 
 A seowon housekeeper who was young, capable, and unmarried was visible in a way that a seowon maid had not been. Men noticed. Their families noticed. Minor scholars, local officials, merchants' sons who had acquired enough education to want a wife who could read — the kind of men who saw a woman managing a household and calculated what she might manage for them.
 
-The first two proposals came through intermediaries, in the proper form. She declined through Master Kim, who delivered her refusals with the air of a man performing an administrative task. The third was from the son of a local magistrate's clerk — a better match than the others, with a family that had some standing in the county. She declined that one too.
+For six years, they came. Some through intermediaries, others more directly. She declined them all through Master Kim, who delivered her refusals with the air of a man performing an administrative task. Younger sons of minor families. Older men seeking a second wife to manage their households. Scholars whose ambitions exceeded their prospects. She was courteous, consistent, and unmoved.
 
-The fourth did not take the refusal.
+By her twenty-fourth year, even Master Kim had begun to show signs of exasperation with her standards. The latest rejection — the son of a magistrate's clerk, a better match than most — had prompted a conversation about the practical limits of selectivity.
+
+Then came one who did not accept refusal.
 
 His name was Cho. He was the nephew of a minor landowner, educated enough to pass the provincial preliminary but not to advance further. He had seen her competence at the seowon and decided she was what he needed.
 
@@ -104,7 +106,7 @@ Master Kim looked at her the way he had looked at her when she asked about the Z
 
 ---
 
-She had never met him. He had left the seowon three years before she arrived — a prodigy, Master Kim said, though he did not use the word with the warmth most teachers use for their best students. He used it the way a craftsman describes a tool that performs beyond specification: precisely, with respect, and with a faint undertone of something that was not quite caution but not quite comfort either.
+She had never met him. He had left the seowon five years before she arrived — a prodigy, Master Kim said, though he did not use the word with the warmth most teachers use for their best students. He used it the way a craftsman describes a tool that performs beyond specification: precisely, with respect, and with a faint undertone of something that was not quite caution but not quite comfort either.
 
 His name was in the margins. Not everywhere — he had been careful even as a student — but in three of the texts Mrs. Kim had given her, she found his annotations. Small, exact characters in the spaces between commentary and text, noting connections the original author had not made. She recognized the handwriting before she knew whose it was. It was the handwriting of someone who thought faster than he wrote and resented the delay.
 
@@ -168,6 +170,12 @@ He looked at her more closely.
 
 The silence was the silence of a man recalculating. Master Kim said nothing.
 
+Later that day, Master Kim asked his opinion.
+
+"This will do," he said.
+
+He had come to verify the matchmaker's description: reads, Kim's student, quiet, face worth seeing. Among the ten current options he had been presented with, she was the only one he had visited to see in person.
+
 ---
 
 They married in the first month of the following year. The ceremony was small — Master Kim's household, a few local scholars, no family on either side because there was no family on either side. He returned to the capital two weeks after the wedding with arrangements for her to follow once the household matters were settled. She arrived in the capital in the spring.
@@ -206,6 +214,62 @@ This was the pattern. He corrected her more often and more sharply than he corre
 
 ---
 
+She asked on a winter evening when the ondol kept the room warm. He was reviewing a document. She was mending a sleeve. The question came out the way questions do when they've been sitting in someone's chest for a long time.
+
+"Why did you choose me?"
+
+He looked up. Not startled — he was difficult to startle — but with the careful attention he gave things that required a precise answer.
+
+"Master Kim's recommendation," he said.
+
+"It can't be only that."
+
+He set the document down. He considered her the way he considered problems at the office — not dismissively, but with the seriousness of a man who did not believe in answering questions badly.
+
+"The noble families were out of the question," he said. "Anyone with standing would have looked into my connections. The teacher's execution had drawn a circle around everyone associated with him. My connection was there for anyone willing to look."
+
+She knew this.
+
+"So the proposals came from below," she said.
+
+"Many. Daughters of merchants. Minor clerks. Families looking to climb." He said this without contempt. It was simply the landscape. "I could have chosen any of them. Most were suitable."
+
+He paused. The lamp cast his shadow long against the wall.
+
+"I heard you like reading."
+
+Lady Yoon felt a small, involuntary warmth. He had chosen her because she was literate. Because he valued a mind —
+
+"Not what you think," he said.
+
+The warmth stopped.
+
+"A woman who reads during her spare time," he said, "won't bother to get my attention."
+
+Lady Yoon looked at him. His face held nothing — no cruelty, no apology. He was being exact. He had needed a wife who would not need him. Someone with an interior life sufficient that his absences would not become grievances.
+
+She nodded, once, the way one acknowledges weather.
+
+He picked up the document. She returned to the sleeve.
+
+The room was quiet and warm, and the distance between them was precisely the distance he had chosen. She understood now that it had been chosen, and that the choosing had been, in its way, a form of respect.
+
+---
+
+The work was always there.
+
+He did not announce it. But the papers on his desk had a quality she recognized — the same careful, coded quality from Master Kim's work. Lists that were not quite lists. Maps marked with notations too precise to be casual and too cryptic to be clear.
+
+He shared the work gradually. Not as confession — he was not the kind of man who confessed — but as inclusion, the way you might begin setting two plates at a table where there had been one. He would leave a document where she would see it. She would read it. He would not mention it. If she asked a question about what she had read, he would answer. If she did not ask, the document would be gone by morning.
+
+She asked.
+
+He was mapping burial sites. The graves of men the state had executed two hundred years ago — their official locations, and the actual locations, which were not always the same. The state had recorded one thing. The families had remembered another. Her husband was building a record the state had spent two centuries trying to erase.
+
+She learned the network through him. The names, the channels, the contacts. She learned without either of them naming what she was learning.
+
+---
+
 The room had gone cold without her noticing.
 
 Lady Yoon was still bent over her papers when Yeong-hak looked up and said, "Your hand is stiff."
@@ -233,70 +297,6 @@ She looked up. "You timed that."
 Yeong-hak did not lift his eyes from the page. "Of course."
 
 The answer was so unembarrassed that she felt the warmth of it more sharply than she felt the heat in her fingers.
-
----
-
-The work was always there.
-
-He did not announce it. But the papers on his desk had a quality she recognized — the same careful, coded quality from Master Kim's work. Lists that were not quite lists. Maps marked with notations too precise to be casual and too cryptic to be clear.
-
-He shared the work gradually. Not as confession — he was not the kind of man who confessed — but as inclusion, the way you might begin setting two plates at a table where there had been one. He would leave a document where she would see it. She would read it. He would not mention it. If she asked a question about what she had read, he would answer. If she did not ask, the document would be gone by morning.
-
-She asked.
-
-He was mapping burial sites. The graves of men the state had executed two hundred years ago — their official locations, and the actual locations, which were not always the same. The state had recorded one thing. The families had remembered another. Her husband was building a record the state had spent two centuries trying to erase.
-
-She learned the network through him. The names, the channels, the contacts. She learned without either of them naming what she was learning.
-
----
-
-She thought he was asleep.
-
-The lamp had long since been put out. The room was dark except for the thin winter light at the paper door. Beside her, Yeong-hak had not moved for some time, and his breathing had settled into the even rhythm she had begun to know.
-
-Lady Yoon lay still, waiting for her own thoughts to quiet.
-
-After a while, his voice came out of the dark.
-
-"You are awake."
-
-She turned her face slightly toward him. "Did I wake you?"
-
-"No."
-
-The answer was immediate enough to make her wonder how long he had been awake as well.
-
-She was quiet for a moment. Then she said, "How did you know?"
-
-"You breathe differently."
-
-He said it as if it were obvious.
-
-She lay still under the quilt, suddenly aware of the small space between them. Not wide. Not careless. Simply there.
-
-After a moment, she felt him reach down and pull the edge of the quilt higher over her shoulder.
-
-"The room is colder after midnight," he said.
-
-She might have answered that she had not complained. That she was not cold enough to matter. But the correction felt unnecessary.
-
-So she said nothing.
-
-Neither did he.
-
-Some time passed in silence.
-
-Then, in the dark, her hand shifted between them. Not deliberately. Not quite. It came to rest against the back of his wrist.
-
-He did not move away.
-
-When he spoke again, his voice was lower than before.
-
-"You should sleep."
-
-"Yes," she said.
-
-But neither of them withdrew.
 
 ---
 
