@@ -1,4 +1,4 @@
-# Chapter 11 -- The Queen Restored
+# Chapter 9 -- The Queen Restored
 
 The evidence arrived before dawn on a gray morning in autumn.
 

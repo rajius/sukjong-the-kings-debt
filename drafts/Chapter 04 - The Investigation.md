@@ -50,17 +50,19 @@ Master Kim received him in the study. She brought tea. He glanced at her and awa
 
 The formal meeting came later — chaperoned, proper. He sat across from her and looked at her directly for the first time. His eyes were the part of him that moved fastest. The rest was economical.
 
-She said something about a text Master Kim had recently acquired — a commentary on the Shujing that she had read the previous week. It was a test, and they both knew it was a test, and the fact that they both knew made it something other than a test. She had chosen the text because the commentary contained an error in its citation of the original — small, technical, the kind of mistake only a careful reader would catch.
+She said something about the journey from the capital — how long it had taken, whether the roads were good. Simple questions, but she asked them in a way that suggested she understood what the journey meant. He had come to see her, specifically her, when he could have decided by letter.
 
-He caught it. "The citation is wrong," he said. "The commentator conflated two passages."
+"The roads were adequate," he said.
 
-"The argument is weak," she said. "But perhaps the conflation is not. One passage is for a minister, the other for a ruler."
+"But not easy."
 
-He looked at her more closely.
+"No."
 
-"You think he wanted both obligations in view."
+She paused. "You came anyway."
 
-"Perhaps."
+He looked at her more closely. It was not a question, but it was not quite a statement either.
+
+"I wanted to be certain," he said.
 
 The silence was the silence of a man recalculating. Master Kim said nothing.
 
@@ -76,31 +78,19 @@ They married in the first month of the following year. The ceremony was small �
 
 The first months were negotiation — not argued but lived, the daily process of two people learning where the other's mind went when left alone.
 
-One evening in the second month, she was reading at the table while he worked at his desk. She had picked up a commentary he had left open — not for her, but not closed either — and had been reading it for an hour when she said, without looking up: "This memorial is arguing against itself."
+One evening in the second month, she was reading at the table while he worked at his desk. She had picked up a document he had left open — not for her, but not closed either — and had been reading it for an hour when she said, without looking up: "This man is afraid."
 
-He did not turn around. "It is arguing against the policy it claims to support. That is different."
+He did not turn around. "Which man?"
 
-"How?"
+"The one who wrote this memorial. He keeps saying what he thinks the king wants to hear before he says what he actually thinks."
 
-"The author wants the policy to succeed but believes the method is wrong. He is not opposing — he is correcting. If you read the third paragraph again, he shifts from criticism to proposal."
+Now he turned. "How do you know?"
 
-She read the third paragraph again. "The proposal is weaker than the criticism."
+"The way he writes. He argues with himself before anyone else can. It is what people do when they expect to be contradicted."
 
-Now he turned. "Why?"
+He was quiet for a moment. Then: "You think he does not believe his own proposal?"
 
-"Because the criticism comes from evidence. The proposal comes from hope. He documents what went wrong in three provinces and then recommends the same approach with better officials, as if the problem were the men and not the structure."
-
-He was quiet for a moment. Then: "That is not what the commentary tradition says about this memorial."
-
-"What does the commentary tradition say?"
-
-"That the proposal is the strongest section because it offers a constructive alternative."
-
-"The commentary tradition is wrong."
-
-He was quiet for a long moment. Then he said, with what might have been the beginning of respect, "The commentary tradition has been refined across six generations of scholars."
-
-"And none of them noticed that hope is not evidence."
+"I think he believes it. But he does not believe anyone else will."
 
 He turned back to his desk. He did not concede. He did not argue further. But she heard him set down the brush he had been writing with and pick up the memorial she had been reading, and she knew — from the particular quality of the silence that followed — that he was reading the third paragraph again.
 
@@ -122,7 +112,7 @@ He set the document down. He considered her the way he considered problems at th
 
 "The noble families were out of the question," he said. "Anyone with standing would have looked into my connections. The teacher's execution had drawn a circle around everyone associated with him. My connection was there for anyone willing to look."
 
-She knew this. And also what it implied when connection gave more room for promotion than merit.
+She knew this. And what it implied to his prospects when connection matters more than merit.
 
 "So the proposals came from below," she said.
 

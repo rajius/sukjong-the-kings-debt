@@ -1,50 +1,6 @@
 # Chapter 5 -- The Queen's Fall
 
-The question came in early summer, delivered through channels so formal that Sukjong knew the court had already chosen sides.
-
-"The succession," Nam Guman said, setting the memorial on the king's desk with the particular care reserved for documents that would change everything. "The crown prince's legitimacy. The Westerners have prepared their argument."
-
-Sukjong read without expression. The language was precise, respectful, and absolute: Lady Jang's son could not inherit the throne. The reasons were carefully constructed around precedent, propriety, and the stability of the dynasty. Nowhere did the memorial mention that the boy's mother had been born a concubine, but the argument turned entirely on that fact.
-
-"And their alternative?"
-
-"Queen Inhyeon's son. When she provides one."
-
-The conditional was pointed. The queen had been married to Sukjong for seven years. Lady Jang had given him a son in two.
-
-Sukjong set the memorial down and walked to the window.
-
-"They mean to decide this for me," he said.
-
-"They mean to advise, Majesty."
-
-"No. They mean to decide." Sukjong turned back to Nam. "The crown prince's mother was elevated by royal decree. The prince was acknowledged by royal proclamation. If the court can void those decisions, then the court governs, not the king."
-
-Nam was quiet for a long moment. "The Westerners have served your family for thirty years."
-
-"And now they would serve their own principles more than their king."
-
-"The purge will be extensive."
-
-Sukjong looked at him carefully. Nam's expression revealed nothing, but his presence here, now, with this warning, was its own form of counsel.
-
-"Who will remain?"
-
-"The Southerners. Those who opposed the Westerners' rise to power. They will support any decision that diminishes Song Si-yeol's influence."
-
-"And if I proceed?"
-
-"The Westerners will be removed from office. Their students will be questioned. Their networks will be examined." Nam paused. "There are scholars in the provinces whose work has been...noticed."
-
-Sukjong thought of the chest where the formula waited, written in his own hand, in the faction's intellectual register, on the assumption of their continued power.
-
-"Summon the council," he said.
-
----
-
-The announcement was brief.
-
-Lady Jang Hui-bin would be elevated to queen. Her son would remain crown prince. The succession was not subject to ministerial approval.
+Lady Jang Hui-bin would be elevated to queen. Her son would remain crown prince. Queen Inhyeon would be stripped of her title and exiled from court.
 
 The purge began the same afternoon.
 
@@ -117,12 +73,6 @@ Lady Yoon read it twice, then folded it exactly as it had been and returned it t
 That evening, Yeong-hak gave no sign that he had received unusual correspondence. He spoke normally, worked at his desk as always.
 
 But he remained in the study longer than usual. In the morning, the letter was gone.
-
----
-
-In his private study, Sukjong opened the wooden chest. The formula was there, written in his own hand. He folded it and returned it to the chest.
-
-Outside, the palace was settling into the new order. The kingdom was stable. The succession was secure. The crown's authority had been preserved.
 
 ---
 
