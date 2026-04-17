@@ -1,4 +1,4 @@
-# Chapter 12 -- The Seowon
+# Chapter 13 -- The Seowon
 
 She did not find him for two days. He spent the time at an inn in the county seat, writing nothing, asking no questions, letting the inn keeper believe he was a merchant waiting on a delivery.
 
@@ -54,8 +54,6 @@ The room was quiet. He let the silence work for him the way she would have let i
 
 "I know the pattern is wrong for an official inquiry. Too patient. Too repetitive. Someone is mapping routes, habits, intermediaries. The kind of work the court does not assign because the court does not yet know to ask for it."
 
-She felt the truth of that at once. He could see her register it. She was not a woman who let her face show what her mind did, but he had been trained to read the smallest tells, and he saw the small one now.
-
 "And in exchange for what you know," she said, "what do you want from me?"
 
 "What you know about the people they are hunting. And what your contacts told you about who paid them."
@@ -70,19 +68,13 @@ She waited.
 
 "You are too young for a yangban widow."
 
-The phrasing was deliberately old-fashioned. It was the kind of thing a matchmaker might say, made absurd by being said by him, in a room he had no business being in, after a conversation about a dead contact and a hidden investigation. She heard it the way it was meant.
-
 "Then it is well," she said, "that you are not speaking as a matchmaker."
 
-He held her gaze.
+The room was quiet again. He did not look away.
 
 "The work is real. That part stands. We meet twice more — you tell me what your contact revealed, I tell you what I find. After that, officially, I have found nothing in this county worth pursuing."
 
-"And unofficially?"
-
-"You know perfectly well I did not come only for your network."
-
-She went very still.
+She was quiet for a long moment.
 
 "And if I refuse?"
 
