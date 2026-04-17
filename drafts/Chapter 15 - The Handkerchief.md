@@ -36,14 +36,12 @@ She sent it. She hated that she sent it.
 
 The answer came back twelve days later, delivered by a bookseller heading south who owed the network a favor.
 
-The family was established, comfortable. Textile trade. The father was known for honest scales. One daughter. Her name was Soonyi. Twenty-four. Unmarried.
+The family was established, comfortable. Textile trade. The father was known for honest scales. One daughter. Her name was Soonyi. Twenty-four. Unmarried. Pretty, according to the women who knew the family.
 
 Lady Yoon read the letter once. She folded it and placed it in the compartment where she kept correspondence that required no response.
 
-That evening, alone in her room, she sat with the thing she could not name.
+That evening, alone in her room, she sat with the handkerchief she was not holding and the face she had not seen.
 
-The handkerchief was in his pack, wherever his pack was now. Pale blue-grey. Patient stitching. The small character at the corner.
+Twenty-four. Unmarried. Pretty.
 
-Twenty-four. Unmarried.
-
-The pain was so foreign she almost mistook it for illness.
+She pressed her hand flat against the floor until it stopped shaking.
