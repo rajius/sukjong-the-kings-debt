@@ -10,6 +10,10 @@ They stopped at a stream crossing south of Jecheon. Midday, early autumn, the ki
 
 He was refilling the water gourd. She sat on a flat rock near the bank, her face tilted toward the warmth. She looked, for a moment, like someone who was not running anything.
 
+He watched her and tried to reconcile the two things: the woman who had put him in a hold that used his own weight against him, and the woman sitting in the sun with her eyes half closed. The hold had been trained. The network had been built. The yamen questions she had given him that morning had been sequenced with a precision that suggested years of practice reading official records.
+
+Someone had taught her. Not the seowon — the seowon taught classical texts, not operational intelligence.
+
 "Your husband," he said. "What was he like?"
 
 She smiled. Not the controlled, partial thing he had seen before. Full. Brief, but full.
