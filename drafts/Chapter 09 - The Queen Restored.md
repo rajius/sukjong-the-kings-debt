@@ -92,16 +92,16 @@ The court was stable. No single faction possessed enough power to threaten royal
 
 ---
 
-Sukjong retrieved the wooden chest from its place in his private cabinet and opened it to examine the document he had written years earlier.
+Sukjong retrieved the wooden chest from its place in his private cabinet.
 
-The formula remained valid: the Wanli precedent for restoring wronged princes while maintaining dynastic continuity. The solution to a problem that had haunted the kingdom for two centuries was complete, ready for implementation.
+The formula was where he had left it, written in his own hand, dated from the autumn when he had filed it away because the political ground could not bear its weight. The ground had changed. The Westerners were back. The intellectual tradition that demanded this restoration was in power again — diminished, cautious, but in power.
 
-But the political foundation required for implementation had been shattered by the very actions that had preserved royal authority. 
+He read the document. For the first time since he had written it, the formula was not an argument filed for the future. It was a plan that could be set in motion.
 
-Sukjong had gained the power to restore the wronged prince at the exact moment when using that power would undermine everything he had done to obtain it.
+Not today. The court was still fractured from two reversals. The provinces were paralyzed. The men who would need to carry the restoration forward were still reassembling their networks and their nerve. But the direction was no longer theoretical.
 
-He closed the chest and locked it.
+He did not close the chest. He left the document where it was and walked to the window.
 
-Somewhere in the provinces, the cost of his decisions was being borne by people whose names he would never learn.
+The question had changed. It was no longer whether. It was how fast, and at what cost, and whether the ground would hold long enough for the work to be completed before the weather turned again.
 
-The throne remained secure. The wreckage remained where it had fallen.
+He would need information from the provinces. He would need to know what had survived.

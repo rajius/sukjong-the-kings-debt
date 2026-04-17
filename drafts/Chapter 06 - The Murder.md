@@ -26,7 +26,7 @@ He kissed her forehead. "Three days. Four at most if the roads are bad."
 
 She watched him walk to the gate, then turn to wave once before disappearing down the path toward the main road. The gesture was automatic, performed without thought, the way married people say goodbye when they expect to say hello again soon.
 
-When she turned back to the house, something felt wrong. By midday it had not eased. She walked to the physician's house in the late afternoon. She told no one.
+When she turned back to the house, her stomach tightened — the kind of low cramp that she might have mistaken for worry if it had not stayed so long. By midday it had not eased. She walked to the physician's house in the late afternoon. The physician gave her herbs for exhaustion and told her to rest. She told no one what else the physician had said.
 
 It was the last time she saw him alive.
 

@@ -26,11 +26,11 @@ Ok-sun's expression shifted — not recognition exactly, but the particular aler
 
 "I want to know what kind of man has no wife at twenty-nine and no one asking questions about it."
 
-Ok-sun looked at her over the tea. "People are asking questions. They just do not have answers. His parents died — mourning accounts for some years. After that..." She paused. "Song Si-yeol's execution changed everything. Anyone connected to him became politically dangerous. The families that might have arranged a marriage before would not risk it now."
+Ok-sun looked at her over the tea. "People are asking questions. They just do not have answers. His parents died — mourning accounts for some years. After that..." She paused. "The political weather has been shifting. Song Si-yeol's position is not what it was, and anyone connected to him carries that weight. The families that might have arranged a marriage three years ago are watching which way the court turns before they commit a daughter."
 
 "Dangerous?"
 
-"Marked. My husband says the connection to Song Si-yeol makes him brilliant but untouchable — too risky for the families that matter, too accomplished for those that don't."
+"Not yet. But my husband says the connection makes him brilliant and untouchable — too risky for the families that matter, too accomplished for those that don't."
 
 She asked the question she had come to ask. "Is he the kind of man who would walk into a woman's kitchen uninvited?"
 
