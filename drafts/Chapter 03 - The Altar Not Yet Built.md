@@ -40,7 +40,7 @@ Nam read the marked passage, his expression growing more troubled with each line
 
 "Because?"
 
-Because it makes the Westerner position intellectually unassailable. They would rather the question remain unsolved than solved in our favor.
+"Because it makes the Westerner position intellectually unassailable," Nam said. "They would rather the question remain unsolved than solved in our favor."
 
 Sukjong had been expecting this. Nam's sources were better than the court's gossip, and the court's gossip had been shifting for months.
 
@@ -54,11 +54,7 @@ Nam's expression tightened almost imperceptibly. "The queen's favor continues to
 
 They sat in silence.
 
-"There is another consideration," Nam said. "Wanli's armies saved this dynasty. If the emperor who preserved us could restore his wronged nephew while we fail to restore ours, that is more than a missed precedent."
-
-Sukjong understood. The Ming debt was real and would outlast them all. To ignore Wanli's example was its own kind of disloyalty.
-
-"So we have the moral foundation and the precedent."
+So we have the moral foundation and the precedent.
 
 "Yes. And we may have neither for much longer."
 
@@ -66,7 +62,7 @@ Sukjong understood. The Ming debt was real and would outlast them all. To ignore
 
 The test came in late summer, during a routine council meeting about grain taxes.
 
-Minister Yi Saek, newly elevated to the council after years in minor posts, paused at the end of his report. "Majesty, there is another matter. Concerns have been raised about certain scholarly activities in the provinces."
+Minister Park Sejwa, newly elevated to the council after years in minor posts, paused at the end of his report. "Majesty, there is another matter. Concerns have been raised about certain scholarly activities in the provinces."
 
 The room went quiet. Sukjong kept his expression neutral. "What concerns?"
 
@@ -74,7 +70,7 @@ Research into burial sites from the Sejo period. Questions being asked about his
 
 The message was clear: they knew.
 
-Sukjong looked around the council table. Half the faces were familiar, men who had served with his father. The other half were newer, aligned with different priorities. The balance had shifted without his permission.
+Sukjong looked around the council table. Minister Cho's hands were folded, but his thumbs moved against each other — a man containing disagreement. Three seats down, the new appointments avoided his eyes entirely.
 
 "Scholarly research has always been encouraged in this kingdom," he said finally.
 
@@ -95,12 +91,6 @@ He could not have both.
 ---
 
 The decision came in autumn.
-
-Sukjong sat with the book in his hands. The solution was clear. The precedent undeniable. But the political ground was shifting.
-
-To act now would tie the restoration to a faction in decline. The Southerners would see it as a Westerner project, to be undone when they took control.
-
-To wait meant accepting that good ideas could be destroyed by bad timing.
 
 He took out brush, ink, and paper. He wrote slowly, in his own hand:
 
