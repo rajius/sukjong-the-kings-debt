@@ -56,7 +56,7 @@ Yu paused. "I read your memorandum twice. The first time I noted the precision. 
 
 Yi Hwon did not know what to say to this. He bowed.
 
-"Your first observation point will be the Song Si-yeol memorial in the eighth month," Yu said. "It is a public ceremony. The kind of gathering where you can stand in plain clothes and see who attends. Watch the room. Note who is there and who is not. Note who speaks with whom. Send me a list."
+"Your first observation point will be the Jeong Mongju memorial in the eighth month," Yu said. "It is a public ceremony. Scholars from multiple provinces attend. The kind of gathering where you can stand in plain clothes and observe normal scholarly networks. Watch the room. Note the patterns of association. Send me a list."
 
 "Sir."
 
@@ -66,13 +66,13 @@ Yi Hwon did not know what to say to this. He bowed.
 
 The road south was long enough that Yi Hwon had time to consider what kind of man he was now.
 
-He had taken the civil exam to become a civil official. He had instead become a man in plain clothes carrying nothing that proved who he was, sent to listen at the edges of a memorial for a scholar whose execution had killed half a faction. The order had not used the word *intelligence.* It had not needed to.
+He had taken the civil exam to become a civil official. He had instead become a man in plain clothes carrying nothing that proved who he was, sent to observe provincial scholarly gatherings. The order had not used the word *intelligence.* It had not needed to.
 
-He told himself he had no opinion about Song Si-yeol. He had been a child during the funeral disputes that had built the man's reputation, and a young man during the purge that had ended his life. The names of factions had been background to Yi Hwon's life — the way weather was background. They moved through the country whether he attended to them or not.
+The memorial honored Jeong Mongju, the late Goryeo scholar who had died three centuries earlier for his unwavering loyalty. Safe ground, historically. No factional implications. But Yi Hwon understood that no gathering was truly innocent when observed with the right attention.
 
-But riding toward a memorial for the dead teacher, Yi Hwon found himself wondering what Song Si-yeol had actually done wrong. The man had advised the throne. He had taught students. He had written commentaries on classical texts. For this, he had been executed.
+He was being sent to watch how scholars associated, to map their relationships, to note who traveled together and who stood apart. The administrative disruptions Inspector Yu was investigating might be explained by understanding how information moved through scholarly networks.
 
-Now Yi Hwon was being sent to watch people honor that memory, to note who attended, to report back on scholars whose crime might be nothing more than studying with the wrong teacher.
+Still, riding toward the memorial, Yi Hwon found himself uncomfortable with the assignment. These were people honoring a historical figure's moral integrity. Their crime, if it was a crime, was organizing to remember virtue.
 
 The country itself felt different when seen from this angle. Not the ordered landscape of administrative efficiency he had learned to navigate, but something more fragmented. Places where people were afraid to speak. Questions that could not be asked. A silence that followed in the wake of royal attention like frost after a clear night.
 
@@ -88,7 +88,9 @@ By the time he reached the county where the memorial was to be held, he had a sm
 
 The memorial was held at a seowon outside the county seat.
 
-Yi Hwon arrived in the late morning, dressed as a minor merchant on business in the area. The seowon courtyard was already filling — scholars, former students of Song Si-yeol, families who had traveled from neighboring provinces to honor a man whose name had been dangerous to speak three years before and who could now, at last, be honored publicly. The Westerners' return to power had made this ceremony possible. The atmosphere reflected that — not celebration, but the careful gravity of people performing what they had waited five years to perform.
+Yi Hwon arrived in the late morning, dressed as a minor merchant on business in the area. The seowon courtyard was already filling — scholars from multiple provinces, students and their masters, families who had traveled to honor Jeong Mongju's memory. The atmosphere was scholarly, respectful, but not politically charged. This was safe historical ground, a commemoration of virtue that any regime would approve.
+
+But Yi Hwon had been sent here to watch how scholarly networks functioned, to understand the channels through which information flowed in the provinces.
 
 He found a position at the edge of the courtyard, near a low stone wall, where he could see the gate, the main hall, and the tea pavilion without seeming to be watching any of them.
 
@@ -138,7 +140,9 @@ She did not come.
 
 He asked, in the casual way of a stranger making conversation, whether the widow who had managed the tea yesterday might be present today. The scholar he asked seemed surprised by the question, then surprised that he had to think about who the widow was. Eventually he said: she had left in the night. Some private matter. She had sent her apologies to the host.
 
-She had no name the scholar offered, or no name he chose to offer.
+"She was representing a seowon," the scholar added, as if remembering. "Their master could not attend. Illness, I believe. She handled their delegation's arrangements."
+
+She had no name the scholar offered, or no name he chose to offer. And which seowon, Yi Hwon did not think to ask until it was too late.
 
 Yi Hwon stayed through the second day of the ceremony out of professional habit. He noted who attended and who did not. He sent the list to Yu by trusted courier from a town two days' ride south.
 

@@ -1,97 +1,233 @@
 # Chapter 1 -- The Boy Who Inherited a Crime
 
-The decree was read at the seventh moon of Sukjong's seventh year, and the court received it as they received all royal pronouncements -- with bowed heads and the appearance of gratitude.
+The girl asked her grandmother who the boy in the song was.
 
-Nosan-gun would henceforth be known as Nosan Daegun.
+They were sitting in the courtyard as evening fell, the grandmother's hands busy with mending, her voice carrying the melody without effort. The song was about a boy who slept in the mountain and could not wake up. The girl had heard it since before she could remember, but she was old enough now to hear the words inside the melody, and the words said something had happened on a mountain in winter, and a boy had not come home.
 
-One word. *Dae*. Great. The boy king stripped of his throne two hundred and twenty-four years ago, murdered at sixteen in a cold county exile, his name dragged lower than any prince's name had ever been dragged -- that boy was now, by royal grace, elevated from *gun* to *daegun*. From minor lordling to great prince.
+"Who was he?" the girl asked.
 
-Outside the throne hall, the decree would travel by relay horse to the eight provinces. Magistrates would record it. Scribes would copy it. Provincial scholars would read it aloud at their academies, and for a few days Sukjong's name would carry the warmth of a king who remembered the forgotten dead.
+The grandmother's hands did not stop. Her face did not change. But something in the rhythm of the mending shifted -- a pause so small it might have been nothing, or might have been the weight of deciding what to say to a child who had just, without knowing it, asked a dangerous question.
 
-It was a fine thing to have done.
+"A boy who was put in the ground before his time," the grandmother said. "By people who should have protected him."
 
-It was not enough, and every man in the hall knew it.
+"What was his name?"
 
----
+"We don't say the name."
 
-The petition had arrived three days earlier, carried not by some provincial eccentric but by scholars whose names required acknowledgment. They had written carefully. They always wrote carefully. The language honored the throne before it accused it: *We do not presume to instruct Your Majesty, yet the unresolved matter of the former sovereign weighs upon the dynasty's moral account like a debt entered in a ledger but never paid.*
+"Why?"
 
-Sukjong had read it twice. Not because the argument was new -- he had received versions of this petition since his thirteenth year -- but because this time the calligraphy belonged to men who sat in his own court. Men who had students. Men whose students had students. The request was not a provincial whisper anymore. It had entered the capital with institutional weight behind it, and institutional weight, once acknowledged, required an institutional answer.
+The grandmother looked at her then with the expression of a woman deciding whether a child was ready to carry what the women of this county had been carrying for generations.
 
-He was twenty years old. He had been king since thirteen. Those seven years had taught him one thing the Confucian classics did not advertise: that the throne's primary skill was not wisdom but timing. A wise king who moved too early was indistinguishable from a reckless one.
+"Because the last men who said it aloud were killed for it," she said. "And their families were erased. That is part of the song too, though it is not the part you sing."
 
-The petition asked for full restoration. The restoration of Danjong's royal title, his temple name, his place in the ancestral shrine. It asked, in other words, for Sukjong to declare publicly that King Sejo -- his own dynastic ancestor, the man who had seized the throne from his nephew and built the political order that every subsequent king had inherited -- had committed a crime.
+The girl was quiet. The grandmother returned to her mending. The song did not resume, but it did not need to. It had done what it had always done: passed from one pair of hands to the next.
 
-That was the word none of them used. They wrote *injustice*. They wrote *irregularity*. They wrote *a matter the sages would wish corrected*. But behind the brush strokes, the word was always the same.
+In a seowon outside the county -- one of the private academies scattered through the provinces like seeds from a tree the capital had tried to fell -- a young scholar found a page tucked among his practice sheets. It was in his teacher's hand. It was not part of the lesson. It contained a single question, written in the margin of a genealogy: *who was buried at Yeongwol, and by whom?*
 
-Crime.
+He brought the page to his teacher the next morning.
 
-And Sukjong was the criminal's heir.
+"What is this?"
 
----
+The teacher did not look up from his writing. "What do you think it is?"
 
-Nam Guman had been waiting when Sukjong summoned him. That alone told Sukjong something -- the old minister had known the petition was coming and had already prepared his position. Nam did not improvise. He had survived three reigns and two purges by never being caught without a considered opinion.
+The scholar had been studying the early kings. He had read the official histories. He knew what the genealogy said and what it did not say, and he had noticed the gap -- the reign that ended too abruptly, the name that changed, the silence where an explanation should have been.
 
-"Your Majesty's compassion does him credit," Nam said, before Sukjong had spoken a word about compassion. "The scholars' sincerity is not in question. But sincerity and timing are not the same virtue."
+"I think someone is buried on the mountain who should not have been buried on the mountain," he said. "I think the state put him there."
 
-He stood with his hands folded inside his sleeves, his posture that of a man delivering weather rather than politics. Sukjong had learned to distrust that posture. It meant Nam had already decided what the king should do and was now constructing the appearance of open counsel.
+The teacher set down his brush. He looked at the young man the way the grandmother had looked at the girl -- measuring not intelligence but readiness, the capacity to carry a thing without breaking under it or speaking about it to the wrong person.
 
-"The question is not whether the former sovereign deserves honor," Nam continued. "The question is what reopening this wound will cost the living. Every king since Sejo has inherited this silence. To break it is to say that five reigns maintained an injustice. That is not a correction, Your Majesty. That is an indictment."
+"Do not say that outside this room," the teacher said. "Do not write it in any letter. If you understand what you have read, you will one day place the same page among your own student's sheets. If you do not understand, the page will be lost, and the knowledge will find another carrier."
 
-"Of whom?"
-
-"Of the throne itself."
-
-Sukjong let the silence hold. He had learned that too -- that silence after a minister's strongest point could make the point sound less inevitable than the minister intended.
-
-"And if the silence is the injustice?" Sukjong said.
-
-Nam's expression did not change. "Then Your Majesty must decide how much injustice he can afford to repair at once."
+This had been happening for two hundred and twenty-four years. Seven generations. A stonecutter outside the county had carved a poem on a rock face that said nothing about kings or thrones -- only that a pine tree on the eastern ridge had witnessed something the snow covered by morning. The rock was too high and too remote for officials to bother reading. The poem had outlasted every magistrate sent to govern the county. It would outlast the next.
 
 ---
 
-That was the calculation. Not whether Danjong deserved restoration -- even Nam, who opposed it, never argued that the boy had deserved what happened to him. The question was mechanical: how many walls could Sukjong move before the ceiling fell.
+The report arrived on a morning in the third month of Sukjong's sixth year, carried by a secretary who did not understand what he was delivering.
 
-Full restoration meant declaring Sejo a usurper. It meant every descendant of every official who had served Sejo's court would feel the ground shift beneath their family's legitimacy. It meant the Westerners, who held power now, would have to publicly accept a verdict that some of their own intellectual ancestors had resisted. It meant the Southerners, currently out of favor, would claim vindication. It meant the factional map -- already drawn in old blood -- would be redrawn with fresh accusations.
+Sukjong read it at his desk. It concerned the chief minister -- a matter of misappropriated military supplies, the kind of infraction that could be treated as a clerical error or as treason, depending entirely on who was reading it. The chief minister had been careless. Or rather, he had been confident, which in a man who had governed for six years as if the king were a student and he were the curriculum was the same thing as carelessness.
 
-Sukjong understood all of this. He had understood it since he was fifteen, when the first petition had crossed his desk and he had felt, for the first time, the particular weight of inheriting a wrong you did not commit but were responsible for.
+Sukjong set the report down. He did not summon anyone. He sat with it for the length of a morning, turning it over the way a man turns a tool in his hand, testing the weight, the balance, the edge.
 
-He chose the half-measure.
+Joseon ran on factions -- rival camps of scholars and officials whose battles over precedent and policy had hardened into something closer to war. In his final month, King Hyeonjong had sided with one faction in a dispute over mourning rites. The question was how many months a dowager queen should grieve, but in Joseon such questions were always about who had the authority to define legitimate kingship. Hyeonjong ruled in their favor, stripped their rivals from office, and died. His fourteen-year-old son inherited the arrangement.
 
-Not from cowardice. From arithmetic.
+For six years, Sukjong had lived inside this arrangement. The faction controlled the ministries, staffed the censorate, dominated the royal lectures. They governed as if the king were a student and they were the curriculum. But Sukjong had watched. He had learned which men spoke to him as a king and which spoke to him as a boy they expected to manage.
 
-*Nosan Daegun.* The elevation acknowledged royal blood without restoring royal title. It said: *this person mattered more than his current name suggests.* It did not say: *a king was murdered by his uncle and the state has lied about it for two centuries.*
+The report was the lever. Not because it mattered -- any pretext would have served -- but because it was what had arrived, and a king who waits for the perfect instrument waits forever.
 
-It was the largest step that would not crack the floor.
+He summoned the secretary back that afternoon and gave three orders. By evening, the chief minister had been stripped of office. By the end of the week, his allies had been scattered to provincial posts. By the end of the month, the rival faction -- men who had waited a generation for this opening, whose teachers had waited before them -- occupied every position that mattered.
 
----
-
-The scholars received the decree and did what scholars do with insufficient answers. They bowed. They expressed gratitude. They went home and wrote letters.
-
-Within a week, the first responses arrived from the provinces. Sukjong did not need to read them to know their shape. The loyalists would call the elevation a beginning. The conservatives would call it an ending. The court historians would record it as benevolence. And in the seowon of Yeongwol, where Danjong had been sent to die, old men who had kept the dead king's memory alive through five reigns of official silence would read the decree and understand exactly what it was.
-
-A signal sent by a king who was not yet ready to pay the full price.
-
-They were not satisfied. Sukjong did not expect them to be. Satisfaction was not the point. The point was that after two hundred and twenty-four years, the throne had flinched. Not much. Not enough. But the direction of the flinch could not be taken back.
-
-He had moved one word. *Dae.*
-
-The rest would take time he might or might not have. He was twenty, and kings in his family did not always get to finish what they started.
+Sukjong was twenty. He had done it in a single season. The ministers who remained understood what that meant: this was not a king who would be managed.
 
 ---
 
-That night, alone in his private study, Sukjong unrolled the petition again. He read past the formal language, past the Confucian framework, past the careful hedging. He read until he found the sentence the scholars had buried in the middle of the document, where they knew only a careful reader would find it:
+The day after his coronation, Sukjong sent a messenger to Song Si-yeol.
 
-*The body of the former sovereign was cast into the river at Yeongwol. It was a commoner of the county, one Eom Heung-do, who retrieved the body at risk of his own life and buried it in secret on the mountainside. No official has ever acknowledged this act. The grave has no royal marker. The man who performed the burial has no memorial.*
+Song Si-yeol was the most respected scholar in the country -- the intellectual patriarch of the faction Sukjong's father had just stripped from power. The fourteen-year-old king sent a personal summons, written in his own hand, requesting the old scholar's counsel. It was the correct gesture. A new king, young and untested, reaching across the factional divide to the man whose moral authority was greater than any minister's.
 
-Sukjong set the petition down.
+Song Si-yeol had already left the capital.
 
-A commoner had done what five kings had not. He had buried the dead because someone had to, and then he had disappeared into the silence that the state required of him.
+He had departed the morning of the coronation, before the ceremony was finished. When Sukjong's messenger arrived with the royal summons, Song Si-yeol sent him back without a reply.
 
-Two hundred and twenty-four years of silence.
+Sukjong tried twice more. He asked the old scholar to write his father's memorial inscription -- the highest honor a king could offer. Song Si-yeol declined. The refusal said what it was designed to say: *you are fourteen years old, and your father handed the court to my enemies. I will wait until you come to me on acceptable terms.*
 
-Sukjong looked at the single word he had added to a dead boy's name and felt, for the first time clearly, the full shape of the debt.
+Sukjong sat on the throne his father had left him, in a court full of men who had been placed there by a dying king's last judgment, and understood for the first time what it meant to wear a title that the room did not believe in. He was king. The word meant nothing if the men who were supposed to serve him could simply walk away.
 
-It was not enough.
+He did not think of Danjong then. He had heard the story from his tutor the year before, but at fourteen it was still history -- a boy in a lesson, not a boy in a mirror.
 
-He already knew that.
+---
+
+In the weeks after the overthrow, the memorials came. They always came after a change of power -- requests for rehabilitation, petitions for redress, the names of men condemned under the previous regime now resubmitted by descendants and students and faction elders who could finally speak. Most were routine. Political prisoners. Wrongful demotions. The ordinary wreckage of factional rule.
+
+One was not routine.
+
+The memorial from the Vice Premier concerned the loyalists who had died defending Danjong two hundred and twenty-four years before: Hwangbo In, Kim Jong-seo, the men Sejo had destroyed for standing between him and a boy's throne. It asked for their rehabilitation -- the restoration of their names, their ranks, the acknowledgment that what had been done to them was wrong.
+
+Sukjong read the memorial in his private study. He read it twice. The memorial asked for the loyalists who had died defending Danjong two hundred years before -- but it did not ask for the boy himself.
+
+The logic had a gap. You could not call these men loyal without asking: *loyal to whom?* Once you answered that question, you had admitted the boy was worth defending.
+
+He set the memorial down and thought of what his tutor had told him seven years ago. A name the memorial did not contain: Eom Heung-do. A commoner who had pulled the boy's body from the river and carried it up the mountain in the dark and buried it because someone had to. No official had ever acknowledged the act. The grave had no royal marker. The man who performed the burial had no memorial.
+
+A body in a river. A commoner pulling it out. The cold.
+
+Sukjong looked at nothing for a long time.
+
+---
+
+The memorial was not the first of its kind to reach a king's desk. Seven years earlier, under Sukjong's father, the same request had been submitted. It had gone nowhere. The political weather was wrong. Filed and forgotten.
+
+Sukjong had been thirteen. He had not been in the room when his father received it -- princes did not sit in court sessions -- but he had watched from the margins the way a boy watches anything that makes the adults go quiet. He had seen the memorial arrive. He had seen it not return. No discussion. No decree. No acknowledgment that it had existed at all. The court moved on to the next item, and Yi Seon's name was not mentioned again that season.
+
+It was his tutor who explained. Not immediately -- the man had the same patience as the seowon teachers, the same instinct for placing knowledge where a student would find it at the right time. A week after the memorial disappeared, during a lesson on the early kings, the tutor paused at Danjong's reign. He did not editorialize. He simply read the passage more slowly than the passages before and after it, and when he reached the end -- the exile, the death, the silence that followed -- he set the text down and looked at the prince and said nothing.
+
+Sukjong had asked.
+
+The tutor told him. Not the official version -- the version that lived in the seowon pages and the grandmothers' songs. The boy. The uncle. The river. The commoner who carried the body up the mountain. The two hundred years of silence. He told it the way a teacher tells a student something the student will need to carry for the rest of his life: plainly, without rhetoric, trusting the weight of the thing itself.
+
+Sukjong had done the arithmetic without being asked. The boy had been twelve when he took the throne. Thirteen when his uncle began to move against him. Fourteen when he was deposed. Sukjong was thirteen. The distance between them was one year and two hundred and seventeen. He had not said this to the tutor. He had not needed to. The tutor had seen it in his face -- the particular stillness of a boy who has just understood that the story he is hearing is not about someone else.
+
+Then the tutor said: "Your father received a memorial this week asking him to correct this. He will not correct it. The men who hold power in his court do not want it corrected. Remember that -- not as a judgment of your father, but as a fact about courts. A king sees what he is permitted to see. The petition your father did not answer will come to you. It may take years. It may take the right men standing in the right positions. But it will come, because the people who carry this do not stop."
+
+Sukjong had been thirteen. He had understood the history. He had not understood the weight. That came later -- after the coronation, after Song Si-yeol's empty chair, after the years of sitting on a throne that rested on a silence he could no longer maintain without feeling the cost.
+
+Now the weather had changed. Sukjong's overthrow had swept the old faction out and installed the new. The Vice Premier's memorial had arrived on his desk asking for the loyalists -- and no one, not the Vice Premier, not the scholars in the seowon, was asking for the boy himself. They were asking for the men who died defending him. Sukjong was the one who saw that the defenders were not the end of the argument. They were the beginning.
+
+When Sukjong thought of the boy -- crowned at twelve, surrounded by men who could destroy him -- something moved. He had sat on the same throne at the same age. The difference was the uncle.
+
+He summoned Nam Guman.
+
+---
+
+Nam was already waiting. That told Sukjong what he needed to know: the minister had seen the memorial before it reached the king's desk, had read the names, had measured the weight, and had already prepared his position. Nam Guman did not improvise. He had survived three reigns and two purges by arriving at every important conversation with his opinion already formed and his language already chosen.
+
+Sukjong did not wait for the minister to set the terms.
+
+"The Vice Premier asks for the loyalists," he said. "I want to give him the boy. Full restoration. His name, his title, his place in the shrine. I want to say what every king since Sejo has known and not said."
+
+Nam's face did not change. But his hands, folded inside his sleeves, shifted -- a small adjustment, the kind a man makes when the weight he expected to carry turns out to be heavier than he prepared for. He had come ready to manage a young king's sympathy. He had not come ready to manage a young king's conviction.
+
+"Your Majesty has read the memorial," Nam said carefully.
+
+"The memorial asks for the loyalists. I watched my father's court bury the same request seven years ago without a word. Now the weather has changed and the same cause stands before me. But I am not answering the memorial, Nam. I am answering the debt behind it. You cannot honor the men who died defending a boy and leave the boy himself in an unmarked grave."
+
+"The Vice Premier did not ask for restoration."
+
+"No. I am asking for it. Seven generations have carried this debt. Every reign that did nothing added to it. My father inherited six generations of silence. I inherited seven. If I do nothing, my son inherits eight -- and his will be heavier than mine, because it will include the knowledge that I read these names, and understood, and looked away." He set the memorial down. "I am not willing to make that bequest."
+
+Nam stood with his hands folded inside his sleeves, his posture that of a man discussing the weather with a neighbor he respected. Sukjong had learned to distrust that posture. It meant Nam had already decided what the king should do and was now constructing the appearance of open counsel.
+
+"Your Majesty sees the debt clearly," Nam said. "But does Your Majesty also see what full restoration declares?"
+
+"That a boy was wronged."
+
+"That a king was murdered by his uncle and every reign since maintained the lie. Full restoration is not a correction, Your Majesty. It is an indictment of the throne itself."
+
+Sukjong let the silence hold.
+
+"The scholars have waited seven generations," Nam continued. "The question is not whether this boy was wronged -- everyone knows he was wronged. The question is how you admit a king was murdered without declaring the uncle's entire line illegitimate. Because that line, Your Majesty, is yours."
+
+"Sejo is a portrait on a wall," Sukjong said. "Seven portraits back. I feel nothing when I read his name. No loyalty. No debt. Nothing."
+
+"What Your Majesty feels is not the same as what the court will hear." Nam paused. "You are twenty, Your Majesty. You have clarity about the past. But there is no formula yet for how to honor the victim without condemning the ancestor. If you declare full restoration before that formula exists, you hand your enemies the indictment and no defense."
+
+Sukjong studied the old minister. Nam was not wrong. The distance between reading about purges and having survived them was the distance between twenty and sixty, and Nam was standing in it.
+
+"What, then?" Sukjong said. The frustration was real, and he did not hide it. "Another generation of silence? Another king who knew and did not speak?"
+
+"A king who speaks," Nam said. "But not every word at once."
+
+The room was quiet. Nam waited. He had the patience of a man who had outlasted better arguments by simply remaining in the room after the argument had exhausted itself.
+
+"One step," Nam said. "A step that commits the throne to a direction without exposing it to the indictment. A step the next king cannot reverse -- so that when the formula is ready, the ground has already been prepared."
+
+"What step?"
+
+"Elevate the title. *Nosan-gun* to *Nosan Daegun.* Minor lord to great prince. It acknowledges royal blood without restoring royal status. It says: *this person mattered more than his current name allows.* It does not say: *a king was murdered and the state has lied about it for two hundred and twenty-four years.*"
+
+Sukjong looked at the memorial. He looked at Nam. He felt the distance between what he wanted to do and what he could do, and for the first time understood that this distance was not a failure of courage. It was the shape of the problem itself -- a problem that could not be unmade in a single decree, no matter how clear the eyes of the king who issued it.
+
+One word. It was less than he wanted. It was more than any king before him had given.
+
+"*Daegun,*" Sukjong said.
+
+Nam bowed. He left without another word. He had the instinct to leave a king alone with a decision before the king could resent the man who had shaped it.
+
+---
+
+Sukjong sat in the quiet after the door closed. *Gun* to *daegun.* One word.
+
+---
+
+The decree was read at the seventh moon of Sukjong's seventh year.
+
+The court received it with bowed heads and the appearance of gratitude. Relay horses carried it to the eight provinces. Magistrates recorded it. Scribes copied it. For a few days, the king's name carried the warmth of a ruler who remembered the forgotten dead.
+
+The scholars bowed. They expressed gratitude. They went home and wrote letters.
+
+In Yeongwol, the old men in the seowon who had inherited this cause from their teachers, who had inherited it from theirs, read the decree and understood exactly what it was. One word. A direction, not a destination.
+
+They could carry it further.
+
+---
+
+That night, Sukjong looked at the word he had changed. It was not enough. But it was more than any king before him had given.
+
+---
+
+In the days that followed, Sukjong did one more thing the court record would not note.
+
+Through a private channel -- not an official dispatch, not a sealed decree, but a letter carried by a trusted hand to a trusted hand -- he sent a quiet inquiry south. The inquiry concerned the state of the tomb at Yeongwol: whether it still stood, whether the local people still tended it, whether the descendants of Eom Heung-do still lived in the county, whether the ground could bear the weight of what might one day come.
+
+He did not frame it as preparation for restoration. He framed it as scholarly curiosity -- a king's private interest in provincial heritage. The letter carried no royal seal. It bore no official weight. It was deniable.
+
+Within weeks, the inquiry had been noted by someone who understood what a king's "scholarly curiosity" about Yeongwol meant. The name of the county began to appear in private correspondence.
+
+Sukjong did not know this. He had sent a thread into the provinces, and the thread had been seen, and now it was being followed by eyes that did not want the tomb at Yeongwol to bear any weight at all.
+
+In the seowon, the teachers placed new pages among the practice sheets. In the countryside, the grandmothers sang the same song. And in the provinces, among the scholars and minor officials who had been documenting what the state wanted forgotten, something shifted.
+
+Something had moved. Something was watching.
+
+---
+
+## Interstitial -- 1457
+
+A man carried a body up the mountainside in the dark.
+
+The body was wrapped in what he had -- not silk, not court linen, but a coarse hemp cloth he had taken from his own household stores. The weight was wrong for a boy of sixteen. Death had made it heavier, or the cold had, or the knowledge of what he was doing.
+
+Snow fell. Not heavily, but enough. His wife had watched from the doorway of their house as he left. She had not asked where he was going. She had not asked what he was carrying. She had stood in the frame of the door with her hands at her sides and her face set in the expression of a woman who understood that some questions, once asked, could not be taken back.
+
+He climbed. The path was not a path -- it was a line he had chosen by daylight and was now following by memory, through trees that looked different in the dark, over ground that shifted under the snow. His arms burned. His back bent under the weight. He stopped twice to rest and both times felt the cold settle into the body he was carrying as if the mountain were already claiming it.
+
+Near the top, he passed a pine tree. It was old enough that its lowest branches had thickened into shapes that looked, in the dark, like arms held out. He did not stop. He would not remember the tree. But the tree would still be standing two hundred and forty years later, when a woman who had lost her husband to the same cause stood in the same cold at the same altitude and understood everything and forgave nothing and remained.
+
+He dug. The ground was half-frozen and the work was slow. He used a tool he had brought from home -- a farming implement, not a burial instrument, because there were no burial instruments for this kind of work. No one had prepared for this. No one had imagined that the state would throw a king's body into a river and a commoner would be the one to pull it out.
+
+He placed the body in the ground. He covered it. He stood over the finished grave as the snow began to fill the disturbed earth.
+
+By morning, no one would know.
+
+He turned south and began the walk home. He did not know what he had started. He did not know that what he had done would take two hundred and twenty-four years to be acknowledged, that the grandmothers would sing about it, that the teachers would hide it in practice sheets, that a king not yet born would add one word to a dead boy's name and call it progress, and that the thread he had just laid in the earth would reach, eventually, through centuries of patience and silence and memory, into a world where it still had the power to get men killed.
+
+He knew only the cold, and the weight, and the walk home, and the wife who would be standing in the doorway when he returned, still not asking.

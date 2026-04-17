@@ -22,6 +22,8 @@ Once, she would have carried a thought like this home and heard it made sharper 
 
 She absorbed what she could. She would only see him once.
 
+She did not know that somewhere in the palace, new letters were already being written about the next move. The machinery never stopped.
+
 After a long moment, she felt enough. She nodded to Yi Hwon.
 
 They walked to the cart. Before stepping up, she looked around once more - old habits were hard to forget. As she did, she noticed another cart nearby, finer than the others, its window opened slightly. 
