@@ -62,18 +62,16 @@ He held her gaze.
 
 "And then?"
 
-"And then you go home."
+She did not answer immediately. She was looking at the mill wheel — the old mechanism, the wood darkened by years of water, the place where something had once turned and no longer did.
 
-The word landed the way words did between them now — small, exact, doing work the larger word would have ruined.
+"We will discuss that at the next meeting," she said.
 
-"Lady Yoon —"
+"When?"
 
-"You carry something from someone who cares for you. You carry it against your body." She paused. "I will not be the reason you set that aside."
+"When I have decided what to do about you."
 
-"What if I don't want —"
+The phrasing was deliberate. Not *about this.* About *you.* He heard it. She had meant him to.
 
-"That," she said, "is exactly why you need to."
+She turned and walked toward the trees on her side of the clearing. At the treeline she stopped and looked back — not at his face, but at his hands, the way she might look at something she was considering and had not yet resolved.
 
-She turned and walked toward the trees on her side of the clearing. She did not look back.
-
-The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.
+Then she was gone. The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.
