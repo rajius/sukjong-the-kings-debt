@@ -1,6 +1,4 @@
-# Chapter 8B -- Be Careful With Your Skills
-
-*Note: This chapter sits between the current Chapter 8 (The Stone Rubbing) and Chapter 9 (The Queen Restored). Numbering TBD.*
+# Chapter 9 -- Be Careful With Your Skills
 
 ---
 
@@ -130,44 +128,8 @@ The dead names had bought her a season. The women would buy her years.
 
 ---
 
-The years came.
+The years came. The women's network grew the way her education had grown — through placement, through necessity, through the accumulation of small decisions that only looked like a plan when viewed from the end. By the fourth year, the network needed men too: couriers, watchers, men who could enter rooms where women were not expected. She recruited carefully. She rotated them. No man knew more than two contacts. One of them — a former clerk named Jang, precise and bitter and hungry — she watched more carefully than the rest. In the fifth year, a meeting went wrong enough that she learned to fight: an old garrison soldier taught her leverage and joint locks in a storage shed before the household woke, three months of mornings, until she could read the moment before a body moved the way she read rooms.
 
-The first year was the hardest — learning which women could carry weight and which would break under it, which households could be trusted as forwarding points and which leaked. She lost two contacts in the first season: one who talked to a neighbor about unusual correspondence, one whose husband found a letter and demanded an explanation she could not give. Both were women Lady Yoon had misjudged. She did not misjudge again.
-
-By the second year, the service had a shape. Women came to her through the same quiet channels that had always carried the names of physicians and seamstresses — one recommendation at a time, never written, never repeated to anyone who had not been assessed. Some clients paid in coin, which kept the household standing. Some paid in information or introductions, which kept the operation growing. A merchant's wife who wanted to know about her husband's failing business paid with access to her father-in-law's shipping routes — routes that could carry letters faster than any scholarly channel. A magistrate's widow who wanted to know why her pension had been delayed paid with the name of the clerk who processed provincial dispatches.
-
-Each payment fed the next investigation. Each investigation widened the reach.
-
-By the fourth year, the network needed what the women could not provide. There were places women could not go — yamen record rooms, military supply depots, mountain roads where a woman traveling alone would be questioned and remembered. There were tasks that required a man's body: carrying heavy materials, standing guard at a meeting, walking into a room where the only people expected were officials.
-
-The first man she recruited was Ok-sun's brother — a carpenter who owed Lady Yoon a debt she had never named and he had never forgotten. He carried letters between two counties, asked no questions, and reported what he saw on the road with the same plain accuracy that Lady Yoon valued above cleverness. He was reliable. He was also visible, which meant he could not last.
-
-She learned to rotate. No man carried the same route twice in succession. No man knew more than two contacts. No man understood the full shape of what he was part of.
-
-By the sixth year, she had eight men working at the edges of the network — couriers, watchers, occasional enforcers. One of them was a former clerk named Jang who had been dismissed from a provincial office for recording discrepancies his superior preferred to ignore. He was precise, bitter, and hungry for work that felt like it mattered. Lady Yoon gave him a route connecting three seowon and a set of instructions that kept him useful for two years.
-
-She did not trust him entirely. She did not trust any of them entirely. But Jang was the one she watched most carefully, because the hunger in him was the kind that could be redirected if someone offered a better price.
-
-She would be proven right about that, though not for some time.
-
----
-
-The training came from necessity, not from choice.
-
-In the fifth year, a meeting with a provincial contact had gone wrong. The man had been nervous, possibly followed, and when Lady Yoon arrived at the agreed location he was not alone. She had talked her way out — the cover held, the contact's companion accepted her explanation — but she had stood in that doorway knowing that if the explanation had failed, she had nothing between herself and two men except the speed of her feet and the width of the door.
-
-She went to Ok-sun's brother afterward and asked him who he knew.
-
-The man he found was old, quiet, and had served in a garrison on the northern border before his knees gave out. He did not ask why a widow needed to learn how to control a man's body. He taught her in the storage shed behind the seowon, in the early mornings before the household woke. The lessons were not about strength — she had none to spare. They were about leverage, position, and the precise anatomy of joints that could be locked with less force than it took to grind ink.
-
-She learned the hold that used a man's own weight against him. She learned where to place a forearm across a throat so that struggle would damage the attacker more than the defender. She learned to read the moment before a body moved — the shift in weight, the tightening of a shoulder — the way she had learned to read rooms.
-
-The training took three months. She practiced on Ok-sun's brother, who was patient and bruised easily and never complained. She did not enjoy it. She added it to the list of skills she carried without wanting to carry them.
-
----
-
-By the fifth year, the network was something she could not have described to anyone and could not have built if she had tried to design it in advance. It had grown the way her education had grown — through placement, through necessity, through the accumulation of small decisions that only looked like a plan when viewed from the end.
-
-Women moved at the center. Men moved at the edges. The investigators were still looking for scholarly correspondence and documented connections. They found neither.
+By the fifth year, women moved at the center. Men moved at the edges. The investigators were still looking for scholarly correspondence and documented connections. They found neither.
 
 She was thirty-five. She had not been touched by another person in five years. She had not been asked "tell me about today" since the evening the chopsticks stopped.

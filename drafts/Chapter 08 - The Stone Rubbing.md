@@ -48,12 +48,4 @@ She thought about the body that had come back from Wonju with clean hands and a 
 
 The rubbing was not in the archive because it did not yet exist. Her husband had been killed before he could make it.
 
----
-
-She did not sleep that night. She sat with the notes spread on the desk and traced Yeong-hak's sketch of the tablet with her finger.
-
-The final entry was a list of materials for the second visit. Heavy paper. Ink blocks. A mallet. Cloth for padding.
-
-The list of a man who expected to return.
-
 She folded the notes and placed them back in the compartment. The young man had said he would return too. He had not said when.
