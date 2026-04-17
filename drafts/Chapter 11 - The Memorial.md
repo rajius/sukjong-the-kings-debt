@@ -1,4 +1,4 @@
-# Chapter 10 -- The Memorial
+# Chapter 11 -- The Memorial
 
 The order found Yi Hwon at his garrison posting in the third week of the seventh month.
 
@@ -64,23 +64,9 @@ Yi Hwon did not know what to say to this. He bowed.
 
 ---
 
-The road south was long enough that Yi Hwon had time to consider what kind of man he was now.
+He rode south in plain clothes, carrying nothing that proved who he was. The order had not used the word *intelligence.* It had not needed to.
 
-He had taken the civil exam to become a civil official. He had instead become a man in plain clothes carrying nothing that proved who he was, sent to observe provincial scholarly gatherings. The order had not used the word *intelligence.* It had not needed to.
-
-The memorial honored Jeong Mongju, the late Goryeo scholar who had died three centuries earlier for his unwavering loyalty. Safe ground, historically. No factional implications. But Yi Hwon understood that no gathering was truly innocent when observed with the right attention.
-
-He was being sent to watch how scholars associated, to map their relationships, to note who traveled together and who stood apart. The administrative disruptions Inspector Yu was investigating might be explained by understanding how information moved through scholarly networks.
-
-Still, riding toward the memorial, Yi Hwon found himself uncomfortable with the assignment. These were people honoring a historical figure's moral integrity. Their crime, if it was a crime, was organizing to remember virtue.
-
-The country itself felt different when seen from this angle. Not the ordered landscape of administrative efficiency he had learned to navigate, but something more fragmented. Places where people were afraid to speak. Questions that could not be asked. A silence that followed in the wake of royal attention like frost after a clear night.
-
-What Yi Hwon did know was the country itself. He knew how grain moved between counties and what happened when it did not. He knew the look of a magistrate's clerk who was being asked to explain a discrepancy he had spent six months hoping no one would notice. He knew which inns kept clean records and which kept second sets. He knew the sound of a road that had been recently traveled by men who did not want to be seen.
-
-He rode south. He stopped at inns. He listened. He bought silk thread from a market woman in a county he had no business being in and asked her, casually, whether business had been steady. She told him, in the way market women tell strangers nothing they would not tell their grandmothers, about three families that had received polite visitors in the past month.
-
-He noted the names. He did not write them down where the inn keeper might find the paper.
+He stopped at inns. He listened. He bought silk thread from a market woman and asked, casually, whether business had been steady. She told him about three families that had received polite visitors in the past month. He noted the names. He did not write them down where the inn keeper might find the paper.
 
 By the time he reached the county where the memorial was to be held, he had a small mental map of where the silence was thickest and where the watching was. He had seen no investigators. He had seen the absence of investigators in places where investigators had been. He understood that this was the same thing.
 
@@ -88,9 +74,7 @@ By the time he reached the county where the memorial was to be held, he had a sm
 
 The memorial was held at a seowon outside the county seat.
 
-Yi Hwon arrived in the late morning, dressed as a minor merchant on business in the area. The seowon courtyard was already filling — scholars from multiple provinces, students and their masters, families who had traveled to honor Jeong Mongju's memory. The atmosphere was scholarly, respectful, but not politically charged. This was safe historical ground, a commemoration of virtue that any regime would approve.
-
-But Yi Hwon had been sent here to watch how scholarly networks functioned, to understand the channels through which information flowed in the provinces.
+Yi Hwon arrived in the late morning, dressed as a minor merchant. The seowon courtyard was already filling — scholars from multiple provinces, students and their masters, families who had traveled to honor Jeong Mongju's memory.
 
 He found a position at the edge of the courtyard, near a low stone wall, where he could see the gate, the main hall, and the tea pavilion without seeming to be watching any of them.
 
@@ -147,7 +131,5 @@ She had no name the scholar offered, or no name he chose to offer. And which seo
 Yi Hwon stayed through the second day of the ceremony out of professional habit. He noted who attended and who did not. He sent the list to Yu by trusted courier from a town two days' ride south.
 
 He did not include the widow. He was not yet sure what he would have written if he had.
-
-The image of her stayed with him as he traveled. The way a man notices a discrepancy in a supply record. Something that did not fit, noted, unresolved. A widow in plain white who managed a courtyard with the precision of a senior official, who classified him in the time it took to lift a cup, and who vanished overnight without leaving a name.
 
 He had not finished looking.
