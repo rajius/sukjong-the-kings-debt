@@ -20,7 +20,11 @@ She did not open her eyes. "Taught me what?"
 
 She was quiet for a moment. The stream moved over the stones.
 
-"Your husband," he said. "What was he like?"
+"My husband," she said.
+
+He waited.
+
+"What was he like?"
 
 She smiled. Not the controlled, partial thing he had seen before. Full. Brief, but full.
 
