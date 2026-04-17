@@ -26,80 +26,40 @@ He had been expecting something else.
 
 ---
 
-The revelation came three weeks later, when two letters arrived on the same day.
+That evening, after the household had settled, Lady Yoon returned to the archive.
 
-The first was routine: an inquiry about genealogical records from a scholar in Andong, addressed to Master Kim. Lady Yoon prepared her usual careful reply, explaining research limitations and suggesting alternative sources.
+She had not searched it for Eom Heung-do before. Master Kim's papers were organized by correspondent and province, not by subject, and the name had never appeared in any letter she had answered. But the young man's inquiry had been too specific to be casual. Someone believed Master Kim had been researching the tomb. If that was true, the evidence would be in the archive — in a corner she had not yet examined.
 
-The second letter was addressed to "Scholar Yi, regarding recent provincial assessments," but had been delivered to the seowon by mistake. The messenger had confused similar-sounding addresses and left it before anyone could correct the error.
+She found it in the third hour, in a compartment she had assumed contained only maps.
 
-Lady Yoon noticed the seal. Official, high-quality paper, formal chancellery script. She opened it.
+It was not a stone rubbing. It was a set of notes in Yeong-hak's handwriting — her husband's angular brush strokes, unmistakable — describing a rubbing he had seen. The notes were dated from the year before Song Si-yeol's execution. They documented inscriptions from what Yeong-hak believed to be Eom Heung-do's original memorial tablet, a monument the state had ordered destroyed two centuries ago.
 
-*Your preliminary report on administrative disruptions has been received. The connection between genealogical research activities and local governance problems is being investigated at the ministerial level. Continue monitoring scholarly correspondence in your assigned provinces. Pay particular attention to inquiries regarding burial sites from the Sejo period. Report any organized efforts to document historical claims that might affect current political arrangements.*
+The inscriptions recorded Eom Heung-do's act: the retrieval of Prince Danjong's body from the river, the burial on the mountainside, the name of the place. Details that the official histories had erased. Details that should not have survived.
 
-*Specific interest: network activities centered around Song Si-yeol's former students, particularly those involved in research projects that survived the recent factional changes. Several names have been identified as persons requiring investigation.*
+But they had survived — in stone, in a location Yeong-hak had visited and documented. His notes included a sketch of the tablet's position relative to the tomb, measurements of the stone face, and a list of the characters he had been able to read. At the bottom, in smaller writing: *Rubbing attempted. Partial success. Full rubbing requires second visit with proper materials.*
 
-Lady Yoon read the letter three times.
+He had been planning to go back.
 
-Scholar Yi was an investigator working for the capital, monitoring exactly the kind of research she had been facilitating. Someone was coordinating surveillance of genealogical inquiries, targeting networks connected to Song Si-yeol's students.
+Lady Yoon sat in the dark study holding her husband's notes. She understood now what the young man had been asking about and why he had been disappointed by her reply. Someone else knew the rubbing existed — or knew that Yeong-hak had been trying to make one. The young man had come to the seowon expecting to find the completed rubbing in Master Kim's collection. He had not found it because it was not there. Yeong-hak had not lived long enough to complete it.
 
-People like her late husband.
+She read his notes again. The handwriting was steady in the first pages, more hurried near the end. The final entry was a list of materials he would need for the second visit: heavy paper, ink blocks, a mallet, cloth for padding. The list of a man who expected to return.
 
-She resealed the letter carefully and arranged for its delivery to the correct address. But first she copied Scholar Yi's name and the provinces in his assignment, and she made note of the names listed for investigation.
+She thought about the body that had come back from Wonju with clean hands and a mark on the neck. The body of a man who had been mapping the evidence the state wanted erased. Who had found the stone the state had ordered destroyed. Who had been planning to bring back the proof.
 
-She knew two of them.
-
----
-
-That evening she did not begin with the letters. She began with the women.
-
-She wrote first to Ok-sun, her most trusted source for things men did not say at home. The note was a request to share dried persimmons next month—the kind of invitation that established a meeting without naming one.
-
-She wrote next to Madam Choe, whose nephew worked in the chancellery section that handled provincial dispatches. The note was a polite inquiry about a fabric pattern. The reply would tell Lady Yoon whether her household needed to be moved or merely warned.
-
-She wrote to three others. Wives, one widow, one merchant's mother. None of the letters mentioned scholarship. None mentioned politics. Each one carried, beneath the ordinary words, a question that would be answered in the same form. The women would talk to their husbands and brothers and sons and servants. The answers would come back through the same channel — gathering invitations, fabric samples, polite inquiries about the price of rice.
+The rubbing was not in the archive because it did not yet exist. Her husband had been killed before he could make it.
 
 ---
 
-The understanding came slowly, over the weeks that followed, as the women's replies arrived.
+She did not sleep that night. She sat with the notes spread on the desk and traced Yeong-hak's sketch of the tablet with her finger. The stone was still there — if it had not been found and destroyed in the year since his death. The inscriptions were still readable — if weather and neglect had not done what the state had failed to do two centuries ago.
 
-Someone was hunting the old network methodically. Not just formal correspondence between scholars, but secondary associations, family relationships, commercial ties that had supported the original work.
+The rubbing her husband had died trying to complete was still possible.
 
-The investigation was sophisticated, coordinated from the capital with substantial resources.
+She could not go herself. A widow traveling alone to a remote mountain tomb would be noticed, questioned, remembered. She could not send anyone from the seowon — Scholar Pak's curiosity was already too sharp, and any connection between the seowon and Eom Heung-do's tomb would finish them both.
 
-Lady Yoon realized that the correspondence web she had built had bought time, not safety. The investigators knew the network had not died with Song Si-yeol's execution. They were looking for who had inherited it.
+But the young man who had come asking about the rubbing — he knew the tomb existed. He knew the inscriptions were there. And he had come to the seowon expecting to find the evidence, which meant he wanted it to survive.
 
-Eventually, they would trace the letters back to their source.
+She did not know who he was. She did not know who had sent him. She did not know whether he was an ally, a trap, or something she had not yet learned to recognize.
 
-Unless the source became something they were not looking for.
+She knew only that her husband's unfinished work was sitting in a mountainside in Chungju, carved in stone, waiting for someone to press paper against it and bring it home.
 
----
-
-The skill had been there since the capital. She had learned it without naming it.
-
-She remembered the evening she had told Yeong-hak about Lady Choe — how the woman had approached her at the magistrate's wives' gathering, worried about her brother's posting in Wonju. Lady Yoon had mentioned, as one detail among many, that the paper merchant who supplied the Wonju office had shifted his route south, and that a schoolteacher had heard from a colleague about new leadership making changes to the local curriculum. She had not told Lady Choe what it meant. She had placed the two things next to each other and let the woman see it herself.
-
-Within a month, Lady Choe had moved her brother's documents to safety. Within two months, the brother had been quietly reassigned. No shame. No surprise.
-
-Yeong-hak had watched her tell the story and had set down his chopsticks. *Be careful with your skills,* he had said.
-
-She had been careful. She had also been building.
-
-The women told one another carefully and slowly, in the way women shared the names of physicians and seamstresses. By now she had a small steady stream of clients. Some paid in coin — the practical income that kept her household standing. Some paid in something more useful: information, introductions, access to households she could not otherwise enter. Each payment of either kind fed the next investigation.
-
-Now, sitting with the evidence of Scholar Yi's investigation spread before her, she understood what the men's network could not survive and the women's network could.
-
-The investigators were looking for scholarly correspondence, documented connections, formal channels. They were not looking for gathering invitations, fabric samples, and polite inquiries about the price of rice.
-
----
-
-She finished the last note and sealed it. The dead names had bought her a season. The women would buy her years.
-
-But first, she had to let the dead men die.
-
-She gathered the correspondence files, the voice notes, the careful records of what had been said to whom.
-
-She burned them in the kitchen brazier, one document at a time. Five months of careful forgery turned to ash.
-
-Master Kim's voice. Yeong-hak's scholarly formality. Scholar Min's classical references. All gone.
-
-When the fire had consumed everything, she sat in the empty kitchen and contemplated what came next.
+She folded the notes and placed them back in the compartment. She would need to think about this carefully. The young man had said he would return. He had not said when.
