@@ -26,13 +26,13 @@ He kissed her forehead. "Three days. Four at most if the roads are bad."
 
 She watched him walk to the gate, then turn to wave once before disappearing down the path toward the main road. The gesture was automatic, performed without thought, the way married people say goodbye when they expect to say hello again soon.
 
-When she turned back to the house, something low in her belly tightened. By midday it had not eased. She walked to the physician's house in the late afternoon. She told no one.
+When she turned back to the house, something felt wrong. By midday it had not eased. She walked to the physician's house in the late afternoon. She told no one.
 
 It was the last time she saw him alive.
 
 ---
 
-The first day, she rested. She brewed the herbs the physician had given her and drank them slowly through the morning, and caught up on correspondence in the afternoon when the tightening had eased. The second day, she felt strong enough to reorganize the kitchen stores and mend clothes, though she still kept the herbs at hand. On the third day, when he should have returned, she cleaned the study and prepared the ink he would need for the evening's work.
+The first day, she rested. She brewed the herbs the physician had given her and drank them slowly through the morning, and caught up on correspondence in the afternoon when she felt stronger. The second day, she felt strong enough to reorganize the kitchen stores and mend clothes, though she still kept the herbs at hand. On the third day, when he should have returned, she cleaned the study and prepared the ink he would need for the evening's work.
 
 By the fourth day, the silence had weight.
 
@@ -88,7 +88,7 @@ And there was a small, dark mark on his neck that looked like a bruise from pres
 
 She thanked the men who had brought him home. She made the proper arrangements for burial. She received the condolences of neighbors and prepared the household for mourning. She did everything that was expected of a widow who had received the body of her husband.
 
-That night her body did something that felt both familiar and wrong. The same low tightening, but stronger now, lasting longer, accompanied by a wetness that was not tears. She did not attribute this to grief. She washed and changed her clothes and slept badly.
+That night her body did something that felt both familiar and wrong. Something deeper than exhaustion, more final than grief, accompanied by a wetness that was not tears. She did not attribute this to grief. She washed and changed her clothes and slept badly.
 
 And at night, alone with the certainty that everything she had been told was a lie, she began to plan what she would do about it.
 
