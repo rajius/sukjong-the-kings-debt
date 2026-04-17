@@ -94,15 +94,13 @@ She studied him. Not the way she had studied him at the memorial — from across
 
 "Can you." She looked at the body, then back at him. "What do you see?"
 
-He understood the question. It was not rhetorical. She wanted to know how much he could read from the scene — whether he was an investigator or merely an official who had stumbled into a room he did not understand.
-
 "The desk was searched by someone who knew what they were looking for. The document case was opened from the inside — he gave them what they wanted before he died. The papers in the brazier were burned one piece at a time, which means someone stayed after the death to clean. The body has no visible wound." He paused. "And you are still here. Which means you arrived after whoever killed him, and you are looking for what they did not find."
 
 She was quiet for a moment.
 
 "Or," she said, "I arrived before."
 
-The silence that followed was the loudest thing Yi Hwon had heard in a year.
+Neither of them moved.
 
 ---
 
@@ -126,4 +124,4 @@ Yi Hwon stood alone with the body in the empty room.
 
 He closed the door. He walked back up the lane that did not appear on any official map.
 
-He did not file a report that night.
+He did not file a report that night. He sat in his room at the inn and looked at his hands and could still feel where the hold had been.
