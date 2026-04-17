@@ -132,20 +132,10 @@ She stopped at the threshold. She did not turn.
 
 "I will find you," she said. "When I am ready."
 
-"And if I am not willing to wait?"
-
-Now she turned. Her face was half in shadow, half in the grey light from the doorway. The veil was still imperfect — the hasty knot, the fabric not quite flush against her temple.
-
-"You have been waiting for a year," she said. "One day you will understand why."
-
 She adjusted the veil. She walked through the door without looking back.
 
-Yi Hwon stood alone with the body in the empty room. He had been arranged. He had walked into a situation she had already mastered — the search completed, the scene read, the exit prepared — before he crossed the threshold. The hold had not been panic. It had been protocol. And the veil slipping had not been accident.
+Yi Hwon stood alone with the body in the empty room.
 
-He was not certain about that last part. But he was not certain it was wrong, either.
-
-He looked at the dead clerk on the floor. The man who had been selling information from two directions and had run out of directions.
-
-He left the room the way he had entered it. He closed the door. He walked back up the lane that did not appear on any official map.
+He closed the door. He walked back up the lane that did not appear on any official map.
 
 He did not file a report that night.
