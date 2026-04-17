@@ -66,9 +66,11 @@ He hesitated.
 
 She waited.
 
-"You are too young for a yangban widow."
+"How old are you?" she said.
 
-"Then it is well," she said, "that you are not speaking as a matchmaker."
+He told her.
+
+She looked at him for a long time. Then she looked away.
 
 The room was quiet again. He did not look away.
 
