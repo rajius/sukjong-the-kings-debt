@@ -20,7 +20,7 @@ She did not open her eyes. "Taught me what?"
 
 She was quiet for a moment. The stream moved over the stones.
 
-"My husband," she said.
+"My late husband," she said.
 
 He waited.
 
