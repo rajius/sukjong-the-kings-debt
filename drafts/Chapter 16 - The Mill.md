@@ -56,13 +56,13 @@ When she had finished her last question, the professional part of the meeting wa
 
 A timber above the mill wheel had shifted during the conversation — loosened by age, leaning at an angle that would bring it down by the next rain. Yi Hwon noticed it the way he noticed everything structural. Without a word, he moved to the wall, set his shoulder under the beam, and pushed it back into its joint.
 
-His outer robe pulled open with the effort. The inner garment tightened across his back and shoulders — and for a moment, before he settled the timber and stepped away, she saw what the robe had been covering. Not a scholar's body. Not the soft frame of a man who had spent his life at a desk. The body she had held in the dead man's room, felt from the inside of a hold — now seen from the outside, in daylight, doing something that had nothing to do with her and everything to do with the kind of man he was when he was not thinking about being watched.
+His outer robe pulled open with the effort. The inner garment tightened across his back and shoulders — and for a moment, before he settled the timber and stepped away, she saw what the robe had been covering.
 
 He straightened. He adjusted his robe. He did not look at her while he did it.
 
 She had been watching. She knew he knew she had been watching. And he had not looked at her — which meant he was giving her the choice of whether to acknowledge what she had just seen or to let it pass.
 
-She did not let it pass. She did not acknowledge it either. She stood very still, the way she stood when she was calculating, except that she was not calculating. She was holding something in place that wanted to move.
+She did not let it pass. She did not acknowledge it either. She stood very still.
 
 "We will meet once more," she said. Her voice was steady. It cost her something to make it steady.
 
