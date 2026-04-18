@@ -128,30 +128,10 @@ The next morning, she asked Ok-sun's brother who he knew who could teach a woman
 
 ---
 
-Ok-sun's brother found the man within a week. A retired garrison soldier whose knees had given out but whose arms had not. He did not ask why a widow needed to learn how to control a man's body. He taught her in the storage shed behind the seowon, in the early mornings before the household woke.
+Ok-sun's brother found the man within a week. A retired garrison soldier whose knees had given out but whose arms had not. He taught her in the storage shed behind the seowon, in the early mornings before the household woke. Three months of leverage, position, and joints. She practiced on Ok-sun's brother, who bruised easily and never complained.
 
-The lessons were not about strength. They were about leverage, position, and the precise anatomy of joints that could be locked with less force than it took to grind ink.
+By the third year, the network needed men too. Ok-sun's brother was the first — a carpenter who carried letters and asked no questions. Then others. She rotated them. No man carried the same route twice. No man knew more than two contacts. One of them — a former clerk named Jang, precise and bitter and hungry — she watched more carefully than the rest.
 
-She learned the hold that used a man's own weight against him. She learned where to place a forearm across a throat so that struggle would damage the attacker more than the defender. She learned to read the moment before a body moved — the shift in weight, the tightening of a shoulder — the way she had learned to read rooms.
-
-The training took three months. She practiced on Ok-sun's brother, who was patient and bruised easily and never complained.
-
----
-
-By the third year, the network needed what the women alone could not provide. There were places women could not go — yamen record rooms, mountain roads, buildings where only officials were expected. There were tasks that required a man's body.
-
-Ok-sun's brother was the first. A carpenter who carried letters between two counties, asked no questions, and reported what he saw on the road. He was reliable. He was also visible.
-
-She learned to rotate. No man carried the same route twice in succession. No man knew more than two contacts.
-
-The sixth man she recruited was a former clerk named Jang — dismissed from a provincial office for recording discrepancies his superior preferred to ignore. He was precise, bitter, and hungry for work that felt like it mattered.
-
-She gave him a route connecting three seowon. She watched him carefully. The hunger in him was the kind that could be redirected if someone offered a better price.
-
----
-
-By the fourth year, the Southerner apparatus was still looking for scholarly networks and documented connections. They found neither. What existed in their place was fabric patterns and dried persimmons and polite inquiries about the price of rice, carrying questions that would be answered in the same form, through channels that no one had thought to watch.
-
-Lady Yoon sat at the center of something she had not designed and could not have built if she had tried. It had grown the way her education had grown — one book at a time, one contact at a time, one payment at a time.
+By the fourth year, the Southerner apparatus was still looking for scholarly networks. They found nothing. What existed in their place was invisible to anyone looking for the wrong thing.
 
 She was waiting, without knowing she was waiting, for the weather to change.
