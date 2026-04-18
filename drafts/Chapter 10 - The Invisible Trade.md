@@ -1,0 +1,157 @@
+# Chapter 10 -- The Invisible Trade
+
+The first woman she lost was named Hwang.
+
+Hwang was the wife of a retired clerk in the county seat — a careful woman, literate, connected through her husband to the local magistrate's office. Lady Yoon had recruited her in the second month, through a gathering at Ok-sun's house where the conversation had turned, as Lady Yoon had arranged for it to turn, to the difficulty of obtaining reliable information about provincial appointments. Hwang had said something sharp about a particular magistrate's recent reassignment — the kind of observation that showed she was paying attention and understood what she was paying attention to.
+
+Lady Yoon had waited two weeks before approaching her again. The approach was indirect: a letter asking about the availability of a particular fabric, with a question embedded inside it about whether Hwang's husband had heard anything about changes to the dispatch routes in the neighboring county.
+
+Hwang had answered both questions. The fabric was available. The dispatch routes had been reorganized.
+
+By the third month, Hwang was carrying small pieces of information between Lady Yoon's seowon and the market town — embedded in conversations about prices, deliveries, and the seasonal demands of household management. She was good at it. She was also proud of being good at it, which was the problem.
+
+---
+
+Lady Yoon learned what Hwang had done through Ok-sun, who had learned it from a servant, who had heard it from Hwang's neighbor's maid.
+
+Hwang had told her neighbor that she was involved in "important correspondence" — she had not named Lady Yoon, had not described the network, had not said anything that was specifically dangerous. But she had said enough. She had said *important.* She had said *correspondence.* She had said it to a woman whose husband drank in the same tavern as the local constable's clerk.
+
+Lady Yoon did not sleep that night. She sat in the study with a map of the network's current contacts and traced the lines between Hwang and every other person Hwang knew about. The damage was not yet visible, but the pathway was. If the constable's clerk mentioned "important correspondence" to the constable, and the constable mentioned it in his next report to the magistrate, and the magistrate was one of the officials who forwarded surveillance reports to the capital —
+
+The chain had six links. Any one of them might hold. All of them together almost certainly would not.
+
+She wrote three letters before dawn. The first told Hwang, in the polite language of a woman ending a social acquaintance, that their correspondence about fabric would no longer be necessary. The second warned Ok-sun to avoid Hwang's household for the foreseeable future. The third was to the one contact who had received information through Hwang — a scholar's widow in the next county — telling her to change the location of their next meeting and use a different intermediary for future exchanges.
+
+She did not explain why. Explanations created more links. The women who received the letters would understand that something had changed, and the ones who were worth keeping would not ask what.
+
+Hwang was offended. She sent two messages asking what she had done wrong. Lady Yoon did not reply.
+
+The constable's clerk did not, as far as Lady Yoon could determine, mention anything to the constable. The chain held. This time.
+
+She did not misjudge again.
+
+---
+
+The investigators came to the seowon in the fourth month.
+
+There were two of them — men in traveling clothes that were too clean for the road, carrying credentials that Scholar Pak examined carefully and returned with a bow. They said they were conducting a routine assessment of educational institutions in the province. They asked about enrollment, curriculum, the seowon's financial supporters, and the nature of its scholarly correspondence.
+
+Scholar Pak answered with the earnest thoroughness of a man who had nothing to hide because he genuinely had nothing to hide. He showed them the teaching records, the student rolls, the correspondence files that Lady Yoon had curated for exactly this kind of inspection — letters from families inquiring about enrollment, letters from patrons confirming donations, letters from other seowon about shared texts and visiting scholars.
+
+The real correspondence was in the compartment Scholar Pak had never examined. But the compartment was empty now. Lady Yoon had burned those files weeks ago.
+
+She served the investigators tea. She moved through the room with the particular invisibility of a woman performing domestic tasks that no one thought to observe. She listened.
+
+Their questions about correspondence were specific. They asked about letters from Andong. They asked about contacts in Gangwon. They asked whether the seowon had received any communications from scholars associated with Song Si-yeol's former students.
+
+Scholar Pak, genuinely puzzled, said he had not. Lady Yoon poured more tea and noted that the investigators' questions mapped precisely onto the network she had been operating three months earlier. They were looking for the dead men's voices. They were three months too late.
+
+When the investigators left, Scholar Pak turned to her with the thumb already moving along the edge of his worry. "That was unusual."
+
+"Yes," she said. "I imagine they have many seowon to visit."
+
+She went to the kitchen and stood for a long time with her hands flat on the table. The investigators had not found anything. They had not been looking for a woman managing fabric correspondence and social invitations. They had been looking for scholarly networks. The pivot to the women's channels had been the right decision.
+
+But they had come. They had sat in the room and drunk her tea and asked questions whose pattern she could read. They would come again. And next time, if the network had grown in ways that left traces in Scholar Pak's visible files, they would find something.
+
+She would need to ensure that the visible files never contained anything worth finding.
+
+---
+
+The first real operation happened in the sixth month.
+
+A magistrate's wife — Lady Cho — had come to Lady Yoon through Ok-sun's recommendation with a question about her husband's career. He had been passed over for a promotion he had expected. Lady Cho wanted to know whether the decision was political or personal — whether her husband had been blocked by factional opponents or had simply failed to impress his superiors.
+
+Lady Yoon embedded the inquiry inside three separate conversations. She asked one contact about recent personnel decisions in the province. She asked another about the magistrate's superior's known preferences. She asked a third about whether anyone in the capital had been speaking negatively about officials in the relevant district.
+
+The answers came back over three weeks, through gathering invitations and fabric orders and a polite inquiry about the price of mulberry bark. When Lady Yoon assembled them, the picture was clear: the magistrate had been passed over because his immediate superior was protecting a rival candidate whose family had connections to the new Southerner power structure.
+
+She told Lady Cho. She did not tell her how she knew, only the shape of the situation and what Lady Cho might do about it.
+
+Lady Cho asked what the service cost.
+
+Lady Yoon had prepared for this moment. "What do you think it is worth?"
+
+Lady Cho thought for a long time. Then she offered something Lady Yoon had not expected: not information about her husband's office, but the name of the dispatch clerk who handled correspondence between the province and the capital. The clerk owed Lady Cho's family a debt. He would be willing to let Lady Yoon see the routing patterns for official mail — which letters were being copied, which were being forwarded, which were being delayed.
+
+The routing patterns would tell Lady Yoon which provincial correspondence was being monitored by the Southerner apparatus. It would let her see the surveillance from the inside.
+
+She accepted the payment.
+
+---
+
+The meeting that changed everything happened in the second year.
+
+Lady Yoon had arranged to meet a provincial contact — a minor scholar who had been one of Yeong-hak's correspondents before the purge and had recently sent word, through three intermediaries, that he had information about the apparatus hunting the old network.
+
+The meeting place was a private residence at the edge of a market town — a house belonging to a merchant who owed Ok-sun's brother a favor. Lady Yoon arrived at dusk and found the door open.
+
+The scholar was inside. He was not alone.
+
+A man Lady Yoon did not recognize was sitting at the table with a cup of tea, as if he had been expected. He was middle-aged, dressed in ordinary clothes, and he turned to look at her with the particular attention of someone who had been waiting.
+
+"Ah," the scholar said. "This is — a colleague. He is interested in the same questions."
+
+Lady Yoon stood in the doorway. She read the room the way she read every room: the scholar's posture was wrong — too stiff, too careful, the body language of a man who had brought someone he was not sure about. The stranger's hands were visible on the table, which was deliberate. His clothes were too ordinary — the kind of clothes a man wears when he wants to be forgettable.
+
+"I was not told about a colleague," she said.
+
+"He arrived this afternoon. He has connections to —"
+
+"We should speak privately first," she said to the scholar. She did not look at the stranger. She stepped back into the doorway and gestured for the scholar to follow.
+
+The scholar hesitated. The stranger did not move.
+
+"It is quite all right," the stranger said. "I understand the caution. Perhaps I should wait outside."
+
+He stood. He walked toward the door. As he passed Lady Yoon, he looked at her — not with hostility, not with curiosity, but with the steady assessment of a man who was filing information.
+
+The scholar, left alone with Lady Yoon, was frightened. "He said he knew Master Kim. He said he was continuing the work. I thought —"
+
+"You thought you were being helpful."
+
+"Yes."
+
+Lady Yoon looked at the door the stranger had walked through. The man had mentioned Master Kim by name. Master Kim was dead. The people who knew that Master Kim's name still had operational value were not people who walked into meetings uninvited.
+
+"What did you tell him?"
+
+"Nothing specific. Only that I had been corresponding with — with people who shared certain interests."
+
+"Did you mention the seowon?"
+
+The scholar's silence was its own answer.
+
+Lady Yoon left the house through the back. She walked a different route from the one she had used to arrive. She did not return to the seowon that night. She stayed at Ok-sun's house and thought about the width of a doorway and what had been between her and a stranger who knew too much.
+
+The next morning, she asked Ok-sun's brother who he knew who could teach a woman to defend herself.
+
+---
+
+Ok-sun's brother found the man within a week. A retired garrison soldier whose knees had given out but whose arms had not. He did not ask why a widow needed to learn how to control a man's body. He taught her in the storage shed behind the seowon, in the early mornings before the household woke.
+
+The lessons were not about strength. They were about leverage, position, and the precise anatomy of joints that could be locked with less force than it took to grind ink.
+
+She learned the hold that used a man's own weight against him. She learned where to place a forearm across a throat so that struggle would damage the attacker more than the defender. She learned to read the moment before a body moved — the shift in weight, the tightening of a shoulder — the way she had learned to read rooms.
+
+The training took three months. She practiced on Ok-sun's brother, who was patient and bruised easily and never complained.
+
+---
+
+By the third year, the network needed what the women alone could not provide. There were places women could not go — yamen record rooms, mountain roads, buildings where only officials were expected. There were tasks that required a man's body.
+
+Ok-sun's brother was the first. A carpenter who carried letters between two counties, asked no questions, and reported what he saw on the road. He was reliable. He was also visible.
+
+She learned to rotate. No man carried the same route twice in succession. No man knew more than two contacts.
+
+The sixth man she recruited was a former clerk named Jang — dismissed from a provincial office for recording discrepancies his superior preferred to ignore. He was precise, bitter, and hungry for work that felt like it mattered.
+
+She gave him a route connecting three seowon. She watched him carefully. The hunger in him was the kind that could be redirected if someone offered a better price.
+
+---
+
+By the fourth year, the Southerner apparatus was still looking for scholarly networks and documented connections. They found neither. What existed in their place was fabric patterns and dried persimmons and polite inquiries about the price of rice, carrying questions that would be answered in the same form, through channels that no one had thought to watch.
+
+Lady Yoon sat at the center of something she had not designed and could not have built if she had tried. It had grown the way her education had grown — one book at a time, one contact at a time, one payment at a time.
+
+She was waiting, without knowing she was waiting, for the weather to change.

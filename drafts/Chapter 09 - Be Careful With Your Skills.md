@@ -125,11 +125,3 @@ The fire took them all.
 When the last page had turned to ash, she sat in the kitchen for a long time. Scholar Pak's blanket was folded on the chair where she had left it that morning. The brazier was cooling. Outside, the frost had not yet lifted from the courtyard stones.
 
 The dead names had bought her a season. The women would buy her years.
-
----
-
-The years came. The women's network grew the way her education had grown — through placement, through necessity, through the accumulation of small decisions that only looked like a plan when viewed from the end. By the fourth year, the network needed men too: couriers, watchers, men who could enter rooms where women were not expected. She recruited carefully. She rotated them. No man knew more than two contacts. One of them — a former clerk named Jang, precise and bitter and hungry — she watched more carefully than the rest. In the fifth year, a meeting went wrong enough that she learned to fight: an old garrison soldier taught her leverage and joint locks in a storage shed before the household woke, three months of mornings, until she could read the moment before a body moved the way she read rooms.
-
-By the fifth year, women moved at the center. Men moved at the edges. The investigators were still looking for scholarly correspondence and documented connections. They found neither.
-
-She was thirty-five. She had not been touched by another person in five years. She had not been asked "tell me about today" since the evening the chopsticks stopped.
