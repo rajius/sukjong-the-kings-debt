@@ -30,7 +30,7 @@ She folded it, placed it back, and returned everything to his pack exactly as it
 
 ---
 
-The inquiry went out that afternoon. She wrote a letter to a contact in the capital — one of Master Kim's former students — asking after a merchant family in the Jongno district. She embedded the question inside other business, so light it barely registered: *I understand there is a well-established family of that name. Do they have daughters?*
+The inquiry went out that afternoon. She wrote a letter to a contact in the capital — one of Master Kim's former students — asking after a merchant family in the Jongno district. She embedded the question inside other business, so light it barely registered: *I understand there is a well-established merchant family of that name near Jongno. I may need to arrange a gift for a contact's household — do they have daughters? Any preferences worth knowing?*
 
 She sent it. She hated that she sent it.
 
