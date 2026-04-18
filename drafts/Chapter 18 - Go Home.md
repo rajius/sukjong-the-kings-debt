@@ -20,7 +20,7 @@ She understood now that "enough" was not the same as "everything." The marriage 
 
 She thought about Yi Hwon's hands. The way they had looked at the stream. The way they had held his end of the mill conversation without pushing past the limit she had set.
 
-She thought about the hold. Five years since her body had been close enough to another body to feel its warmth. She had stepped back.
+She thought about the room with the dead man. Her forearm across his throat. The moment his body had changed under her arms. Five years since she had been that close to anyone. She had stepped back.
 
 She sat with this for three days.
 
@@ -58,14 +58,4 @@ He set the bundle down.
 
 She stood. She picked up her travel bundle and settled it on her shoulder.
 
-"We should reach the pass before the midday heat," she said.
-
 She walked to the end of the corridor and turned the corner.
-
----
-
-That night, at the waystation before the pass, she reported the day's observations as though nothing had happened. Road conditions. The state of the bridge. A rumor about the Yeongwol magistrate's deputy.
-
-He listened. He took notes.
-
-When she handed him the water gourd at the end of the evening, her fingers stayed a moment longer than they needed to.
