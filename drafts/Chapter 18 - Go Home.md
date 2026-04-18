@@ -4,7 +4,7 @@ She sent word through Ok-sun's brother: an inn on the southern road, four days f
 
 The days between the mill and the meeting she had called were the longest she had spent alone since the first year of the network.
 
-She kept returning to the mill. Not to the intelligence exchange. To the moment after, when he had asked "and then?" and she had looked at the mill wheel instead of at him.
+She kept returning to the mill. Not to the intelligence exchange. To the moment after, when he had asked "when?" and she had looked at the mill wheel instead of at him.
 
 She had looked at the mill wheel because looking at him had become difficult.
 
@@ -37,10 +37,6 @@ He was packing his travel bundle by the door of the inn. She sat on the raised w
 He looked up. She almost never used his name.
 
 "When this is finished," she said, "go home."
-
-"I'll have to report to the capital first —"
-
-"I don't mean the capital."
 
 The courtyard was quiet. A rooster. The innkeeper's wife sweeping.
 
