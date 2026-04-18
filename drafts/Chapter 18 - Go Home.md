@@ -1,6 +1,8 @@
 # Chapter 18 -- Go Home
 
-The days between the mill and the next meeting were the longest she had spent alone since the first year of the network.
+She sent word through Ok-sun's brother: an inn on the southern road, four days from now.
+
+The days between the mill and the meeting she had called were the longest she had spent alone since the first year of the network.
 
 She kept returning to the mill. Not to the intelligence exchange. To the moment after, when he had asked "and then?" and she had looked at the mill wheel instead of at him.
 
