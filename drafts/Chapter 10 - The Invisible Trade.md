@@ -2,29 +2,25 @@
 
 The first woman she lost was named Hwang.
 
-Hwang was the wife of a retired clerk in the county seat — a careful woman, literate, connected through her husband to the local magistrate's office. Lady Yoon had recruited her in the second month, through a gathering at Ok-sun's house where the conversation had turned, as Lady Yoon had arranged for it to turn, to the difficulty of obtaining reliable information about provincial appointments. Hwang had said something sharp about a particular magistrate's recent reassignment — the kind of observation that showed she was paying attention and understood what she was paying attention to.
+Hwang was the wife of a retired clerk in the county seat — a careful woman, literate, connected through her husband to the local magistrate's office. Ok-sun had recruited her. Lady Yoon had never met her. That was the design: Lady Yoon knew Ok-sun. Ok-sun knew Hwang. Hwang knew her two contacts in the market town. No one in the chain could see more than one link in either direction.
 
-Lady Yoon had waited two weeks before approaching her again. The approach was indirect: a letter asking about the availability of a particular fabric, with a question embedded inside it about whether Hwang's husband had heard anything about changes to the dispatch routes in the neighboring county.
+Ok-sun had identified Hwang at a gathering where the conversation had turned, as Lady Yoon had arranged for it to turn, to the difficulty of obtaining reliable information about provincial appointments. Hwang had said something sharp — the kind of observation that showed she understood what she was paying attention to. Ok-sun had waited two weeks, then approached her with a letter about fabric that carried a question about dispatch routes. Hwang had answered both.
 
-Hwang had answered both questions. The fabric was available. The dispatch routes had been reorganized.
-
-By the third month, Hwang was carrying small pieces of information between Lady Yoon's seowon and the market town — embedded in conversations about prices, deliveries, and the seasonal demands of household management. She was good at it. She was also proud of being good at it, which was the problem.
+By the third month, Hwang was carrying small pieces of information between Ok-sun and the market town. She was good at it. She was also proud of being good at it, which was the problem.
 
 ---
 
-Lady Yoon learned what Hwang had done through Ok-sun, who had learned it from a servant, who had heard it from Hwang's neighbor's maid.
+Ok-sun told Lady Yoon what Hwang had done. Ok-sun had learned it from a servant, who had heard it from Hwang's neighbor's maid.
 
-Hwang had told her neighbor that she was involved in "important correspondence" — she had not named Lady Yoon, had not described the network, had not said anything that was specifically dangerous. But she had said enough. She had said *important.* She had said *correspondence.* She had said it to a woman whose husband drank in the same tavern as the local constable's clerk.
+Hwang had told her neighbor that she was involved in "important correspondence." She had not named Ok-sun — she did not know the name that mattered was Lady Yoon's — but she had said enough. She had said *important.* She had said *correspondence.* She had said it to a woman whose husband drank in the same tavern as the local constable's clerk.
 
-Lady Yoon did not sleep that night. She sat in the study with a map of the network's current contacts and traced the lines between Hwang and every other person Hwang knew about. The damage was not yet visible, but the pathway was. If the constable's clerk mentioned "important correspondence" to the constable, and the constable mentioned it in his next report to the magistrate, and the magistrate was one of the officials who forwarded surveillance reports to the capital —
+Lady Yoon did not sleep that night. She traced the lines. Hwang could not lead anyone to Lady Yoon directly — there were two people between them. But Hwang could lead to Ok-sun. And Ok-sun led to everything.
 
-The chain had six links. Any one of them might hold. All of them together almost certainly would not.
+She wrote three letters before dawn. The first was to Ok-sun: cut Hwang. The second was to Hwang, through Ok-sun, in the polite language of a woman ending a social acquaintance — their correspondence about fabric would no longer be necessary. The third was to the one contact who had received information through Hwang — telling her to change the location of their next meeting and use a different intermediary.
 
-She wrote three letters before dawn. The first told Hwang, in the polite language of a woman ending a social acquaintance, that their correspondence about fabric would no longer be necessary. The second warned Ok-sun to avoid Hwang's household for the foreseeable future. The third was to the one contact who had received information through Hwang — a scholar's widow in the next county — telling her to change the location of their next meeting and use a different intermediary for future exchanges.
+She did not explain why. Explanations created more links.
 
-She did not explain why. Explanations created more links. The women who received the letters would understand that something had changed, and the ones who were worth keeping would not ask what.
-
-Hwang was offended. She sent two messages asking what she had done wrong. Lady Yoon did not reply.
+Hwang was offended. She sent two messages through Ok-sun asking what she had done wrong. Lady Yoon told Ok-sun not to reply.
 
 The constable's clerk did not, as far as Lady Yoon could determine, mention anything to the constable. The chain held. This time.
 
@@ -60,19 +56,19 @@ She would need to ensure that the visible files never contained anything worth f
 
 The first real operation happened in the sixth month.
 
-A magistrate's wife — Lady Cho — had come to Lady Yoon through Ok-sun's recommendation with a question about her husband's career. He had been passed over for a promotion he had expected. Lady Cho wanted to know whether the decision was political or personal — whether her husband had been blocked by factional opponents or had simply failed to impress his superiors.
+A magistrate's wife — Lady Cho — had come through Ok-sun with a question about her husband's career. Lady Cho did not know who would receive her inquiry. She knew only that Ok-sun had a contact who could find answers. He had been passed over for a promotion he had expected. Lady Cho wanted to know whether the decision was political or personal — whether her husband had been blocked by factional opponents or had simply failed to impress his superiors.
 
 Lady Yoon embedded the inquiry inside three separate conversations. She asked one contact about recent personnel decisions in the province. She asked another about the magistrate's superior's known preferences. She asked a third about whether anyone in the capital had been speaking negatively about officials in the relevant district.
 
 The answers came back over three weeks, through gathering invitations and fabric orders and a polite inquiry about the price of mulberry bark. When Lady Yoon assembled them, the picture was clear: the magistrate had been passed over because his immediate superior was protecting a rival candidate whose family had connections to the new Southerner power structure.
 
-She told Lady Cho. She did not tell her how she knew, only the shape of the situation and what Lady Cho might do about it.
+The answer went back through Ok-sun. Lady Cho received the shape of the situation without knowing who had shaped it.
 
-Lady Cho asked what the service cost.
+Ok-sun reported back: Lady Cho wanted to know the cost.
 
-Lady Yoon had prepared for this moment. "What do you think it is worth?"
+Lady Yoon told Ok-sun what to say: "What do you think it is worth?"
 
-Lady Cho thought for a long time. Then she offered something Lady Yoon had not expected: not information about her husband's office, but the name of the dispatch clerk who handled correspondence between the province and the capital. The clerk owed Lady Cho's family a debt. He would be willing to let Lady Yoon see the routing patterns for official mail — which letters were being copied, which were being forwarded, which were being delayed.
+Lady Cho thought for a long time. Then she offered something Ok-sun brought back that Lady Yoon had not expected: not information about her husband's office, but the name of the dispatch clerk who handled correspondence between the province and the capital. The clerk owed Lady Cho's family a debt. He would be willing to let Lady Yoon see the routing patterns for official mail — which letters were being copied, which were being forwarded, which were being delayed.
 
 The routing patterns would tell Lady Yoon which provincial correspondence was being monitored by the Southerner apparatus. It would let her see the surveillance from the inside.
 
