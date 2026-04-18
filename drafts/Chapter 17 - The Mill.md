@@ -44,7 +44,7 @@ She stood very still.
 
 "We will meet once more," she said. Her voice was steady. It cost her something to make it steady.
 
-"And then?"
+"When?"
 
 She did not answer immediately. She was looking at the mill wheel — the old mechanism, the wood darkened by years of water, the place where something had once turned and no longer did.
 
