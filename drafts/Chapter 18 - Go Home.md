@@ -14,7 +14,7 @@ She thought about Yeong-hak. The evenings. The barley. The contentment that had 
 
 It had been enough. She had said that to herself many times.
 
-She understood now that "enough" was not the same as "everything."
+She understood now that "enough" was not the same as "everything." The marriage had not failed. She had simply never known the rest of herself.
 
 ---
 
