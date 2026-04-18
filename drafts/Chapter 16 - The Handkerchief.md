@@ -1,4 +1,4 @@
-# Chapter 15 -- The Handkerchief
+# Chapter 16 -- The Handkerchief
 
 That evening at the inn, with the day's walking still in his legs and the stream crossing somewhere behind them, he said a name.
 
@@ -18,7 +18,9 @@ They did not speak of it again that night.
 
 ---
 
-Three days later, she was tidying the room at the inn — he by the door, she by the window, the propriety neither of them discussed. His travel pack had shifted in the night, and a few items had spilled near the screen. She gathered them — a brush case, a folded map, a small cloth bundle — and as she lifted the bundle, something slipped from its folds.
+Three days later, at a different inn on the return road, he asked her to hold his travel pack while he settled a dispute about the cart with the innkeeper. She took it without thinking — the ordinary gesture of a woman managing the practical details of someone else's travel.
+
+The pack was heavier than she expected. She set it on the bench inside the entrance hall, and as she adjusted the straps, a small cloth bundle shifted loose from the top. Something slipped from its folds.
 
 A handkerchief. Silk. Not expensive, but good — the kind of quality a prosperous merchant's household would produce. Pale blue-grey. The stitching along the edge was careful, even, patient. Not professional. Personal.
 
