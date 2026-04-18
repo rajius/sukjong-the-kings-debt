@@ -1,12 +1,12 @@
-# Chapter 12 -- The Dead Man
+# Chapter 13 -- The Dead Man
 
 A year passed before he saw her face again.
 
-By the second summer, the administrative paralysis had revealed something underneath — an apparatus mapping scholarly networks that had survived the Gisa Hwanguk. Careful. Well-funded. Patient.
+Inspector Yu's second order arrived in the spring. The first assessment had mapped the administrative paralysis — which counties were functioning, which were seized, which officials were afraid to make decisions. The map was useful. It was also incomplete. Yu wanted the ground verified: had conditions changed, had the new appointments settled, were the provinces recovering or still frozen?
 
-He had also begun to read its opposite. A counter-network was moving in the provinces — women's correspondence, household channels, paper that did not belong to the apparatus he was tracking. He could not yet trace its shape. He knew only that it was older than the thing hunting it, and that it was faster than it should have been.
+Yi Hwon went south again. The same roads, the same inns, the same clothes that did not announce him. He was not looking for anything beyond what Yu had asked for.
 
-He had not connected it, yet, to the woman whose face he had not finished looking at.
+The clerk was a side thread. A man in a provincial dispatch office whose spending had begun to exceed his salary — the kind of discrepancy Yi Hwon noticed the way he noticed misaligned drawers and inns that kept second ledgers. He had been tracking the clerk for three weeks when the trail led to a residence at the end of a lane that did not appear on any official map.
 
 ---
 
