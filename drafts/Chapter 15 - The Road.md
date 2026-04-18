@@ -72,7 +72,7 @@ She smiled. Not the controlled, partial thing he had seen before. Full. Brief, b
 
 She watched the stream.
 
-"But he let me be myself the whole time," she said.
+"But he let me be myself the whole time," she whispered.
 
 The stream moved over the stones. He filled the gourd. The water was cold.
 
