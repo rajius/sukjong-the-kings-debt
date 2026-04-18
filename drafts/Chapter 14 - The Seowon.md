@@ -1,4 +1,4 @@
-# Chapter 13 -- The Seowon
+# Chapter 14 -- The Seowon
 
 She did not find him for two days. He spent the time at an inn in the county seat, writing nothing, asking no questions, letting the inn keeper believe he was a merchant waiting on a delivery.
 
@@ -52,7 +52,7 @@ The room was quiet. He let the silence work for him the way she would have let i
 
 "But you know something."
 
-"I know the pattern is wrong for an official inquiry. Too patient. Too repetitive. Someone is mapping routes, habits, intermediaries. The kind of work the court does not assign because the court does not yet know to ask for it."
+"I know the pattern is wrong for an official inquiry. Too patient. Too repetitive. Someone is mapping routes, habits, intermediaries."
 
 "And in exchange for what you know," she said, "what do you want from me?"
 
@@ -93,7 +93,5 @@ He bowed and prepared to leave. At the door he stopped.
 "You remembered me before I said a word."
 
 She did not answer.
-
-But something in her face changed, almost too small to read.
 
 He let that be enough.
