@@ -24,9 +24,7 @@ Yi Hwon asked the five questions in order.
 
 The first answer came easily — a routine record of provincial appointments. The second required the clerk to check a different register, which he did with the careful neutrality of a man who had been asked similar questions before and knew the cost of seeming reluctant. The third answer changed the shape of what Yi Hwon was looking at. He asked the fourth.
 
-By the time he left the yamen, he understood what Lady Yoon had been looking for. The burial site records in this county had been altered — not erased, but quietly amended. Locations changed by small amounts. Names respelled in ways that would make them difficult to cross-reference. The kind of changes that looked like clerical error unless you knew the pattern.
-
-Someone had been through the records before him and had adjusted them to make certain graves harder to find.
+By the time he left the yamen, he understood what Lady Yoon had been looking for. Official inquiries had been made in this county — three in the past two months, all concerning correspondence routed through the same seowon that Jang had been connecting. The inquiries were not random. They followed Jang's routes exactly. Someone had taken what Jang sold and was using it to map her network from the outside.
 
 He walked to the bench by the gate. Lady Yoon was still mending. She did not look up.
 
@@ -38,7 +36,7 @@ He walked to the bench by the gate. Lady Yoon was still mending. She did not loo
 
 She set the mending in her lap. She was quiet for a moment.
 
-"Then they have been here already," she said.
+"Then they are following his routes," she said.
 
 They left the county before dark.
 
