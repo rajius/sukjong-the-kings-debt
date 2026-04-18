@@ -46,6 +46,6 @@ That evening, alone in her room, she sat with the handkerchief she was not holdi
 
 Twenty-four. Unmarried. Pretty.
 
-The pain was so foreign she almost mistook it for illness.
+The pain inside her stomach was so foreign she almost mistook it for illness.
 
-She pressed her hand flat against the floor until it stopped shaking.
+She pressed her stomach with one hand until it stopped screaming.
