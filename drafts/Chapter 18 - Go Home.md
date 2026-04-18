@@ -2,8 +2,6 @@
 
 The days between the mill and the next meeting were the longest she had spent alone since the first year of the network.
 
-She told Ok-sun she was unwell. Ok-sun did not ask what kind. Ok-sun had been watching for two months.
-
 She kept returning to the mill. Not to the intelligence exchange. To the moment after, when he had asked "and then?" and she had looked at the mill wheel instead of at him.
 
 She had looked at the mill wheel because looking at him had become difficult.
