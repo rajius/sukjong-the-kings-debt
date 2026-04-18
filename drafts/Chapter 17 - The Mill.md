@@ -60,9 +60,7 @@ His outer robe pulled open with the effort. The inner garment tightened across h
 
 He straightened. He adjusted his robe. He did not look at her while he did it.
 
-She had been watching. She knew he knew she had been watching. And he had not looked at her — which meant he was giving her the choice of whether to acknowledge what she had just seen or to let it pass.
-
-She did not let it pass. She did not acknowledge it either. She stood very still.
+She stood very still.
 
 "We will meet once more," she said. Her voice was steady. It cost her something to make it steady.
 
@@ -72,6 +70,6 @@ She did not answer immediately. She was looking at the mill wheel — the old me
 
 "When I have decided what to do about you," she said.
 
-She turned and walked toward the trees. At the treeline she stopped and looked back — not at his face, but at his shoulders, the way she might look at something she was considering and had not yet resolved.
+She turned and walked toward the trees. At the treeline she stopped and looked back — not at his face, but at his shoulders.
 
 The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.
