@@ -4,7 +4,7 @@ The second meeting was at the abandoned mill by the river.
 
 She had chosen the location. The mill was far enough from town to be private, close enough to the water that approaching footsteps would carry.
 
-Lady Yoon was already there when he arrived. She stood by the wheel, the structure between her and the door. In the treeline behind the mill, Yi Hwon noticed a man — older, broader, dressed as a woodcutter — who watched him arrive without moving. The man was not there for Yi Hwon. He was there because Lady Yoon did not meet anyone, anywhere, without someone in the trees. Even him.
+Lady Yoon was already there when he arrived. She stood by the wheel, the structure between her and the door. In the treeline behind the mill, Yi Hwon noticed a man — older, broader, dressed as a woodcutter — watching the clearing. The mill was isolated. She had arranged coverage.
 
 "Your investigation," she said, "is one of three I have been tracking."
 
