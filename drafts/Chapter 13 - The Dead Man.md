@@ -1,7 +1,5 @@
 # Chapter 13 -- The Dead Man
 
-A year passed before he saw her face again.
-
 Inspector Yu's second order arrived in the spring. The first assessment had been useful but incomplete. Yu wanted the ground verified: had the new appointments settled, were the provinces recovering or still frozen?
 
 Yi Hwon went south again. The same roads, the same inns, the same clothes that did not announce him.
@@ -32,13 +30,7 @@ She moved.
 
 His arm locked behind him. Her forearm across his throat — placed, not crushing. The more he resisted, the tighter the lock would become.
 
-He held still.
-
-He knew how to break this hold. He also knew what it would cost: a dislocated shoulder and the sound carrying into the lane. She had chosen the kind that punished struggle and rewarded waiting.
-
-He waited.
-
-Her breathing was even. He could feel the control in her arms — leverage, not strength. Someone had taught her this. The forearm placement was too precise for improvisation. The angle compensated for someone smaller. And two inches higher would have ended the conversation.
+He held still. He could feel the control in her arms — leverage, not strength. The forearm placement was too precise for improvisation. Two inches higher would have ended the conversation.
 
 ---
 
