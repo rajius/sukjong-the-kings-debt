@@ -118,13 +118,17 @@ Lady Yoon left the house through the back. She walked a different route from the
 
 Within two days, she sent word to the scholar through three intermediaries: if anyone asked, she had been the housekeeper delivering a message from the seowon master. She had no involvement in scholarly correspondence. She had not stayed. She did not know what was discussed after she left. The scholar, frightened and guilty, agreed.
 
-Through Ok-sun, she arranged for three women in the county to mention, casually and in separate conversations, that the widow at Master Pak's seowon was a quiet, unremarkable housekeeper — diligent but simple, helpful with domestic accounts, not educated beyond what her station required. The descriptions would reach the local officials through the same channels everything reached local officials: wives talking to husbands, servants talking to other servants.
+Through Ok-sun, she arranged for three women in the county to mention, casually and in separate conversations, that the widow at Master Pak's seowon was a quiet, unremarkable housekeeper — diligent but simple, helpful with domestic accounts, not educated beyond what her station required.
 
-If the stranger reported a woman at a seowon connected to Master Kim's name, the report would arrive in a county where everyone already knew who the widow was. Just a housekeeper. The kind of woman no one looked at twice.
+The stranger's report arrived anyway. She knew because of what followed: not investigators this time, but a presence she could feel without seeing. A merchant she did not recognize who visited the market town twice in three weeks and asked about the seowon's household. A man who walked past the gate on consecutive mornings without entering. The dispatch routing patterns Lady Cho's payment had given her showed a new note flagged to the county — a request for local confirmation regarding a woman mentioned in connection with scholarly correspondence.
 
-She stayed at the seowon for the next three months without leaving. She attended no gatherings. She met no contacts. She poured Scholar Pak's tea and managed the accounts and allowed herself to be exactly what the county believed she was.
+Even the innocent description had caught someone's attention. A careful officer had read the report and noticed: why was a housekeeper at a meeting between scholars discussing a dead teacher's work?
 
-The next morning after the three months had passed, she asked Ok-sun's brother who he knew who could teach a woman to defend herself.
+Lady Yoon stayed at the seowon for three months. She attended no gatherings. She met no contacts. She poured Scholar Pak's tea and managed the accounts and became, in every visible detail, exactly what the county had been prepared to confirm she was. She let the watcher watch until the watching found nothing worth watching.
+
+The presence faded. The merchant did not return a third time. The dispatch routing showed the flag removed from the county file.
+
+When the three months had passed, she asked Ok-sun's brother who he knew who could teach a woman to defend herself.
 
 ---
 
