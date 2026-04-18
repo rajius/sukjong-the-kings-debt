@@ -4,7 +4,7 @@ The first of the two meetings she had promised was not a meeting at all in the f
 
 She had information to confirm in a county two days south. The confirmation required someone with official credentials to enter a yamen records room and ask certain questions in a particular order. He had the credentials. She had the order of the questions. They traveled together because the work could not be done by either of them alone.
 
-She had told Scholar Pak she was visiting Ok-sun's family in a neighboring county — a trip she made occasionally, unremarkable enough that Scholar Pak had simply nodded and reminded her to bring back the ink she had been promising to purchase. She left the seowon by the east path. She met Yi Hwon at a crossroads two hours south, where he was already waiting with the cart.
+She had told Scholar Pak she was going to the market towns south of the county to purchase ink and fabric for the seowon — a trip she made two or three times a year, unremarkable enough that Scholar Pak had simply nodded and asked her to look for a particular brush weight while she was there. She left the seowon by the east path. She met Yi Hwon at a crossroads two hours south, where he was already waiting with the cart.
 
 They moved as a minor scholar escorting his widowed aunt to visit family in the south — a cover that explained the separate sleeping, the shared meals, and why a woman of her age would be traveling with a younger man. She rode in a covered cart for the first half-day. By the second day she was walking beside the cart in plain travel clothes, the way provincial women walked, and Yi Hwon was reading the road behind them while she read the road ahead.
 
