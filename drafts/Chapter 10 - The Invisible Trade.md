@@ -114,9 +114,17 @@ Lady Yoon looked at the door the stranger had walked through. The man had mentio
 
 The scholar's silence was its own answer.
 
-Lady Yoon left the house through the back. She walked a different route from the one she had used to arrive. She did not return to the seowon that night. She stayed at Ok-sun's house and thought about the width of a doorway and what had been between her and a stranger who knew too much.
+Lady Yoon left the house through the back. She walked a different route from the one she had used to arrive. She did not return to the seowon that night. She stayed at Ok-sun's house and began the work of becoming no one.
 
-The next morning, she asked Ok-sun's brother who he knew who could teach a woman to defend herself.
+Within two days, she sent word to the scholar through three intermediaries: if anyone asked, she had been the housekeeper delivering a message from the seowon master. She had no involvement in scholarly correspondence. She had not stayed. She did not know what was discussed after she left. The scholar, frightened and guilty, agreed.
+
+Through Ok-sun, she arranged for three women in the county to mention, casually and in separate conversations, that the widow at Master Pak's seowon was a quiet, unremarkable housekeeper — diligent but simple, helpful with domestic accounts, not educated beyond what her station required. The descriptions would reach the local officials through the same channels everything reached local officials: wives talking to husbands, servants talking to other servants.
+
+If the stranger reported a woman at a seowon connected to Master Kim's name, the report would arrive in a county where everyone already knew who the widow was. Just a housekeeper. The kind of woman no one looked at twice.
+
+She stayed at the seowon for the next three months without leaving. She attended no gatherings. She met no contacts. She poured Scholar Pak's tea and managed the accounts and allowed herself to be exactly what the county believed she was.
+
+The next morning after the three months had passed, she asked Ok-sun's brother who he knew who could teach a woman to defend herself.
 
 ---
 
