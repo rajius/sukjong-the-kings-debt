@@ -16,6 +16,20 @@ He said nothing else. She nodded.
 
 They did not speak of it again that night.
 
+Yi Hwon lay in his room on the other side of the corridor and thought about what he had done.
+
+He had offered Soonyi's name the way you place a stone on a board — to balance. She had given him her husband. He had given her his. An exchange of the people they carried.
+
+But the exchange was not equal, and he knew it.
+
+Soonyi was a name, a street, a childhood. She was waiting. She was possible. She was the life that had been arranged for him and that he had not yet refused.
+
+The husband had been something else. The husband had been *difficult* — and the word, the way Lady Yoon had said it, with a full smile and a whisper, meant: the husband had been extraordinary in a way that did not need to announce itself. The husband had taught her the sequenced questions. The husband had let her be herself. The husband had been the kind of man whose absence was still the largest thing in the room five years after his death.
+
+Yi Hwon lay in the dark and understood that Soonyi and the husband were not the same kind of claim on him. Soonyi asked whether he would return to the life meant for him. The husband asked whether he was even visible to the life Lady Yoon had already lived.
+
+He did not have an answer to either question.
+
 ---
 
 Three days later, at a different inn on the return road, he asked her to hold his travel pack while he settled a dispute about the cart with the innkeeper. She took it without thinking — the ordinary gesture of a woman managing the practical details of someone else's travel.
