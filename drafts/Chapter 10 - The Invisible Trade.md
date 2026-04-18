@@ -134,7 +134,17 @@ When the three months had passed, she asked Ok-sun's brother who he knew who cou
 
 Ok-sun's brother found the man within a week. A retired garrison soldier whose knees had given out but whose arms had not. He taught her in the storage shed behind the seowon, in the early mornings before the household woke. Three months of leverage, position, and joints. She practiced on Ok-sun's brother, who bruised easily and never complained.
 
-By the third year, the network needed men too. Ok-sun's brother was the first — a carpenter who carried letters and asked no questions. Then others. She rotated them. No man carried the same route twice. No man knew more than two contacts. One of them — a former clerk named Jang, precise and bitter and hungry — she watched more carefully than the rest.
+By the third year, the network needed men too. Ok-sun's brother was the first — a carpenter who carried letters and asked no questions. Then others. She rotated them. No man carried the same route twice. No man knew more than two contacts.
+
+The sixth man was a former clerk named Jang. He came through Ok-sun's brother's contacts — dismissed from a provincial office, looking for work, precise in his speech and careful in his manner. He said the right things. He carried his first three assignments without error. Ok-sun's brother recommended extending his routes.
+
+It was only later — months later, after Jang had been carrying correspondence between three seowon — that Lady Yoon noticed the quality underneath the precision. Not dishonesty. Something quieter: a hunger that had no bottom. The kind of man who needed to matter more than his circumstances allowed, and who would accept help from whoever offered it first.
+
+She had not seen it during the vetting. Jang had been subtle enough to present only the surface — the dismissed clerk, the quiet competence, the willingness to work without questions. The hunger was underneath, and it was patient.
+
+She began watching him more carefully. She developed a stricter process for the men who came after — longer observation periods, secondary references, tasks designed to test loyalty before trust was extended. The process cost time and lost her two capable recruits who would not wait.
+
+Jang remained. She could not remove him without explaining why, and an explanation would reveal how much she had seen. So she kept him on his routes, watched his movements through the intermediaries, and waited for the hunger to show itself in a way that required action.
 
 By the fourth year, the Southerner apparatus was still looking for scholarly networks. They found nothing. What existed in their place was invisible to anyone looking for the wrong thing.
 
