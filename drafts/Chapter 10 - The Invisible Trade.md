@@ -62,17 +62,13 @@ Lady Yoon embedded the inquiry inside three separate conversations. She asked on
 
 The answers came back over three weeks, through gathering invitations and fabric orders and a polite inquiry about the price of mulberry bark. When Lady Yoon assembled them, the picture was clear: the magistrate had been passed over because his immediate superior was protecting a rival candidate whose family had connections to the new Southerner power structure.
 
+Lady Cho had followed the system. Before Lady Yoon agreed to investigate, clients offered payment in advance through Ok-sun — not coin necessarily, but a name, a connection, an access. The offer was the application. If what the client could provide was not worth the effort of the investigation, Ok-sun returned the refusal. No explanation. No second chance.
+
+Lady Cho had offered the name of the dispatch clerk who handled correspondence between the province and the capital. The clerk owed Lady Cho's family a debt. He would be willing to let someone see the routing patterns for official mail — which letters were being copied, which were being forwarded, which were being delayed.
+
+Lady Yoon accepted before she finished reading Ok-sun's description. The routing patterns would tell her which provincial correspondence the Southerner apparatus was monitoring. She could see the surveillance from the inside.
+
 The answer went back through Ok-sun. Lady Cho received the shape of the situation without knowing who had shaped it.
-
-Ok-sun reported back: Lady Cho wanted to know the cost.
-
-Lady Yoon told Ok-sun what to say: "What do you think it is worth?"
-
-Lady Cho thought for a long time. Then she offered something Ok-sun brought back that Lady Yoon had not expected: not information about her husband's office, but the name of the dispatch clerk who handled correspondence between the province and the capital. The clerk owed Lady Cho's family a debt. He would be willing to let Lady Yoon see the routing patterns for official mail — which letters were being copied, which were being forwarded, which were being delayed.
-
-The routing patterns would tell Lady Yoon which provincial correspondence was being monitored by the Southerner apparatus. It would let her see the surveillance from the inside.
-
-She accepted the payment.
 
 ---
 
