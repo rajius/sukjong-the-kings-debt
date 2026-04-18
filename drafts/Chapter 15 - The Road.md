@@ -4,7 +4,7 @@ The first of the two meetings she had promised was not a meeting at all in the f
 
 She had information to confirm in a county two days south. The confirmation required someone with official credentials to enter a yamen records room and ask certain questions in a particular order. He had the credentials. She had the order of the questions. They traveled together because the work could not be done by either of them alone.
 
-They moved as a minor scholar and a household woman of his party — a cover thin enough to fail under questioning, plausible enough to survive the road. She rode in a covered cart for the first half-day. By the second day she was walking beside the cart in plain travel clothes, the way provincial women walked, and Yi Hwon was reading the road behind them while she read the road ahead.
+They moved as a minor scholar escorting his widowed aunt to visit family in the south — a cover that explained the separate sleeping, the shared meals, and why a woman of her age would be traveling with a younger man. She rode in a covered cart for the first half-day. By the second day she was walking beside the cart in plain travel clothes, the way provincial women walked, and Yi Hwon was reading the road behind them while she read the road ahead.
 
 They did not speak much the first day. The cover required it — a minor scholar traveling with a household woman would not be seen in extended conversation. What passed between them was operational: directions at crossroads, a brief exchange about the inn where they would stop, the name of the yamen clerk she expected to be on duty.
 
