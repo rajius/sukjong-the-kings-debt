@@ -56,19 +56,13 @@ She would need to ensure that the visible files never contained anything worth f
 
 The first real operation happened in the sixth month.
 
-A magistrate's wife — Lady Cho — had come through Ok-sun with a question about her husband's career. Lady Cho did not know who would receive her inquiry. She knew only that Ok-sun had a contact who could find answers. He had been passed over for a promotion he had expected. Lady Cho wanted to know whether the decision was political or personal — whether her husband had been blocked by factional opponents or had simply failed to impress his superiors.
+A magistrate's wife wanted to know why her husband had been passed over for a promotion. The question came through Ok-sun. The answer went back through Ok-sun. The wife never knew who had shaped it.
 
-Lady Yoon embedded the inquiry inside three separate conversations. She asked one contact about recent personnel decisions in the province. She asked another about the magistrate's superior's known preferences. She asked a third about whether anyone in the capital had been speaking negatively about officials in the relevant district.
+But the payment was what mattered. Before Lady Yoon agreed to any case, clients offered something in advance — not coin necessarily, but a name, a connection, an access. The offer was the application. If what the client could provide was not worth the effort, Ok-sun returned the refusal. No explanation. No second chance.
 
-The answers came back over three weeks, through gathering invitations and fabric orders and a polite inquiry about the price of mulberry bark. When Lady Yoon assembled them, the picture was clear: the magistrate had been passed over because his immediate superior was protecting a rival candidate whose family had connections to the new Southerner power structure.
+This client offered the name of the dispatch clerk who handled correspondence between the province and the capital. The clerk would let someone see the routing patterns — which letters were being copied, which forwarded, which delayed.
 
-Lady Cho had followed the system. Before Lady Yoon agreed to investigate, clients offered payment in advance through Ok-sun — not coin necessarily, but a name, a connection, an access. The offer was the application. If what the client could provide was not worth the effort of the investigation, Ok-sun returned the refusal. No explanation. No second chance.
-
-Lady Cho had offered the name of the dispatch clerk who handled correspondence between the province and the capital. The clerk owed Lady Cho's family a debt. He would be willing to let someone see the routing patterns for official mail — which letters were being copied, which were being forwarded, which were being delayed.
-
-Lady Yoon accepted before she finished reading Ok-sun's description. The routing patterns would tell her which provincial correspondence the Southerner apparatus was monitoring. She could see the surveillance from the inside.
-
-The answer went back through Ok-sun. Lady Cho received the shape of the situation without knowing who had shaped it.
+Lady Yoon accepted before she finished reading Ok-sun's description. The routing patterns would show her which provincial correspondence the Southerner apparatus was monitoring. She could see the surveillance from the inside.
 
 ---
 
@@ -136,15 +130,11 @@ Ok-sun's brother found the man within a week. A retired garrison soldier whose k
 
 By the third year, the network needed men too. Ok-sun's brother was the first — a carpenter who carried letters and asked no questions. Then others. She rotated them. No man carried the same route twice. No man knew more than two contacts.
 
-The sixth man was a former clerk named Jang. He came through Ok-sun's brother's contacts — dismissed from a provincial office, looking for work, precise in his speech and careful in his manner. He said the right things. He carried his first three assignments without error. Ok-sun's brother recommended extending his routes.
+The sixth man was a former clerk named Jang. He came through Ok-sun's brother — dismissed from a provincial office, precise in his speech, careful in his manner. He carried his first three assignments without error. Ok-sun's brother recommended extending his routes.
 
-It was only later — months later, after Jang had been carrying correspondence between three seowon — that Lady Yoon noticed the quality underneath the precision. Not dishonesty. Something quieter: a hunger that had no bottom. The kind of man who needed to matter more than his circumstances allowed, and who would accept help from whoever offered it first.
+Lady Yoon extended them. And then, months later, she noticed something she should have noticed sooner. Jang never asked about the work. The other men sometimes wondered aloud — where did the letters go, who read them, what was the purpose. Jang never wondered. He accepted every assignment with the same quiet efficiency, and the quietness was not contentment. It was patience. He was waiting for the work to become valuable enough that someone else would pay for what he knew about it.
 
-She had not seen it during the vetting. Jang had been subtle enough to present only the surface — the dismissed clerk, the quiet competence, the willingness to work without questions. The hunger was underneath, and it was patient.
-
-She began watching him more carefully. She developed a stricter process for the men who came after — longer observation periods, secondary references, tasks designed to test loyalty before trust was extended. The process cost time and lost her two capable recruits who would not wait.
-
-Jang remained. She could not remove him without explaining why, and an explanation would reveal how much she had seen. So she kept him on his routes, watched his movements through the intermediaries, and waited for the hunger to show itself in a way that required action.
+She could not prove this. She could not remove him without revealing what she suspected. So she changed the routes. She moved the contacts he knew to new locations. She gave Jang a circuit that looked the same but touched nothing that mattered. And she developed a harder process for the men who came after — because Jang had shown her that the vetting she had been doing was not enough.
 
 By the fourth year, the Southerner apparatus was still looking for scholarly networks. They found nothing. What existed in their place was invisible to anyone looking for the wrong thing.
 
