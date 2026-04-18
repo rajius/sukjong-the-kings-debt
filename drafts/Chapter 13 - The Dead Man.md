@@ -10,7 +10,7 @@ The clerk was a side thread. A man in a provincial dispatch office whose spendin
 
 ---
 
-The residence was at the end of a lane that did not appear on any official map of the county. Yi Hwon had found it through three weeks of careful work — tracing the clerk's movements, his contacts, the places he went when his shift at the provincial office ended and he became a different kind of worker.
+The residence was at the end of a lane that did not appear on any official map of the county. Yi Hwon had found it through three weeks of careful work — tracing the movements of a former clerk named Jang, his contacts, the places he went when his work for whatever he was working for took him away from the routes he was supposed to be walking.
 
 The door was open. That was the first wrong thing.
 
@@ -18,13 +18,15 @@ Yi Hwon stopped in the lane and listened. No voices. No movement. The particular
 
 The room was small and had been searched. Not ransacked — the furniture was upright, the shelves intact — but searched by someone who knew what they were looking for. A writing desk had been opened, its drawers pulled to their full extension and then pushed back, not quite aligned. A document case lay on the floor, empty, its clasp unfastened from the inside. The brazier in the corner was cold, but the ash showed the edges of recently burned paper — fragments too small to read, destroyed by someone who had taken the time to feed them to the fire one piece at a time.
 
-The clerk lay near the desk, face down, one arm extended toward the document case as if he had been reaching for it when he stopped reaching.
+Jang lay near the desk, face down, one arm extended toward the document case as if he had been reaching for it when he stopped reaching.
 
-Yi Hwon stepped inside. He crouched by the body without touching it. The clerk had been dead for hours — the skin was cool, the limbs beginning to stiffen. No visible wound. No blood. The kind of death that could be many things and would officially be one of the simpler ones.
+Yi Hwon stepped inside. He crouched by the body without touching it. Jang had been dead for hours — the skin was cool, the limbs beginning to stiffen. No visible wound. No blood. The kind of death that could be many things and would officially be one of the simpler ones.
 
 He was still reading the body when he became aware that he was not alone in the room.
 
 The awareness came through his training — not a sound, not a movement, but the particular displacement of air that meant another body was occupying space behind him and to the left. Close enough to touch. Close enough to have been there since before he entered.
+
+What he noticed, in the fraction of a second before she moved, was that the search had been specific. Whoever had gone through Jang's belongings had not opened every drawer. They had opened three — the three that held correspondence — and ignored the rest. They had checked the lining of Jang's travel coat but not his other clothes. They had burned the papers but left the personal effects untouched. This was not the work of someone who had stumbled onto a body. This was the work of someone who knew what Jang carried and where he kept it.
 
 He started to turn.
 
