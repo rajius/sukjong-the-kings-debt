@@ -2,29 +2,9 @@
 
 The second meeting was at the abandoned mill by the river.
 
-She had chosen the location. He understood why the moment he arrived. The mill was far enough from town to be private, close enough to the water that approaching footsteps would carry. Two clear lines of sight, two escape routes, and the kind of place where a man carrying credentials would feel them as weight rather than as protection.
+She had chosen the location. The mill was far enough from town to be private, close enough to the water that approaching footsteps would carry.
 
-He had brought two of his men. He had hidden them on the ridge above the mill. They were good. They had served in border garrisons and knew how to disappear into terrain.
-
-Lady Yoon was already at the mill when he arrived. She stood by the wheel, the structure between her and the door.
-
-"You are punctual," she said.
-
-"You said to come alone."
-
-"And yet you brought backup." She gestured toward the ridge. "Two men. Well-hidden, but not well enough."
-
-She did not wait for him to deny it. She turned and looked toward the treeline at the edge of the clearing, on the opposite side from the ridge.
-
-A man stepped out from behind a pine. He was older than Yi Hwon, broader, dressed as a woodcutter. He carried no visible weapon. He looked at Yi Hwon the way men look at other men they have already decided how to handle.
-
-He bowed slightly to Lady Yoon. She inclined her head a fraction. He stepped back into the trees.
-
-Yi Hwon understood several things in the time it took the man to vanish.
-
-Her network had men in it. The men deferred to her. Her men had been in position before his were. While he had been congratulating himself on his hidden backup, her people had been behind his the entire time.
-
-She had not done this to threaten him. She had done it to clarify the terms.
+Lady Yoon was already there when he arrived. She stood by the wheel, the structure between her and the door. In the treeline behind the mill, Yi Hwon noticed a man — older, broader, dressed as a woodcutter — who watched him arrive without moving. The man was not there for Yi Hwon. He was there because Lady Yoon did not meet anyone, anywhere, without someone in the trees. Even him.
 
 "Your investigation," she said, "is one of three I have been tracking."
 
