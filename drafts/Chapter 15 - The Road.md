@@ -1,10 +1,50 @@
-# Chapter 14 -- The Road
+# Chapter 15 -- The Road
 
 The first of the two meetings she had promised was not a meeting at all in the formal sense. It was a road.
 
 She had information to confirm in a county two days south. The confirmation required someone with official credentials to enter a yamen records room and ask certain questions in a particular order. He had the credentials. She had the order of the questions. They traveled together because the work could not be done by either of them alone.
 
 They moved as a minor scholar and a household woman of his party — a cover thin enough to fail under questioning, plausible enough to survive the road. She rode in a covered cart for the first half-day. By the second day she was walking beside the cart in plain travel clothes, the way provincial women walked, and Yi Hwon was reading the road behind them while she read the road ahead.
+
+They did not speak much the first day. The cover required it — a minor scholar traveling with a household woman would not be seen in extended conversation. What passed between them was operational: directions at crossroads, a brief exchange about the inn where they would stop, the name of the yamen clerk she expected to be on duty.
+
+At the inn that evening, separated by the corridor and the propriety neither of them discussed, she slid a folded paper under his door. He opened it by lamplight. Five questions, written in a hand he had not seen before — not Master Kim's, not the husband's. Her own hand. Clear, angular, without the scholarly flourishes the seowon men used. Each question was numbered. Beside each number, a note about what the answer would mean if it came back one way, and what it would mean if it came back another.
+
+He studied the paper for a long time. The questions were precise, but what struck him was the structure. She had sequenced them so that the first question's answer would determine how the second question should be asked. The third depended on both. The fourth and fifth were contingencies — asked only if the first three produced a specific pattern.
+
+He had been trained to read records. She had been trained to read records that did not want to be read.
+
+---
+
+The yamen was a low building behind the county magistrate's office, staffed by two clerks who had survived three changes of magistrate by being useful to all of them and loyal to none. Yi Hwon presented his credentials — genuine enough to pass inspection, vague enough to avoid creating a record. The senior clerk brought the registers.
+
+Lady Yoon waited outside. A household woman did not enter a yamen records room. She sat on the bench by the gate and mended a tear in her travel sleeve that did not need mending.
+
+Yi Hwon asked the five questions in order.
+
+The first answer came easily — a routine record of provincial appointments. The second required the clerk to check a different register, which he did with the careful neutrality of a man who had been asked similar questions before and knew the cost of seeming reluctant. The third answer changed the shape of what Yi Hwon was looking at. He asked the fourth.
+
+By the time he left the yamen, he understood what Lady Yoon had been looking for. The burial site records in this county had been altered — not erased, but quietly amended. Locations changed by small amounts. Names respelled in ways that would make them difficult to cross-reference. The kind of changes that looked like clerical error unless you knew the pattern.
+
+Someone had been through the records before him and had adjusted them to make certain graves harder to find.
+
+He walked to the bench by the gate. Lady Yoon was still mending. She did not look up.
+
+"The fourth question," he said.
+
+"Which answer?"
+
+"The second possibility."
+
+She set the mending in her lap. She was quiet for a moment.
+
+"Then they have been here already," she said.
+
+They left the county before dark.
+
+---
+
+The road back was longer because she chose a different route — avoiding the main road, staying on paths that connected villages without passing through any administrative checkpoint. Yi Hwon did not ask why. He was learning her method: when she changed a plan, the reason was already behind her, not ahead of her.
 
 They stopped at a stream crossing south of Jecheon. Midday, early autumn, the kind of light that makes everything too honest.
 
