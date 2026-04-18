@@ -56,7 +56,7 @@ He set the bundle down.
 
 She stood. She picked up her travel bundle and settled it on her shoulder.
 
-"The road to Yeongwol crosses the ridge at Baegun Pass," she said. "We should reach it before the midday heat."
+"We should reach the pass before the midday heat," she said.
 
 She walked to the end of the corridor and turned the corner.
 
