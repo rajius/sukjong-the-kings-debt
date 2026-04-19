@@ -32,7 +32,7 @@ She reached a fold in the rock face — barely visible, a crack where the hillsi
 
 He followed. The space was shallow — not a cave, more a fracture. Wide enough for two people pressed together. Deep enough that the overhang hid them from below.
 
-They stood in the dark. His back against the stone. She was pressed against him — not by choice but by the dimensions of the space. There was nowhere else to stand.
+The last light of the day came through the crack at an angle — orange, low, the kind that makes everything look temporary. They stood with his back against the stone. She was pressed against him — not by choice but by the dimensions of the space. There was nowhere else to stand.
 
 His arm was between them. The blood had soaked through the cloth and was warm against her sleeve where their bodies touched.
 
@@ -50,7 +50,7 @@ She counted their footsteps until she could no longer hear them.
 
 ---
 
-The dark was complete. No lamp. No moon through the crack. The rock was cold. He was warm.
+The light had gone. No lamp. No moon through the crack. The rock was cold. He was warm.
 
 "Your arm," she said.
 
