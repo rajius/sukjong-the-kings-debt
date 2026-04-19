@@ -72,33 +72,13 @@ On the fourth evening, the cases were packed. The routes were marked. The contac
 
 Yi Hwon was supposed to leave the following morning.
 
-Lady Yoon walked to the study to check the cases one last time. The door was open. The lamp was lit.
+She found him in the study, reading the last stone rubbing — Eom Heung-do's memorial tablet, the one her husband had considered the most important. He set it aside when she came in.
 
-Yi Hwon was inside. Not at the desk — at the window. He was sitting on the floor beneath the sill, his back against the wall, his robe loosened, the bandaged arm resting on his knee. He had been reading one of the documents — a stone rubbing of Eom Heung-do's memorial tablet, the one her husband had considered the most important — and had set it aside.
-
-He was looking at the room the way a man looks at a place he is trying to memorize before leaving it.
-
-She stood in the doorway.
-
-"You know what," she said. "I don't think you can do this for good. Sneaking around after dark and leaving before sunrise. Someone will notice sooner or later."
-
-He looked up.
-
-"I know," he said.
-
-She leaned against the doorframe. Even here — a borrowed house, a temporary room — she was not used to him being inside her space. For eight years, the only people in her working rooms had been Ok-sun and the documents.
-
-He was neither.
-
-"You are supposed to leave tomorrow," she said.
-
-"I know."
-
-"The records are packed. The routes are set. Ok-sun will move the copies. You will carry the originals."
+"The routes are set," she said. "Ok-sun will move the copies. You carry the originals."
 
 "Yes."
 
-She walked into the room. She sat on the floor across from him, the way she used to sit across the desk. But there was no desk between them now. Just the stone rubbing on the floor and the bandaged arm and the morning departure that was real and close.
+She sat across from him. The document cases were stacked by the wall, packed and sealed. The desk was clear for the first time in four days.
 
 "Come back," she said.
 
@@ -110,7 +90,7 @@ He looked at her.
 
 "I am not sending you home this time."
 
-The room was quiet. The lamp. The empty document cases stacked by the wall.
+The room was quiet. The lamp. The empty cases.
 
 He reached for her hand. She let him take it. The bandaged arm and the whole one. His fingers around hers.
 
