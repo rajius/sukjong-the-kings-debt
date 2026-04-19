@@ -96,11 +96,11 @@ Mun thought about it. The sixth month. He remembered because the unsold grain ha
 
 Yi Hwon walked through the market for the rest of the morning. He spoke to an innkeeper who remembered the same period — a month when certain travelers who usually passed through had not appeared. A cloth merchant who noted that a regular buyer from the southern villages had sent a daughter instead of coming himself. Small absences. Individual explanations. But the pattern was the same: a month when part of the county's normal circulation had gone quiet, and no one had been told why.
 
-He sat in the inn courtyard and thought about what the absences meant.
+He sat in the inn courtyard and thought about the sixth month.
 
-Not a government action — officials did not make buyers disappear from markets. Not a natural disruption — no flood, no epidemic, no road closure had been reported. Something had happened in the sixth month that required certain people to stop moving through their usual channels. And whatever had happened, the people who stopped had returned afterward as though nothing had changed.
+No flood. No epidemic. No road closure. Just a quiet withdrawal — certain people stepping out of their usual circulation and stepping back in as though nothing had changed.
 
-He had seen this pattern before. Not in Busan. Not in any official investigation. He had seen it in the way Lady Yoon operated — the deliberate pauses, the months of going dark, the ability to make a network stop and restart without leaving a trace in the official record. The market hadn't been disrupted. It had been temporarily vacated by people who knew how to step out of circulation and step back in.
+He had seen this before.
 
 ---
 
