@@ -142,6 +142,12 @@ She looked at him. He looked at her. The morning light was honest and she had no
 
 Three years ago she had chosen the morning because the light was cold and the mind was clear. This morning the light was warm and her mind was not clear and she was choosing it anyway.
 
+The thing she had maintained for three years — rebuilt after every crack, defended with distance and morning light and the name of a girl who had married someone else — was gone. Not broken. Released. It had been released at the rock on the trail, at the weight of his shoulder in the cave, at the scar on his thigh that told her the cost of her own correctness.
+
+She had been right to send him home. The scar proved it — not because the refusal was wrong, but because the refusal had produced exactly the damage she was trying to prevent, just on a different body.
+
+The woman who had stood in the corridor with the sun behind her, who had calculated every cost, who had named Soonyi because Soonyi was the easiest thing to say — that woman was gone. She had ended at the rock. What remained was someone Lady Yoon did not fully recognize, sitting in morning light beside a man she had sent away, choosing not to send him away again.
+
 His other hand — the wounded one — came to her face. The movement cost him. He did not stop.
 
 She closed her eyes.
