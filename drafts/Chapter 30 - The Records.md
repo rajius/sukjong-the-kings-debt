@@ -1,8 +1,10 @@
 # Chapter 30 -- The Records
 
-The burial records filled three document cases.
+The burial records arrived on the third day.
 
-Lady Yoon brought them out the morning after the door closed — carried from a compartment beneath the study floor that Yi Hwon had not noticed, though he had been sitting in the room for two days. She set them on the desk without ceremony, the way a woman sets down something she has been carrying for eight years.
+Ok-sun brought them from wherever Lady Yoon kept them — Yi Hwon did not ask where, and she did not say. Three document cases, carried by a woman who walked through the gate as though she were delivering cloth. She set them on the desk and left without a word.
+
+Lady Yoon opened the cases the way a woman opens something she has been carrying for eight years.
 
 "My husband's work," she said. "Stone rubbings of memorial tablets the official record says were destroyed. Correspondence tracing where the Danjong loyalists were actually interred. Maps of burial sites that do not appear in any county register."
 
@@ -74,9 +76,7 @@ Lady Yoon walked to the study to check the cases one last time. The door was ope
 
 Yi Hwon was inside. Not at the desk — at the window. He was sitting on the floor beneath the sill, his back against the wall, his robe loosened, the bandaged arm resting on his knee. He had been reading one of the documents — a stone rubbing of Eom Heung-do's memorial tablet, the one her husband had considered the most important — and had set it aside.
 
-He was looking at the room. Her room. The desk where she worked. The compartment beneath the floor where the records had been hidden. The ink stains on the wood from eight years of correspondence. The lamp she had carried from the seowon.
-
-He was sitting in her room the way a man sits in a place he is trying to memorize before leaving it.
+He was looking at the room the way a man looks at a place he is trying to memorize before leaving it.
 
 She stood in the doorway.
 
@@ -86,7 +86,7 @@ He looked up.
 
 "I know," he said.
 
-She leaned against the doorframe. She was still not used to him being here — in her study, in her house, inside the space she had held alone since Yeong-hak died. The room had been hers. The desk had been hers. The records, the ink, the lamp, the silence. For eight years, no one had sat in this room who was not a document or a ghost.
+She leaned against the doorframe. Even here — a borrowed house, a temporary room — she was not used to him being inside her space. For eight years, the only people in her working rooms had been Ok-sun and the documents.
 
 He was neither.
 
@@ -110,7 +110,7 @@ He looked at her.
 
 "I am not sending you home this time."
 
-The room was quiet. The lamp. The ink stains. The compartment beneath the floor, empty now for the first time in eight years.
+The room was quiet. The lamp. The empty document cases stacked by the wall.
 
 He reached for her hand. She let him take it. The bandaged arm and the whole one. His fingers around hers.
 
