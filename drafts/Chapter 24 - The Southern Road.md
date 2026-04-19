@@ -84,21 +84,23 @@ But something else had been in the room. The cabinet the clerk had blocked — Y
 
 ---
 
-He went back the next morning. Different approach.
+He did not go back to the county office. He went to the market.
 
-He did not ask about burial records. He asked about grain prices — market records, trade volumes, the kind of commercial information a merchant checking local suppliers had every reason to see. The clerk produced the market registers without hesitation. A merchant's request. Routine.
+A grain dealer named Mun had the largest stall near the east gate. Yi Hwon bought a small quantity of barley and asked, the way merchants ask, about supply patterns — which seasons were steady, which were tight, whether the county's trade had been reliable.
 
-Yi Hwon read them at the desk by the window, the way he had read ledgers in Busan — not for what they said, but for what they organized around.
+Mun was forthcoming. Business was fair. Supply was consistent except for a period two years ago when certain buyers had stopped coming to market for nearly a month. No one knew why. The grain was there. The buyers were not. When they returned, they bought as usual and no one asked where they had been.
 
-In the third register, between the market records for the fifth and seventh months, the sixth month was missing. No trade permits issued. No grain prices recorded. No market-day transactions. The surrounding entries had been adjusted to close the gap — the seventh month's opening figures matched the fifth month's closing figures as though the sixth month had never existed.
+"Which month?" Yi Hwon said.
 
-Someone had removed a month of records and rewritten the surrounding entries to absorb the absence. The adjustment was clean. Professional. The kind of work that required access to the original registers and the skill to make the silence look like continuity.
+Mun thought about it. The sixth month. He remembered because the unsold grain had attracted weevils and he had lost two sacks.
 
-Yi Hwon closed the ledger and looked out the window.
+Yi Hwon walked through the market for the rest of the morning. He spoke to an innkeeper who remembered the same period — a month when certain travelers who usually passed through had not appeared. A cloth merchant who noted that a regular buyer from the southern villages had sent a daughter instead of coming himself. Small absences. Individual explanations. But the pattern was the same: a month when part of the county's normal circulation had gone quiet, and no one had been told why.
 
-He had seen this method before. Not in Busan. Not in any official investigation. He had seen it in the questions Lady Yoon had written on the paper she slid under his door — the structure that assumed records would be incomplete, that built contingencies for what was missing, that read absence as information.
+He sat in the inn courtyard and thought about what the absences meant.
 
-Someone in this county was maintaining records the official system had been altered to hide. And the method of maintenance was one he recognized.
+Not a government action — officials did not make buyers disappear from markets. Not a natural disruption — no flood, no epidemic, no road closure had been reported. Something had happened in the sixth month that required certain people to stop moving through their usual channels. And whatever had happened, the people who stopped had returned afterward as though nothing had changed.
+
+He had seen this pattern before. Not in Busan. Not in any official investigation. He had seen it in the way Lady Yoon operated — the deliberate pauses, the months of going dark, the ability to make a network stop and restart without leaving a trace in the official record. The market hadn't been disrupted. It had been temporarily vacated by people who knew how to step out of circulation and step back in.
 
 ---
 
