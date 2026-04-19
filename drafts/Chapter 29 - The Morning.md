@@ -52,11 +52,15 @@ She did not move her hand.
 
 They did not finish the routes.
 
----
+He withdrew his hand first. Not quickly — the way a man withdraws when he understands that the next moment is not his to take. He picked up the map, rolled it, and set it with the others.
 
-Ok-sun came in an hour later with rice and soup. The desk was cleared. The documents were stacked neatly at one end. Lady Yoon was at the window. Yi Hwon was in the outer room.
+"I will check the outer perimeter," he said.
 
-Ok-sun set the food on the desk and looked at the stacked documents, and then at Lady Yoon, and then at the closed door to the outer room.
+He left the room. She heard the door to the courtyard open and close.
+
+She stacked the remaining documents. She placed them at the end of the desk. She walked to the window and stood there until Ok-sun came in with rice and soup.
+
+Ok-sun set the food down. She looked at Lady Yoon at the window, and at the stacked documents, and at the empty room.
 
 She did not ask.
 
