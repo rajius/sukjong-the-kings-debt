@@ -114,43 +114,37 @@ She had done that. Not the merchant. Not the magistrate. Not the blade. She had 
 
 She turned from the window.
 
-He was sitting on the floor, his arm freshly wrapped, his robe loosened, the scar visible along his thigh. He was watching her the way he had always watched her — with the patience of a man who had learned not to push past the limit she set.
+He was sitting on the floor, his arm freshly wrapped, his robe loosened. He shifted to adjust the robe over the scar — and then stopped. He left it where it was. The thigh visible. The ridge of healed tissue catching the morning light.
 
-She walked back to him. She knelt. She did not kneel the way she knelt when she wrapped the arm — efficiently, professionally, at a distance appropriate for medical work.
+Whether this was simple explanation or something else, she could not tell. He had positioned himself so she could see it clearly. A man showing a wound to a woman who had asked about it — or a man showing a woman something and waiting to see if she would stay close enough to look.
 
-She knelt close.
+She walked back to him. She knelt to check the arm wrapping. Professional distance. The appropriate posture.
 
-Her hand went to the scar on his thigh. She touched it the way she had touched the scratch on his neck in the dark — with both hands. Both. Not one hand being careful. Both hands committing.
+She did not maintain the distance.
 
-The scar was smooth under her fingers. Old. Healed. The skin around it was warm.
+She was close enough to see the scar in detail — the white ridge, the depth, the way it followed the muscle. Close enough that her sleeve brushed his thigh when she leaned to check the knot on his arm.
 
-He went very still.
+He did not move away. He did not move toward her. He waited — the way he had always waited. The patience of a man who had learned not to push past the limit she set.
 
-She traced the ridge of it. Slowly. The way you trace something you caused and cannot undo.
+She could feel the limit. It was where it always was — the place in her chest where discipline lived, where the calculations happened, where the woman who sent him home had built her wall.
 
-"Lady Yoon —"
+The wall was there. She could feel it.
 
-"Be quiet."
+She did not step behind it.
 
-Her fingers followed the scar to where it ended — midway along the thigh, where the blade had pulled free or the attacker had been stopped. She rested her hand there. She did not remove it.
+His hand came to her arm. Not pulling. Resting. The same way his hand had stayed on her arm in the cave after the danger passed — contact that had outlived its operational reason and was waiting to be told what it was instead.
 
-She looked up at him.
+She did not tell it to stop.
 
-He was looking at her the way he had looked at the woman in white at the garden party — with recognition. Not desire. Not hope. Recognition. As though he had been waiting to see this and had taught himself not to expect it.
+His hand moved from her arm to her shoulder. She could have corrected him. She did not correct him. She could have stood. She did not stand.
 
-She kissed the scar.
+She looked at him. He looked at her. The morning light was honest and she had not put the sun behind her.
 
-Her lips on the healed ridge. On the warm skin beside it. On the place where a blade had opened him because she had sent him somewhere he would not be careful.
+Three years ago she had chosen the morning because the light was cold and the mind was clear. This morning the light was warm and her mind was not clear and she was choosing it anyway.
 
-She stayed there. She did not rush.
+His other hand — the wounded one — came to her face. The movement cost him. He did not stop.
 
-Then she moved up. Along the edge of the robe. Along the line of his ribs. Along the hollow of his throat where his pulse was fast and visible.
-
-His hands came to her — the wounded arm and the whole one. He pulled her toward him. The arm protested. He did not stop.
-
-The thing she had maintained for three years — rebuilt after every crack, defended with distance and morning light and the name of a girl who had married someone else — was gone. Not broken. Released. It had been released at the rock on the trail, at the weight of his shoulder in the cave, at the scar on his thigh that told her the cost of her own correctness.
-
-She had been right to send him home. The scar said so — not because the refusal was wrong, but because the refusal had produced exactly the damage she had been trying to prevent, just on a different body.
+She closed her eyes.
 
 There was no arrangement by which correction could be made free of cost.
 
