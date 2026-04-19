@@ -68,6 +68,8 @@ She waited.
 
 "How old are you?" she said.
 
+The question came out before she had decided to ask it. It was not part of the negotiation. She did not know what she would do with the answer.
+
 He told her.
 
 She looked at him for a long time. Then she looked away.

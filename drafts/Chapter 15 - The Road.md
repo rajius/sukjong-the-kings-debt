@@ -74,6 +74,8 @@ She watched the stream.
 
 "But he let me be myself the whole time," she whispered.
 
+She had not said this to anyone. Not to Ok-sun. Not to Scholar Pak. Not in five years. She did not know why she was saying it now, to this man, by this stream, in the middle of an operation.
+
 The stream moved over the stones. He filled the gourd. The water was cold.
 
 "He sounds difficult," he said.

@@ -50,9 +50,9 @@ The courtyard. The tea table. The gaze that held a beat too long. The morning sh
 
 She felt the change in him. The tension had altered, no longer gathered for escape.
 
-That was enough.
+She felt the change in herself. Something in her arms that was not the hold. Something that had no operational name.
 
-She stepped back at once, before either of them betrayed too much.
+She stepped back at once. Not because of what he might betray. Because of what she could not account for in herself.
 
 ---
 

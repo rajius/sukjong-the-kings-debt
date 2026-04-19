@@ -40,7 +40,7 @@ His outer robe pulled open with the effort. The inner garment tightened across h
 
 He straightened. He adjusted his robe. He did not look at her while he did it.
 
-She stood very still.
+She stood very still. She was cataloguing — his shoulders, the way the effort had changed the shape of his back, the line of muscle she had not seen before. She was doing it the way she catalogued information: automatically, without permission. But this was not information. She did not know what it was.
 
 "We will meet once more," she said. Her voice was steady. It cost her something to make it steady.
 
