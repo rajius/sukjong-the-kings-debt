@@ -76,15 +76,11 @@ She thought about what had happened and what it meant and what it would cost. Sh
 
 She thought about the body she had lived inside for thirty-eight years and what it had done that morning without her permission and with her full participation.
 
-She thought about Yeong-hak. Not the cause. Not the records. The evenings. The barley. The word she had used to describe the marriage: *enough*.
+She thought about Yeong-hak. The evenings. The barley. The marriage that was still building when it was taken.
 
-The marriage had not been finished. That was the thing she had never allowed herself to say. It was still building when it was taken — the contentment deepening by the season, the arguments growing sharper and more playful, the evening question becoming something neither of them had planned. Given time, it might have become everything. She would never know. She had thought there would be more time.
+She had thought there would be more time.
 
 Five years and then nothing.
-
-She would not make that mistake again.
-
-A man had reached for a map this morning and his fingers had touched hers and she had not moved her hand. That was not a decision. It was the refusal to repeat the error of believing there was time.
 
 ---
 
