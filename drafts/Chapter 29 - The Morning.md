@@ -78,11 +78,13 @@ She thought about the body she had lived inside for thirty-eight years and what 
 
 She thought about Yeong-hak. Not the cause. Not the records. The evenings. The barley. The word she had used to describe the marriage: *enough*.
 
-She understood now what the word had been protecting her from. Not from wanting more. From knowing that more existed. The marriage had not failed. She had simply never been asked the question the marriage was not built to answer.
+The marriage had not been finished. That was the thing she had never allowed herself to say. It was still building when it was taken — the contentment deepening by the season, the arguments growing sharper and more playful, the evening question becoming something neither of them had planned. Given time, it might have become everything. She would never know. She had thought there would be more time.
 
-The question had been asked this morning, by a man who did not ask it in words. He had reached for a map and his fingers had touched hers and she had not moved her hand.
+Five years and then nothing.
 
-That was the answer. Not a speech. Not a decision. A hand that did not move.
+She would not make that mistake again.
+
+A man had reached for a map this morning and his fingers had touched hers and she had not moved her hand. That was not a decision. It was the refusal to repeat the error of believing there was time.
 
 ---
 
