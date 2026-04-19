@@ -54,7 +54,63 @@ It was the first time she had spoken the husband's name in front of Yi Hwon sinc
 
 ---
 
-On the third day, they planned the route.
+The problem came on the third morning.
+
+Yi Hwon was reading the last correspondence file — letters from the year before Yeong-hak's death, tracing the movement of burial site documentation between counties. The letters proved that the records had been deliberately transferred and hidden, not lost. They were the strongest evidence in the collection.
+
+They also contained names.
+
+Not burial site names. Contact names. The scholars and intermediaries who had carried the letters — the same network Lady Yoon had inherited and rebuilt. Some of the names were dead. Some were not. Three of the living names belonged to contacts still active in her network.
+
+Yi Hwon set the file on the desk.
+
+"These cannot go to the capital as they are."
+
+"I know."
+
+"If the Board of Rites reads these letters, they will see the names. The court will want to know who these people are. The apparatus will have a map of your network from your husband's own handwriting."
+
+"I know."
+
+"Can you separate the evidence from the names? Copy the letters with the names removed?"
+
+"If I remove the names, the chain of custody breaks. The letters prove that specific people moved specific documents between specific counties. Without the names, they are unsigned claims. The court will not accept them."
+
+They sat with this for a long time. The file on the desk between them. The evidence that proved the burial sites and the names that would destroy the network that had preserved them — in the same documents, in the same ink.
+
+"I will not send my people's names to the capital," she said.
+
+"The court will not accept evidence without provenance."
+
+"Then the court will have to accept what I give them and trust that the provenance existed."
+
+"They will not."
+
+"Then we have a problem."
+
+He looked at her. She looked at him. The desk between them was the same desk, but the distance had returned — not personal but structural. He carried the king's seal. She carried her people's safety. The seal needed the names. The people needed the names to stay hidden.
+
+"There is a third option," he said. "I verify the provenance myself. I inspect the burial sites in person, confirm that the documents match the locations, and file my own report attesting to the accuracy. The court accepts the amhaeng-eosa's verification instead of the original chain."
+
+"You would attach your name to evidence you cannot fully source."
+
+"I would attach my name to evidence I have personally verified. That is what an amhaeng-eosa does."
+
+She was quiet. He was offering to stand between the court and her network — the same way he had stood between the blade and her body on the trail. His name instead of theirs. His credibility instead of their exposure.
+
+"If the court questions your verification —"
+
+"Then I answer for it."
+
+She looked at the file. The names her husband had written. The contacts she had maintained. The people who had carried letters through eight years of silence because she had asked them to.
+
+She removed the correspondence file from the case and placed it in her lap.
+
+"Verify the sites," she said. "Write your report. The letters stay with me."
+
+---
+
+On the fourth day, they planned the route.
 
 The records would travel in two sets — originals and copies separated, carried by different paths, so that the loss of one set would not mean the loss of all. Yi Hwon would carry the originals himself, under the protection of the amhaeng-eosa seal. Lady Yoon's network would move the copies through her own channels.
 
