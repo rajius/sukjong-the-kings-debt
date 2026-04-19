@@ -100,6 +100,26 @@ One by one, the contacts fell silent. Simply absent, as if they had never existe
 
 ---
 
+The letter arrived before the mourning period ended.
+
+A cousin of Yeong-hak's — a man named Yoon Dae-shik, from the branch of the family that had settled near Andong. Lady Yoon had never met him. He had not attended the wedding. None of Yeong-hak's relatives had attended the wedding. They had distanced themselves years ago, when Yeong-hak's association with Song Si-yeol made the family name a liability in the wrong circles. They had not written. They had not visited. They had treated Yeong-hak as a line in the family register that was better left unread.
+
+The letter was polite. It expressed condolences. It noted that, as the nearest male relative in the patriline, Yoon Dae-shik bore the obligation to maintain the ancestral rites for the deceased. It noted that this obligation carried with it the customary responsibility for the household and its property.
+
+It asked when it would be convenient to discuss the transfer.
+
+Lady Yoon read the letter twice. Yeong-hak had written a statement before their marriage — a quiet arrangement, made when his relatives were still avoiding him, declaring that the household would remain in his wife's care. He had filed it with the local magistrate's clerk. It had held because no one challenged it. No one had been interested in the property of Song Si-yeol's student while Song Si-yeol was alive and dangerous.
+
+Now Song Si-yeol was dead. Yeong-hak was dead. The danger had passed, and the property remained.
+
+She wrote back to Yoon Dae-shik. She cited the arrangement. She stated that Yeong-hak's wishes were recorded and filed.
+
+The reply came within a week. Yoon Dae-shik expressed respect for his cousin's wishes. He also noted that a widow's claim to her husband's property, absent a male heir, did not supersede the patriline's obligation to maintain ancestral continuity. He had consulted with the family elders. The matter was, regrettably, not one of personal wishes but of custom and law.
+
+He would arrive before winter.
+
+---
+
 Master Kim arrived on a cold morning in late autumn, so frail the journey had clearly cost him considerable effort. She had not expected him.
 
 "Child," he said.

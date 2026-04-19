@@ -8,11 +8,33 @@ Yi Hwon nodded.
 
 He waited for something to shift. For the news to open a door — the southern road, the seowon, the woman who had told him to go home. Soonyi was married. The handkerchief had been answered. The obstacle Lady Yoon had named was gone.
 
-But he had understood, standing in that corridor with the sun behind her, that the handkerchief was the easiest thing she could say. Not the truest. The age was still there. The danger was still there. The machinery was still running. And the thing she had not said — the thing he had heard in the way she chose her seat and spoke his name like a door being closed — had nothing to do with Soonyi.
+But he had understood, standing in that corridor with the sun behind her, that the handkerchief was the easiest thing she could say.
 
 He had nothing new to bring her.
 
-The Busan assignment came through Inspector Yu's office in the spring. Provincial grain discrepancies — port records that did not match the capital's numbers, shipment manifests that balanced on paper and broke apart under inspection. The kind of work no one wanted because the port merchants had connections and the local officials had arrangements and the last inspector who had been sent to ask questions had been reassigned before he finished asking.
+---
+
+His mother came again the following month. This time his father sent a letter with her — three lines in the blunt hand of a man who had spent his career writing military dispatches, not family correspondence.
+
+*You are twenty-seven. The Minister's inquiry is still open. Your mother and I expect an answer before the autumn.*
+
+His mother set the letter on his desk beside the barley cakes from the last visit, which were still there.
+
+"The merchant girl was not ideal," she said. "But she was something. Now she is gone and you have nothing. The Minister's daughter is a better match than we had any right to expect. Your father has not asked you for much."
+
+Yi Hwon read the letter again.
+
+"A man who does not marry," his mother said, "does not continue. You understand what that means for this household."
+
+She was not speaking about love. She was speaking about lineage — the thing a military yangban family carried when it had no court influence, no scholarly reputation, no wealth worth naming. A son who did not marry was a son who ended the line.
+
+"I will think about it," he said.
+
+"You have been thinking for a year."
+
+---
+
+The Busan assignment came through Inspector Yu's office the following week. Provincial grain discrepancies — port records that did not match the capital's numbers, shipment manifests that balanced on paper and broke apart under inspection. The kind of work no one wanted because the port merchants had connections and the local officials had arrangements and the last inspector who had been sent to ask questions had been reassigned before he finished asking.
 
 Yi Hwon requested it.
 
@@ -162,7 +184,7 @@ He stayed in Busan three more days — long enough for the wound to close, long 
 
 He left Busan on the northern road, walking slowly because his leg would not let him walk fast. The journey that should have taken five days took nine. The wound opened twice on the road. He rested at inns where no one asked questions and ate meals he could not taste.
 
-The capital was ahead. The work he was supposed to be doing — the southern survey Inspector Yu had been planning for months, the preliminary assessment of burial sites connected to the Danjong restoration — was waiting. It would keep waiting. The leg would not carry him south again until autumn.
+The capital was ahead. Whatever assignment came next would have to wait. The leg would not carry him anywhere for months.
 
 He carried the bundle on his shoulder. The knot was the one his mother had taught him. Inside the bundle, the handkerchief was where it always was.
 

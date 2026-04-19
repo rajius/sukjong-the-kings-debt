@@ -126,7 +126,7 @@ That was precisely the difficulty.
 
 After Park had gone, Yi Hwon took out his own examination certificate and laid it on the desk.
 
-Second attempt. Twenty-four.
+Second attempt. Twenty-two.
 
 He had not thought poorly of his record before today. It had carried him this far. It had been enough.
 

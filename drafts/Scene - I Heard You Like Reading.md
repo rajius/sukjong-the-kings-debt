@@ -46,6 +46,50 @@ The room was quiet and warm, and the distance between them was precisely the dis
 
 It was not what she would have wanted, if wanting had been something she practiced.
 
+The sleeve was nearly finished. The room was warm. She should have left it there.
+
+"Was there ever a girl you loved?"
+
+His brush stopped. Not the way it stopped when he was thinking about a passage — the way it stopped when something touched the part of him that was not made of work.
+
+He did not look up.
+
+"A neighbor's daughter. When I was young."
+
+He said it the way he said everything — precisely, without ornament. But the brush did not move again.
+
+"What happened?"
+
+"She died. An epidemic. I was fourteen."
+
+The room was quiet. The ondol clicked.
+
+"I did not speak about it after," he said. "There was nothing to say that would have been useful."
+
+She waited. He did not continue. He picked up the brush, looked at it, and set it down again.
+
+"And you?" he said.
+
+She looked up. He was watching her now — not with the assessing attention he gave documents, but with something more careful, as though her answer might cost him something.
+
+"A childhood friend," she said. "The boy next door. We used to read together in his father's courtyard."
+
+"What happened?"
+
+"He married someone else."
+
+She said it simply. Without weight. It had been years. The boy had married a girl from a better family, and Lady Yoon had felt the loss for a season and then set it down the way you set down a bowl you no longer needed.
+
+Yeong-hak was quiet for a long time.
+
+She went back to the sleeve. He went back to the document. The evening continued. They did not speak of it again.
+
+She did not understand his silence until years later — after his death, after the papers, after the network, after she had learned to read the things people did not say. He had gone quiet because her answer was light and his was not. She had let go of her childhood friend the way she let go of everything — cleanly, without residue. He had never let go of his. He had redirected the part of himself that had been open toward work that could not die on him, and the redirection had been quiet and structural and permanent, the way a river changes course after a landslide and never returns to the original bed.
+
+She had married a man whose capacity for love had been spent before she met him. Not on another woman. On a girl who died at fourteen and took with her the only version of him that had been unguarded.
+
+What remained was what she got: the work, the partnership, the evening question, the distance he had chosen. It had been enough. It had been the only thing available.
+
 ---
 
 She thought about it later — much later, after he was dead and she was dismantling his papers looking for the shape of his last months. She found the marriage broker's notes folded into a tax record. Seven names. Hers was fifth. Next to each name, a single line in his handwriting — observations, presumably gathered secondhand. Next to the first four: *Father in debt. Mother ambitious. Third daughter, two brothers already placed. Eldest, no prospects for brothers.*

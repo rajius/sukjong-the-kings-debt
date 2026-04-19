@@ -20,7 +20,7 @@ She understood now that "enough" was not the same as "everything." The marriage 
 
 The inquiry about him had come back before the road. She had known before she agreed to travel with him.
 
-Minor yangban household. His father had held a military post in the provinces — the kind of household the purge had never touched. The apparatus had read examination registers and teacher lineages. It had followed Song Si-yeol's name downward through every student and every seowon. A military family in the provinces had not been on the map. Yi Hwon had sat the munkwa at twenty-four. The household was intact. The name was clean.
+Minor yangban household. His father had held a military post in the provinces — the kind of household the purge had never touched. The apparatus had read examination registers and teacher lineages. It had followed Song Si-yeol's name downward through every student and every seowon. A military family in the provinces had not been on the map. Yi Hwon had sat the munkwa at twenty-two. The household was intact. The name was clean.
 
 She was thirty-five. When she married Yeong-hak, the arrangement had come first — the introduction, the negotiation, the household. Whatever she felt had grown inside something already decided.
 

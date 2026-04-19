@@ -52,13 +52,13 @@ That was precisely the difficulty.
 
 After Park had gone, Yi Hwon took out his own examination certificate and laid it on the desk.
 
-Second attempt. Twenty-four. Good enough to make a future. Good enough to bring ministers' inquiries to his door.
+Second attempt. Twenty-two. Good enough to make a future. Good enough to bring ministers' inquiries to his door.
 
 He sat with it for a long time.
 
 It was not shame, exactly. He had never thought poorly of his own abilities before. But now he had seen the measure of another man, and worse, he had seen the trace that measure had left behind.
 
-Lady Yoon had once lived beside a mind that could do at sixteen what he had only managed at twenty-four. No wonder she listened as she did. No wonder his competence, which had always served him well, felt suddenly like a coarser instrument.
+Lady Yoon had once lived beside a mind that could do at sixteen what he had only managed at twenty-two. No wonder she listened as she did. No wonder his competence, which had always served him well, felt suddenly like a coarser instrument.
 
 He folded the certificate and put it away.
 
