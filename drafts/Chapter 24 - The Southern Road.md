@@ -102,10 +102,6 @@ The innkeeper did not look at Yi Hwon when he said it. He wiped the table again,
 
 ---
 
-He spent three more days in Danyang. He did not go back to the county office. He walked the market, the inn corridors, the paths between the county seat and the surrounding villages. He listened the way Yu had taught him to listen — not for what people said but for the quality of their silence.
-
-The silence in Danyang had a specific shape. People spoke freely about weather, trade, local disputes. They spoke carefully about the county magistrate. They did not speak at all about Yeongwol, about burial sites, about the scholars who had once maintained records in the area. The silence was not fear. It was practice — the kind that develops over years in a place where certain subjects have been removed from ordinary conversation.
-
 On the fourth morning, he found a folded paper inside his boot.
 
 He had left the boots outside his room at the inn, the way travelers did. The paper was small, pressed flat against the inner sole, positioned so that he would feel it when he put the boot on but no one searching the boots from outside would see it.
