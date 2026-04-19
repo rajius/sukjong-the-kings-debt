@@ -114,18 +114,10 @@ He unfolded it in his room with the door barred.
 
 Three characters. A location — a village name he recognized, half a day's walk south. And a time.
 
-No signature. No seal. The paper was ordinary — the kind used for market receipts, available anywhere. The handwriting was unfamiliar.
+No signature. No seal. The paper was ordinary — the kind used for market receipts, available anywhere.
 
-But the method was not. Paper inside a boot sole. Placed where the target would feel it and a searcher would miss it. The precision of someone who had done this before — not once but routinely, as part of a system.
-
-He did not know whose hand had written it. He knew whose system had placed it.
+Someone had noticed a scholar asking about Yeongwol.
 
 He burned the paper. He packed the bundle. He checked the seal in his inner pocket.
 
-He took the southern road toward the village, walking with the gait of a man whose left leg pulled on the steep stretches, carrying the king's authority against his chest.
-
-Someone had noticed him. Someone whose network watched for exactly the kind of questions he had been asking.
-
-He did not know who would be waiting at the village. He did not know if the person waiting knew who he was.
-
-He went anyway.
+He took the southern road.
