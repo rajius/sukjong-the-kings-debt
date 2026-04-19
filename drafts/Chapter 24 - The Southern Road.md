@@ -86,13 +86,13 @@ But something else had been in the room. The cabinet the clerk had blocked — Y
 
 He went back the next morning. Different approach.
 
-He did not ask about burial records. He asked about the county's financial ledgers — grain allocations, tax receipts, official correspondence from the past three years. Routine material. The kind of request that could not be refused without raising suspicion.
+He did not ask about burial records. He asked about grain prices — market records, trade volumes, the kind of commercial information a merchant checking local suppliers had every reason to see. The clerk produced the market registers without hesitation. A merchant's request. Routine.
 
-The clerk produced the ledgers. Yi Hwon read them at the desk by the window, the way he had read ledgers in Busan — not for what they said, but for what they organized around.
+Yi Hwon read them at the desk by the window, the way he had read ledgers in Busan — not for what they said, but for what they organized around.
 
-In the third ledger, between the tax records for the fifth and seventh months, the sixth month was missing. Not torn out. Filed elsewhere. A gap that the surrounding entries had been written to absorb — the seventh month's opening balance matched the fifth month's closing balance as though the sixth month had never existed.
+In the third register, between the market records for the fifth and seventh months, the sixth month was missing. No trade permits issued. No grain prices recorded. No market-day transactions. The surrounding entries had been adjusted to close the gap — the seventh month's opening figures matched the fifth month's closing figures as though the sixth month had never existed.
 
-Someone had removed a month of records and adjusted the rest to cover the removal. The adjustment was clean. Professional. The kind of work that required access to the original ledgers and the skill to rewrite the surrounding entries without leaving visible corrections.
+Someone had removed a month of records and rewritten the surrounding entries to absorb the absence. The adjustment was clean. Professional. The kind of work that required access to the original registers and the skill to make the silence look like continuity.
 
 Yi Hwon closed the ledger and looked out the window.
 
