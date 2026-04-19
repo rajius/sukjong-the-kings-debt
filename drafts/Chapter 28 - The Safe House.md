@@ -86,7 +86,9 @@ She waited.
 
 He was quiet for a moment.
 
-"The year after you sent me home."
+"Last year."
+
+She did the arithmetic without wanting to. Two years after she had sent him home. One year after Soonyi — though she did not know about Soonyi yet, did not know the name had been answered, did not know the handkerchief had lost its owner. She knew only the number: last year. And the scar.
 
 ---
 
@@ -94,11 +96,9 @@ She finished wrapping the arm. She tied the knot. Her hands were steady. She sto
 
 The persimmon trees were heavy with fruit. The morning light came through the branches in the way morning light does when it has nothing to hide.
 
-The year after she sent him home.
-
 She had told him to go back. To the handkerchief. To the girl who cared for him. She had put the sun behind her so he could not read her face. She had calculated every element of the refusal — the words, the positioning, the exit. She had been right. She had been correct in every particular.
 
-And the year after she sent him home, he had gone to a port city and gotten himself stabbed because a man with nothing to return to does not leave when he should.
+And somewhere in the years after she sent him home, he had gone to a port city and gotten himself stabbed because a man with nothing to return to does not leave when he should.
 
 She had known this in the abstract. She had known that her refusal would cost him something. She had calculated that the cost to him was less than the cost of staying.
 
