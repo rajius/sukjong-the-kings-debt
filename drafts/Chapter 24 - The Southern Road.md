@@ -112,20 +112,20 @@ He had left the boots outside his room at the inn, the way travelers did. The pa
 
 He unfolded it in his room with the door barred.
 
-Three characters. A location — a village name he recognized, half a day's walk south. And a time — the hour of the snake.
+Three characters. A location — a village name he recognized, half a day's walk south. And a time.
 
-No signature. No seal. The paper was ordinary — the kind used for market receipts, available anywhere.
+No signature. No seal. The paper was ordinary — the kind used for market receipts, available anywhere. The handwriting was unfamiliar.
 
-The handwriting was not ordinary. He had seen it once before, on a paper slid under his door at an inn on the southern road, three years ago. Clear, angular, without the scholarly flourishes the seowon men used.
+But the method was not. Paper inside a boot sole. Placed where the target would feel it and a searcher would miss it. The precision of someone who had done this before — not once but routinely, as part of a system.
 
-He sat with the paper for a long time.
-
-She knew he was here. She had known since Danyang, probably since before. Her network had registered his arrival the way it registered everything — quietly, through channels he could not see.
+He did not know whose hand had written it. He knew whose system had placed it.
 
 He burned the paper. He packed the bundle. He checked the seal in his inner pocket.
 
-He took the southern road toward the village she had named, walking with the gait of a man whose left leg pulled on the steep stretches, carrying the king's authority against his chest and the knowledge that the woman he was walking toward did not know he was carrying it.
+He took the southern road toward the village, walking with the gait of a man whose left leg pulled on the steep stretches, carrying the king's authority against his chest.
 
-She had found the investigator. She did not yet know the investigator was the amhaeng-eosa.
+Someone had noticed him. Someone whose network watched for exactly the kind of questions he had been asking.
 
-He did not yet know what she would do when she found out.
+He did not know who would be waiting at the village. He did not know if the person waiting knew who he was.
+
+He went anyway.
