@@ -120,4 +120,68 @@ She held his gaze for a moment longer. Then she turned and took the descending p
 
 The valley closed around them — brush, then trees, then a trail so narrow they walked single file. She moved through it without hesitation, a woman walking through territory she had held for years.
 
-He walked behind her and thought about the seal he was not showing and the secret she was not telling and the three years between them that had changed everything and settled nothing.
+He walked behind her. The trail bent around a rock outcropping. She went first.
+
+The man was waiting on the other side.
+
+Not from the village. Different clothes — rougher, darker, the look of someone who had been in the hills for days, not hours. He had tracked them from the ridge, not the road. He had known the trail.
+
+He had a blade.
+
+Yi Hwon saw the movement before he saw the man — the shift of weight from a crouch, the arm coming forward in a line aimed at the space Lady Yoon was about to occupy. She was two steps ahead of him. She was turning the corner. She did not see it.
+
+He did not think. His body moved the way his father's training had built it to move — forward, into the strike, closing the distance before the blade could reach full extension. He caught her shoulder with one hand and pulled her behind him. The blade came.
+
+It caught his forearm. Not his side. Not her. His forearm, because he had put it where his body used to be, between the blade and the woman he had pulled out of its path.
+
+The pain was secondary. The man's balance was wrong — he had expected to hit a woman turning a corner, not a man stepping into him. Yi Hwon drove his weight forward. They hit the rock face together. The man's head struck stone. The blade dropped.
+
+Yi Hwon picked it up. The man did not move.
+
+---
+
+The trail was quiet. Blood ran down Yi Hwon's forearm and dripped from his fingers onto the dry ground.
+
+Lady Yoon was against the opposite rock face. She had not fallen — she had been pulled off balance and caught herself, one hand on the stone. She was looking at his arm.
+
+"Give me your sleeve," she said.
+
+"It is not deep."
+
+"Give me your sleeve."
+
+He let her cut the fabric from his outer robe with the fallen blade. She wrapped the wound tightly — not gently, not tenderly. The way you wrap a wound when stopping the blood is more important than stopping the pain. Her hands were steady. She tied the cloth and pulled it firm.
+
+Then her hands stopped.
+
+They were still on his arm. The cloth was tied. The bleeding was controlled. There was no reason for her hands to remain.
+
+She was looking at the wound. Not at the cloth. At the cut beneath it — the place where the blade had opened his arm because he had put his arm where her body had been.
+
+One second. She had been turning the corner. He had been behind her. If he had been one step further back — one second slower — the blade would have found her, not him.
+
+She had spent eight years calculating every cost. She had sent him home because she knew the price. She had maintained the wall because the wall was the last thing that made her recognizable to herself — the widow who ran the network, who carried the cause, who did not need anyone, who had been enough alone.
+
+The man on the ground had known the trail. Her trail. The trail she had said was safe. The network she had trusted had been penetrated far enough that a man with a blade could wait on the other side of a rock she walked past without thinking.
+
+And the person who had saved her was the one she had sent away.
+
+Her hands were still on his arm.
+
+She removed them. She stood. She checked the man on the ground — unconscious, breathing, a bruise spreading across his temple. She took the blade and threw it into the brush below the trail.
+
+"Can you walk?" she said.
+
+"Yes."
+
+"Then walk."
+
+She took the trail again. He followed. She did not adjust her speed for his wound the way she had adjusted for his limp. She walked fast. She walked the way a woman walks when something inside her has shifted and the only way to keep it from showing is to move.
+
+He kept up. The blood soaked through the cloth and dried against his skin.
+
+They did not speak for the rest of the walk. They did not need to. Something had changed on the trail behind them — at the rock, at the blade, at the one second that had separated his arm from her body.
+
+She was no longer the woman who had stood in a corridor with the sun behind her and sent him home. She did not yet know what she was instead.
+
+But the woman from the corridor — the one who calculated every cost, who named Soonyi because Soonyi was the easiest thing to say, who protected herself from a transformation she did not trust — that woman had ended at the rock. One second. One arm. The arithmetic she had lived by for three years no longer produced a result she could use.
