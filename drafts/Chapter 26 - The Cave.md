@@ -148,48 +148,36 @@ He did not answer immediately. The honest answer was not operational. It was not
 
 ---
 
-Her hands were on his arm. The wrapping. The wound. The place where the blade had opened him because he had put himself between the blade and her.
+Her hands were still on his arm. The wrapping. The wound. The place where the blade had opened him because he had put himself between the blade and her.
 
-She was aware of it. The weight of his body against hers in the dark. The fact that the operational reason for the contact had ended and the contact had not.
+The cave was dark. He was warm. The blood on his arm was dried between them.
 
-She had thought there would be more time with the husband. Five years and then nothing.
+She removed her hands. She stepped back — as far as the narrow space allowed, which was not far.
 
-She had thought she would not need this again. Three years and here she was, pressed against a man in the dark, her hands on his wound, the wall gone.
+"We stay until dawn," she said. "They will not search the ridge at night."
 
----
+He nodded. She could not see the nod. She heard the shift of his weight against the stone.
 
-She looked up at him. She could not see his face. She could feel his breath. She could feel the pulse in his arm under her fingers — fast, not from the wound.
+They sat. The space required their shoulders to touch. She did not move away from the contact. She did not move toward it.
 
-Her attention moved from his arm to his neck. A scratch — a branch from the scramble up the hillside. Shallow. Already drying. The kind of small wound a man does not notice on himself.
+She was aware of his breathing. His pulse. The warmth of his body where it pressed against hers. The fact that the operational reason for the proximity had not ended — the men were still below, the night was real, the danger was real.
 
-"Your neck," she said.
+But something else was also real. Something she had no name for and no protocol to manage. The wall she had maintained for three years was not broken. It was simply no longer where she had left it.
 
-He touched it with his free hand. He felt the scratch and looked at the blood on his fingertips, though he could not see it in the dark.
+She did not sleep. She did not think he slept either.
 
-She reached up with both hands.
+Sometime before dawn, his breathing steadied. His head settled against the stone. The weight of his shoulder against hers shifted — heavier, unconscious. He had fallen asleep.
 
-Both. Not one hand being careful. Both hands committing.
+She sat in the dark with his weight against her and did not move.
 
-She touched the scratch. Her fingers along the line of it. The gesture could have been practical — a woman tending a minor wound in a dark cave after a day of running. It could have been that.
+She thought about Yeong-hak. Not the cause. Not the records. The evenings. The barley. The contentment that had grown without either of them planning it.
 
-Then she kissed it. Slowly. Her lips on the scratch, on the skin beside it, on the place where his neck met his jaw. She stayed there. She did not rush.
+She thought about the blade on the trail. The one second.
 
-He was still.
+She thought about the word she had used three years ago, sitting alone in a room, trying to describe what her marriage had been: *enough*.
 
-Her lips moved up. Slowly. Along his jaw. She felt the roughness of his beard — not a smooth jaw from a romance. The end of a day of hiding, running, bleeding. She stayed with the roughness. She did not flinch from the reality of him.
+She was no longer sure what that word meant.
 
-Then she reached his mouth.
+She sat with this until the first grey light came through the crack and the birds outside began. She did not wake him. She let his weight stay where it was.
 
-His arms came around her — both of them, the wounded one and the whole one. He pulled her toward him. The movement cost him — the arm protested, the wrapping pulled — and he did not stop. His body had decided before his mind did.
-
-The thing she had maintained for three years — rebuilt after every crack, defended with distance and morning light and the name of a girl who had married someone else — was gone. Not broken. Released.
-
----
-
-The kiss held.
-
-She noticed herself not noticing.
-
-The cave was cold. He was warm. The blood on his arm was between them, dried and real, the price of the one second that had ended the woman she used to be.
-
-She stopped listening.
+That was the first thing she had allowed herself in three years.
