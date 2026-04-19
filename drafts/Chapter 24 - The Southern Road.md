@@ -38,7 +38,7 @@ Yu paused.
 
 ---
 
-He left the capital on a morning cool enough that his breath showed. He wore traveling clothes — the same plain robe and merchant's bundle he had carried through three years of provincial work. The seal was in the inner pocket of his coat, against his chest, where the handkerchief used to be.
+He left the capital on a morning cool enough that his breath showed. He wore traveling clothes — a scholar's plain robe and the same bundle he had carried through three years of provincial work. The seal was in the inner pocket of his coat, against his chest, where the handkerchief used to be.
 
 The handkerchief was still in the bundle. He had moved it the night before the departure, without thinking about why. The seal went where the handkerchief had been. He noticed the exchange only after it was done.
 
@@ -60,9 +60,9 @@ He would encounter her work before he encountered her. He already knew this. He 
 
 The first county was Danyang.
 
-He arrived as a traveling merchant interested in local records — a cover so familiar it fit like old shoes. The county office was small, staffed by two clerks who had survived multiple changes of magistrate and who treated visitors with the careful neutrality of men who had learned that helpfulness and danger were not opposites.
+He arrived as a minor scholar researching provincial historical records — a cover so familiar it fit like old shoes. The county office was small, staffed by two clerks who had survived multiple changes of magistrate and who treated visitors with the careful neutrality of men who had learned that helpfulness and danger were not opposites.
 
-Yi Hwon asked about provincial records related to historical burial sites in the Yeongwol area. He framed the question as genealogical research — a merchant client in the capital tracing family connections to the Danjong loyalists.
+Yi Hwon asked about provincial records related to historical burial sites in the Yeongwol area — genealogical research, he said, for a scholarly project tracing the families of the Danjong loyalists.
 
 The senior clerk was helpful. Extremely helpful. He produced registers, offered tea, explained at length which records had been consolidated to the provincial capital and which had been lost in the reorganizations following the Gapsul Hwanguk. He spoke for thirty minutes without saying anything that could be verified.
 
@@ -84,23 +84,21 @@ But something else had been in the room. The cabinet the clerk had blocked — Y
 
 ---
 
-He did not go back to the county office. He went to the market.
+He did not go back to the county office. He spent three days in the county — walking the market, eating at the inn, speaking to the people a visiting scholar might naturally speak to. An innkeeper. A bookseller. An elderly teacher at a village school south of town.
 
-A grain dealer named Mun had the largest stall near the east gate. Yi Hwon bought a small quantity of barley and asked, the way merchants ask, about supply patterns — which seasons were steady, which were tight, whether the county's trade had been reliable.
+He asked about the area's history the way a researcher asks — casually, letting people talk. And people talked, the way provincial people talk to a scholar who seems harmless and genuinely interested. They told him about the county, the weather, the changes since the Hwanguk.
 
-Mun was forthcoming. Business was fair. Supply was consistent except for a period two years ago when certain buyers had stopped coming to market for nearly a month. No one knew why. The grain was there. The buyers were not. When they returned, they bought as usual and no one asked where they had been.
+What they did not talk about was Yeongwol. Not the burial site. Not the scholars who had once maintained records there. Not what had happened to the last official who came asking the same questions Yi Hwon was asking.
 
-"Which month?" Yi Hwon said.
+The silence was not fear. It was older than fear — the practiced quiet of a county that had learned which subjects to leave alone.
 
-Mun thought about it. The sixth month. He remembered because the unsold grain had attracted weevils and he had lost two sacks.
+On the second evening, the innkeeper mentioned, without being asked, that a visiting inspector had passed through two years ago. "Government man. Asked many questions. Left after a week."
 
-Yi Hwon walked through the market for the rest of the morning. He spoke to an innkeeper who remembered the same period — a month when certain travelers who usually passed through had not appeared. A cloth merchant who noted that a regular buyer from the southern villages had sent a daughter instead of coming himself. Small absences. Individual explanations. But the pattern was the same: a month when part of the county's normal circulation had gone quiet, and no one had been told why.
+"Where did he go?"
 
-He sat in the inn courtyard and thought about the sixth month.
+"South. Toward Yeongwol." The innkeeper wiped the table. "We heard he had trouble on the road. Bandits, they said."
 
-No flood. No epidemic. No road closure. Just a quiet withdrawal — certain people stepping out of their usual circulation and stepping back in as though nothing had changed.
-
-He had seen this before.
+The innkeeper did not look at Yi Hwon when he said it. He wiped the table again, though it was already clean.
 
 ---
 
