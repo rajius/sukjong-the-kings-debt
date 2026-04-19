@@ -120,38 +120,22 @@ Whether this was simple explanation or something else, she could not tell. He ha
 
 She walked back to him. She knelt to check the arm wrapping. Professional distance. The appropriate posture.
 
-She did not maintain the distance.
-
 She was close enough to see the scar in detail — the white ridge, the depth, the way it followed the muscle. Close enough that her sleeve brushed his thigh when she leaned to check the knot on his arm.
 
-He did not move away. He did not move toward her. He waited — the way he had always waited. The patience of a man who had learned not to push past the limit she set.
+She stood. She stepped back. She walked to the desk where the burial records were spread from the previous evening's work.
 
-She could feel the limit. It was where it always was — the place in her chest where discipline lived, where the calculations happened, where the woman who sent him home had built her wall.
+"We should review the Yeongwol routes," she said. "If the trail is compromised, the delivery path needs to change."
 
-The wall was there. She could feel it.
+She sat at the desk. She picked up a document. She read the first line three times without understanding it.
 
-She did not step behind it.
+He adjusted his robe. He came to the desk and sat across from her. He did not mention the scar. He did not mention the moment she had knelt close and then left. He picked up a map and began tracing the southern routes with his finger, the way he always worked — patient, thorough, waiting.
 
-His hand came to her arm. Not pulling. Resting. The same way his hand had stayed on her arm in the cave after the danger passed — contact that had outlived its operational reason and was waiting to be told what it was instead.
+They worked through the morning. She corrected two of his route assumptions. He found a connection in the records she had missed. The work was real. The work had always been real.
 
-She did not tell it to stop.
+But she could not stay inside it.
 
-His hand moved from her arm to her shoulder. She could have corrected him. She did not correct him. She could have stood. She did not stand.
+She caught herself looking at his hands instead of the map. At the wrapping on his arm. At the place where his robe met his collarbone. She caught herself and returned to the document. She caught herself again.
 
-She looked at him. He looked at her. The morning light was honest and she had not put the sun behind her.
+By midday she had stopped catching herself.
 
-Three years ago she had chosen the morning because the light was cold and the mind was clear. This morning the light was warm and her mind was not clear and she was choosing it anyway.
-
-The thing she had maintained for three years — rebuilt after every crack, defended with distance and morning light and the name of a girl who had married someone else — was gone. Not broken. Released. It had been released at the rock on the trail, at the weight of his shoulder in the cave, at the scar on his thigh that told her the cost of her own correctness.
-
-She had been right to send him home. The scar proved it — not because the refusal was wrong, but because the refusal had produced exactly the damage she was trying to prevent, just on a different body.
-
-The woman who had stood in the corridor with the sun behind her, who had calculated every cost, who had named Soonyi because Soonyi was the easiest thing to say — that woman was gone. She had ended at the rock. What remained was someone Lady Yoon did not fully recognize, sitting in morning light beside a man she had sent away, choosing not to send him away again.
-
-His other hand — the wounded one — came to her face. The movement cost him. He did not stop.
-
-She closed her eyes.
-
-There was no arrangement by which correction could be made free of cost.
-
-She stopped listening.
+She did not know what she was becoming. She knew only that the woman who could sit across a desk from this man and see nothing but the work — that woman no longer arrived when called.
