@@ -24,9 +24,13 @@ They spent four days organizing the records for transport.
 
 The work required both of them — her knowledge of what the documents contained and his understanding of what the court would require. She knew which rubbings were originals and which were copies. He knew which originals the court would demand and which copies would suffice. She knew which correspondences proved the burial locations. He knew the format in which the Board of Rites would accept the evidence.
 
-They worked the way they had worked on the road three years ago — her reading ahead of him, him following the path she laid. But the distance was gone. He sat beside her at the desk, not across from it. Their arms touched when they both reached for the same document. Neither of them adjusted.
+The first nights, Yi Hwon returned to his quarters before midnight. Professional work. Careful distance maintained even in the lamplight.
 
-Ok-sun brought meals. She set the food at the edge of the desk, between the burial maps and the stone rubbings. She looked at the two of them working side by side and said nothing. She had been saying nothing for three days. Her silence had developed a quality — not disapproval, not acceptance. The careful reserve of a woman who had decided that whatever was happening was beyond the reach of her opinion.
+But something had shifted since the night she had closed the door and asked him to stay. Not in the work, but in how they worked. He sat beside her at the desk, not across from it. Their arms touched when they both reached for the same document. Neither of them adjusted.
+
+By the fourth night, he was staying until dawn.
+
+Ok-sun brought meals and said nothing. She set the food at the edge of the desk, between the burial maps and the stone rubbings. She looked at the two of them working side by side and developed the careful reserve of a woman who had decided that whatever was happening was beyond the reach of her opinion.
 
 ---
 
@@ -112,43 +116,47 @@ She removed the correspondence file from the case and placed it in her lap.
 
 On the fourth day, they planned the route.
 
-The records would travel in two sets — originals and copies separated, carried by different paths, so that the loss of one set would not mean the loss of all. Yi Hwon would carry the originals himself, under the protection of the amhaeng-eosa seal. Lady Yoon's network would move the copies through her own channels.
+The records could travel in two sets — originals and copies separated, carried by different paths, so that the loss of one set would not mean the loss of all. Lady Yoon's network could move the copies through her own channels, deniable as a scholar's private collection. Yi Hwon could carry the originals under the protection of the amhaeng-eosa seal, after he completed the burial site verification.
 
-"If they intercept you," she said, "the seal protects you. If they intercept my courier, the copies are deniable — a scholar's private collection, nothing official."
+"Three weeks," he said, studying the map marked with burial locations. "Four at most, if the weather is difficult."
 
-"And if they intercept both?"
+"If they intercept you during the verification —"
 
-"Then eight years of work disappear and we begin again."
+"I am a genealogy researcher examining old graves for historical accuracy. Legitimate scholarly work."
+
+"And if they intercept the copies?"
+
+"Then three weeks of work disappear and we begin again."
 
 She said it without drama. The voice of a woman who had rebuilt before.
 
 ---
 
-On the fourth evening, the cases were packed. The routes were marked. The contacts were notified. The work was done.
+On the fourth evening, the cases were packed. The verification route was marked. The contacts were notified. The work was organized.
 
-Yi Hwon was supposed to leave the following morning.
+Yi Hwon would leave the following morning to verify the burial sites. If the verification held, if the plan proved sound, the originals could then be carried to the capital under royal protection.
 
 She found him in the study, reading the last stone rubbing — Eom Heung-do's memorial tablet, the one her husband had considered the most important. He set it aside when she came in.
 
-"The routes are set," she said. "Ok-sun will move the copies. You carry the originals."
+"The route is planned," she said. "The verification first. Then, if all holds, the capital."
 
 "Yes."
 
-She sat across from him. The document cases were stacked by the wall, packed and sealed. The desk was clear for the first time in four days.
+She sat across from him. The document cases were stacked by the wall, organized and ready. The desk was clear for the first time in four days.
 
 "Come back," she said.
 
 He looked at her.
 
-"When the records are delivered. When the restoration is filed. Come back."
+"When the verification is complete. When you're ready for the capital. Come back first."
 
 "Lady Yoon —"
 
 "I am not sending you home this time."
 
-The room was quiet. The lamp. The empty cases.
+The room was quiet. The lamp. The packed cases. The work that had consumed eight years of her life, organized and planned but not yet released.
 
-He reached for her hand. She let him take it. The bandaged arm and the whole one. His fingers around hers.
+He reached for her hand. She let him take it. His fingers around hers.
 
 "I will come back," he said.
 
