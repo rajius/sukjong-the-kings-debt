@@ -46,13 +46,13 @@ The decree was filed. The shrine was repaired. The names were restored.
 
 ---
 
-In the capital, Lady Yoon heard the news on a morning in late autumn.
+At the seowon, Lady Yoon heard the news on a morning in late autumn.
 
-Yi Hwon had delivered the records in the eighth month, well ahead of Yu's deadline. His new assignment kept him at the ministry most days, managing the administrative details of the restoration process. They lived quietly in a small house near the government quarter — a modest arrangement suitable for an inspector and his provincial wife.
+Scholar Pak read the decree aloud in the courtyard to the household and students gathered there. She stood at the edge of the group, her hand resting on the swell of the child she had conceived in the summer, now heavy beneath her autumn clothes as she heard the words that completed eight years of work.
 
-The messenger came to their door with a copy of the decree. Yi Hwon was at the ministry, so she received it herself and read it aloud to the empty room. Her hand rested on the swell of the child they had conceived in the spring, now heavy beneath her autumn clothes as she spoke the words that completed eight years of work.
+When Scholar Pak finished reading, the students dispersed. Lady Yoon remained in the courtyard.
 
-When she finished reading, she sat in the silence of their small house and thought of Scholar Pak, who would be reading the same decree to his students in a courtyard she would never see again.
+Yi Hwon had delivered the records in the eighth month, three months ago. His letters had been careful, saying only that the work proceeded and that he would return when circumstances permitted. Now she understood what he had been waiting for.
 
 Yeong-hak's work was done. The boy-king's name was restored. The shrine at Yeongwol would be rebuilt. The men who died defending him were rehabilitated.
 
@@ -62,17 +62,39 @@ The child moved under her hand — barely perceptible, but real.
 
 ---
 
-That evening, when Yi Hwon returned from the ministry, she showed him the decree.
+Yi Hwon arrived two days later.
 
-"The shrine will be repaired. The names are restored," she said, setting the document on their small table. "Your king has his historical justice."
+She had been expecting him since the decree was read, though Scholar Pak seemed surprised by his sudden return. He came directly to her quarters, carrying a leather satchel and wearing the careful satisfaction of a man whose dangerous work had concluded successfully.
 
-He read it through once, then looked at her.
+"It's done," he said, setting the satchel on her desk. "The king received the records. The restoration proceeded exactly as planned."
 
-"The child is well," she said, answering the question in his eyes. "The physician says spring, as expected."
+She looked at him — thinner than when he had left for the capital, but steady. The mission that had consumed eight years of her life had finally reached its completion through his hands.
 
-They sat together in the lamplight of their modest room. Outside, the capital went about its business, unaware of the cost that had brought the decree to existence.
+"And now?" she asked.
 
-"I am learning what it means to live under what we accomplished," she said quietly, "rather than inside what we are still trying to accomplish. It is quieter than I expected. But not empty."
+"Now we leave for the capital. My new assignment is permanent. There is a house arranged, modest but suitable." He paused. "If you are ready."
+
+She was ready. She had been ready since the morning she had handed him the records and chosen their future.
+
+---
+
+Three weeks later, they departed the provinces.
+
+Scholar Pak bid them farewell with the formal courtesy he had maintained throughout their unusual arrangement. Ok-sun loaded the cart with Lady Yoon's few belongings — everything that mattered to her fit into a single chest.
+
+As they drove away from the seowon, Lady Yoon looked back once at the courtyard where she had managed the correspondence, the accounts, the delicate balance that had kept a network running for eight years. All ending so that something else could begin.
+
+---
+
+In their small house in the capital, that evening, she showed Yi Hwon where she had placed Yeong-hak's memorial tablet in the main room.
+
+"He should see this completed," she said, touching her swollen belly. "The restoration he died trying to build. The child who will grow up knowing it succeeded."
+
+Yi Hwon looked at the tablet, then at her. "Spring," he said. Not a question.
+
+"The physician confirmed it before we left the provinces."
+
+They sat together in the lamplight of their new home. Outside, the capital went about its business, unaware of the cost that had brought the decree to existence. Inside, two people who had served a cause in silence settled into the quiet life their work had earned.
 
 ---
 
@@ -82,4 +104,4 @@ The record would not show the stone rubbings made by a dead scholar in a provinc
 
 The king's name went on the decree. The cost, as always, was carried by everyone else.
 
-But in a small house in the capital, a woman who had lost one child to the work and carried another because of it sat beside the man who had carried her mission to completion, and felt, for the first time in eight years, that the debt was finally paid.
+But in a small house in the capital, a woman who had carried the cause alone for eight years sat beside the man who had delivered it to completion, and began to imagine what a life built on choice rather than duty might become.

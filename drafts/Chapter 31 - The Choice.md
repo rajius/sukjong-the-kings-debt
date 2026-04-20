@@ -172,10 +172,10 @@ The work would continue. The form was changing.
 
 Three days after their wedding, the copies departed through Lady Yoon's network. She watched Ok-sun's brother disappear down the back path, carrying documents disguised as a scholar's private collection. The northern route would take two weeks, but it was secure.
 
-Within the week, Yi Hwon departed for the capital, carrying the original records and his verification report under royal protection. Two routes, two chances for Yeong-hak's work to reach the king.
+Within the week, Yi Hwon departed for the capital alone, carrying the original records and his verification report under royal protection. The delivery mission was dangerous - better that he face those risks without the complication of protecting a wife. Two routes, two chances for Yeong-hak's work to reach the king.
 
-Lady Yoon watched him disappear down the path toward the main road. When he returned from his delivery, they would leave the provinces together. The seowon, the network, the eight years of invisible work — all ending so that something else could begin.
+Lady Yoon watched him disappear down the path toward the main road. When the mission was complete, when his position was secure, he would return for her. Then they would leave the provinces together.
 
-But the records would survive on both paths.
+The records would survive on both paths. And when they succeeded, their new life could truly begin.
 
-She closed the door and began packing the household she would never manage again.
+She closed the door and began preparing for the household she would soon leave behind.

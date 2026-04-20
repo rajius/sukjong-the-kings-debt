@@ -18,15 +18,15 @@ He had corrected one royal injustice. Now others would ask why their causes rema
 
 ---
 
-Lady Yoon sat in Yi Hwon's family home, accepting tea from his sister-in-law with the careful politeness both women had perfected over the past months.
+Lady Yoon sat in Yi Hwon's family home, accepting tea from his sister-in-law with the careful politeness both women had perfected since her arrival in the capital.
 
-"The child grows well," the sister-in-law observed, looking at two-month-old Yeong-su sleeping in Lady Yoon's arms.
+"You appear to be managing the condition well," the sister-in-law observed, glancing at Lady Yoon's rounded form beneath her winter clothes.
 
-"Yes. He is healthy."
+"The physician says spring, as expected," Lady Yoon replied.
 
-"And you have recovered from the birth?"
+"And you find the capital agreeable for... your situation?"
 
-"I am well, thank you."
+"I am comfortable, thank you."
 
 The conversation proceeded through its familiar pattern — courteous, correct, and hollow. Yi Hwon's family had accepted the marriage as state documentation required, but their reserve never warmed. Their reserve reflected a judgment that no amount of proper behavior would change: the older provincial widow who had somehow captured their promising son.
 
@@ -40,7 +40,9 @@ His mother entered with more refreshments, her manner precisely formal.
 
 "To a woman of my years?" Lady Yoon kept her voice level.
 
-"The circumstances do seem irregular to those who know our family's usual... expectations."
+"The circumstances do seem irregular to those who know our family's usual... expectations." She paused. "Though of course, your condition has... quieted some concerns."
+
+Lady Yoon understood. The pregnancy had provided a form of social protection — proof that she could fulfill a wife's primary duty. Without it, there would have been whispered suggestions about concubines, about younger second wives. The family's reception remained cool, but they could not argue with practical success.
 
 The words carried their intended weight. The neighbors whispered about what advantage an aging provincial widow could possibly offer that outweighed the social mismatch. What hold she might have over a man who could have made a much better match.
 
@@ -48,27 +50,27 @@ The words carried their intended weight. The neighbors whispered about what adva
 
 "Yes," his mother agreed. "They will."
 
-The silence stretched. Lady Yoon fed Yeong-su and waited for the visit to conclude. These family obligations were necessary but exhausting — performed for Yi Hwon's sake and the child's legitimacy, but never comfortable.
+The silence stretched. Lady Yoon adjusted her position carefully and waited for the visit to conclude. These family obligations were necessary but exhausting — performed for Yi Hwon's sake and their future child's legitimacy, but never comfortable.
 
 When she departed an hour later, she felt the familiar relief of escaping scrutiny. In her own small household, at least, she did not have to justify her existence.
 
 ---
 
-The letter arrived on a morning when Yi Hwon was at the ministry and Yeong-su was sleeping peacefully.
+The letter arrived on a morning when Yi Hwon was at the ministry and the house was quiet.
 
 Ok-sun had found her. The handwriting was cautious, the phrasing careful, but unmistakably hers.
 
-*The seowon manages adequately. Scholar Pak sends regards. The household routines continue, though arrangements remain different. Several former associates have inquired about your situation. I have told them you are well settled and occupied with family matters.*
+*The seowon manages adequately. Scholar Pak sends regards. The household routines continue, though arrangements remain different. Some inquiries have come through the usual channels about whether previous arrangements might resume.*
 
 *If circumstances permit, I would welcome news of your new situation. The old concerns no longer apply, but friendship remains.*
 
 *Respectfully, Ok-sun*
 
-Lady Yoon read the letter twice. The subtext was clear: Ok-sun was asking whether the network could be rebuilt, whether the work might continue in new forms. Several former associates were reaching out, testing whether their old contact was still accessible.
+Lady Yoon read the letter twice. The subtext was clear: network contacts were testing whether operations might resume, asking through Ok-sun whether their former connection was still accessible. They wouldn't know Lady Yoon personally, but they knew Ok-sun had been the bridge.
 
-She set the letter aside and looked at Yeong-su sleeping in his basket. The network had been her life for eight years. The contacts, the careful cultivation of information sources, the delicate balance of operational security — all of it had defined who she was and how she moved through the world.
+She set the letter aside and placed her hand on her rounded belly. The network had been her life for eight years. The contacts, the careful cultivation of information sources, the delicate balance of operational security — all of it had defined who she was and how she moved through the world.
 
-But that was before she had been Lady Yoon, invisible provincial widow. Now she was Inspector Yi's wife, mother to his child, resident of the capital. Her movements were observed, her associations noted. The invisibility that had made her effective was gone.
+But that was before she had been Lady Yoon, invisible provincial widow. Now she was Inspector Yi's wife, expecting his child, resident of the capital. Her movements were observed, her associations noted. The invisibility that had made her effective was gone.
 
 More than that: the mission that had driven the network was complete. Yeong-hak's records had reached the king. The restoration had been achieved. What would be the purpose of rebuilding?
 
@@ -86,13 +88,23 @@ She sealed the letter and set it aside for posting. Those who needed to understa
 
 ---
 
+"I want to see him," Lady Yoon said to Yi Hwon over breakfast. "The king. Just once."
+
+Yi Hwon looked up from his morning tea. "The procession?"
+
+"I need to see the face behind all of this." She gestured toward the decree that still lay on their small table. "Eight years of work. Yeong-hak's death. Everything that brought us here. I want to see who it was for."
+
+He considered this, understanding the weight of what she was asking. "It can be arranged. But carefully."
+
+---
+
 The procession began before dawn, but Lady Yoon waited until mid-morning to leave the house. She wanted to see Sukjong, but not at close quarters where their presence might be noted or questioned.
 
 Yi Hwon had arranged everything carefully. He positioned several men in the crowd — not obviously, but she could see them creating a natural perimeter around the elevated ground where they waited. The location was perfect: distant enough from the procession path to avoid the press of bodies, close enough to see clearly.
 
 Their cart waited nearby among others, giving them an easy departure route when the ceremony concluded.
 
-Lady Yoon held Yeong-su against her chest and watched the elaborate spectacle unfold below. The full ceremony of royal procession: musicians, banner-carriers, guards in formal armor, court officials in their ranked positions. The machinery of state displaying itself for the people who sustained it.
+Lady Yoon rested her hand on her rounded belly and watched the elaborate spectacle unfold below. The full ceremony of royal procession: musicians, banner-carriers, guards in formal armor, court officials in their ranked positions. The machinery of state displaying itself for the people who sustained it.
 
 Then she saw him.
 
@@ -110,11 +122,11 @@ Once, she would have carried a thought like this home and heard it made sharper 
 
 She absorbed what she could. She would only see him once.
 
-Yeong-su stirred in her arms, making the small sounds that meant he would wake soon. Yi Hwon looked at her questioningly.
+The child moved beneath her hand — a flutter of life that reminded her of the future they were building. Yi Hwon looked at her questioningly.
 
 She nodded. Enough.
 
-They walked to the cart, Yi Hwon helping her up while she held the child. As the cart pulled away from the ceremony, Lady Yoon looked back once at the procession continuing its ancient route.
+They walked to the cart, Yi Hwon helping her up carefully in her condition. As the cart pulled away from the ceremony, Lady Yoon looked back once at the procession continuing its ancient route.
 
 The king she had served without meeting continued toward the shrine where Danjong's name would finally be spoken among the royal ancestors. Her work in this cause was finished. What came next belonged to others.
 
