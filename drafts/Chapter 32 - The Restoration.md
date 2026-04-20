@@ -38,7 +38,7 @@ He closed the case.
 
 ---
 
-The formal decree was issued in the twelfth month. King Danjong — stripped of his title two hundred and forty years ago, exiled to Yeongwol, killed at seventeen — was restored to full royal status. His posthumous name was elevated. The shrine at Yeongwol was ordered repaired. The loyalists who had died defending him were rehabilitated — their names restored, their families recognized.
+The formal decree was issued in the eleventh month. King Danjong — stripped of his title two hundred and forty years ago, exiled to Yeongwol, killed at seventeen — was restored to full royal status. His posthumous name was elevated. The shrine at Yeongwol was ordered repaired. The loyalists who had died defending him were rehabilitated — their names restored, their families recognized.
 
 The court received the decree with the practiced solemnity of men who understood that opposing a king's act of historical correction was unwise regardless of personal opinion. The Noron supported it as vindication of their scholarly tradition. The Soron supported it because opposing the Noron on this point was not worth the cost. The few remaining Southerner sympathizers in the capital said nothing.
 
@@ -46,11 +46,11 @@ The decree was filed. The shrine was repaired. The names were restored.
 
 ---
 
-In the capital, Lady Yoon heard the news on a morning in early winter.
+In the capital, Lady Yoon heard the news on a morning in late autumn.
 
-Yi Hwon had returned from delivering the records three weeks earlier. His new assignment kept him at the ministry most days, managing the administrative details of the restoration process. They lived quietly in a small house near the government quarter — a modest arrangement suitable for an inspector and his provincial wife.
+Yi Hwon had delivered the records in the eighth month, well ahead of Yu's deadline. His new assignment kept him at the ministry most days, managing the administrative details of the restoration process. They lived quietly in a small house near the government quarter — a modest arrangement suitable for an inspector and his provincial wife.
 
-The messenger came to their door with a copy of the decree. Yi Hwon was at the ministry, so she received it herself and read it aloud to the empty room. Her hand rested on the small swell beneath her winter clothes as she spoke the words that completed eight years of work.
+The messenger came to their door with a copy of the decree. Yi Hwon was at the ministry, so she received it herself and read it aloud to the empty room. Her hand rested on the swell of the child they had conceived in the spring, now heavy beneath her autumn clothes as she spoke the words that completed eight years of work.
 
 When she finished reading, she sat in the silence of their small house and thought of Scholar Pak, who would be reading the same decree to his students in a courtyard she would never see again.
 

@@ -60,49 +60,41 @@ The mission was ready to conclude on two paths.
 
 Then she set down her tea cup and looked at him directly.
 
-"There is something else."
+"If you take this work to the capital, you do not return to me as a visitor."
 
----
+He was quiet, understanding her meaning.
 
-She had been counting days since he left. At first, dismissing the signs. Then, reluctantly, acknowledging what her body was telling her.
+"The seowon arrangement cannot continue indefinitely. Scholar Pak grows suspicious of your extended stay. The students ask questions. And after you carry the most dangerous work of my life to the capital..."
 
-"I am pregnant."
+She paused, looking at him across the small table.
 
-Yi Hwon went very still.
+"If I am truly choosing you, I cannot keep you as a night visitor and send you away as if nothing has changed. Marriage regularizes the future we have already chosen."
 
-She watched his face as he understood what this meant — not just for them, but for the mission. For the timing. For everything they had planned.
+"We would have to marry before I leave," he said.
 
-"How long have you known?"
+"Yes. Before you carry the records."
 
-"Two weeks. I was certain before you returned."
+She had been thinking about this since his return. About the network, which would end with her departure from the provinces. About Scholar Pak, who would lose his household manager. About the choice that had become unavoidable.
 
-The room was quiet except for the lamp flame shifting in the night air.
+"The cover identity creates complications," she said. "Marriage under a false name requires administrative correction."
 
-"We would have to marry," he said finally.
+"Yu will handle it. The mission's completion requires proper registration."
 
-"Yes. Before I begin to show."
+Yi Hwon looked at her. "This changes everything."
 
-She had been thinking about this since she first suspected. About the network, which depended on her invisibility. About Scholar Pak, who would lose his household manager. About the child, who would need safety and a name.
-
-"The cover identity creates complications," she said. "Marriage under a false name is difficult to regularize."
-
-"Yu will handle it. He has to, if the mission is to conclude successfully."
-
-Yi Hwon looked at her across the small table. "This changes everything."
-
-"It changes the timeline. Not the work." Her voice was steady. "The records will still reach the king. Your verification will still protect the network. The only difference is that we must marry quickly."
+"It completes what we began." Her voice was steady. "The records will reach the king. Your verification protects the network. But you do not return here as a genealogy researcher."
 
 She paused.
 
-"And that when you deliver the documents to the capital, I will not be here when you return."
+"When you deliver the documents to the capital, I come with you. The work here is finished."
 
-He understood. A married woman could not manage a seowon household. Could not move invisibly through the women's channels the network required. Marriage would end her eight years of work in these provinces.
+He understood. Marriage would end her eight years as the seowon's invisible manager. But the mission that had required that invisibility would be complete.
 
-"Where will you go?"
+"Where will we go?"
 
-"Wherever you are assigned next. The child will need a father. The mission will be complete."
+"Wherever you are assigned next. The cause will be transferred. The life will begin."
 
-They sat with this knowledge between them. The work that had brought them together would end with their marriage. The life that would begin required everything else to change.
+They sat with this knowledge between them. The work that had brought them together was ending. The choice of what would come next was theirs to make.
 
 ---
 
@@ -110,13 +102,13 @@ Three days later, Yi Hwon wrote to Yu.
 
 *The verification is complete. Fourteen of sixteen sites confirmed, sufficient for legal attestation. Records ready for delivery.*
 
-*Personal complications have developed requiring marriage to regularize the situation. The source's cooperation was granted on professional grounds before these complications arose. Request administrative guidance.*
+*The source has transferred the records and chosen formal alliance with me. Operating under assumed scholarly identity creates administrative complications that require correction for proper completion of the delivery.*
 
-*The king requires the records before spring. - Yi*
+*Request instructions sufficient to complete the delivery without compromising the source or the record. The king requires the records before spring. - Yi*
 
 Yu read the letter at his desk in the capital. He read it twice.
 
-In twenty years of managing provincial assignments, he had not received quite this combination of success and complication. The man had secured the most important intelligence cache in a generation and gotten himself personally entangled with the source. The professional judgment appeared sound. The personal judgment remained to be seen.
+In twenty years of managing provincial assignments, he had not received quite this combination of success and administrative complexity. The man had secured the most important intelligence cache in a generation and formed a formal alliance with the source. The professional outcome was excellent. The administrative requirements would need careful handling.
 
 He called for paper and brush.
 
@@ -160,7 +152,7 @@ He sealed the letter and set it aside. The important correspondence was complete
 
 The family's response arrived two days later.
 
-His father's letter was carefully formal. The marriage was acknowledged, as state documentation required. However, the haste was unfortunate and the circumstances irregular. His mother expressed disappointment that proper consultations had not occurred. His younger brother noted that arrangements for the new sister-in-law's reception would need to be made, though the family remained curious about what urgent circumstances had necessitated such speed.
+His father's letter was carefully formal. The marriage was acknowledged, as state documentation required. However, the choice was unexpected and the circumstances irregular. His mother expressed disappointment that proper consultations had not occurred. His younger brother noted that arrangements for the new sister-in-law's reception would need to be made, though the family remained puzzled about what had attracted him to an older provincial widow with modest connections.
 
 The tone was resigned rather than approving. They would accept what the state had legitimized, but their displeasure was clear.
 
@@ -168,11 +160,11 @@ Yi Hwon read the letter once and set it aside. The family would do what duty req
 
 ---
 
-That night she lay in the dark, his hand on her stomach, and thought about what had changed and what had not.
+That night she lay in the dark, his hand in hers, and thought about what had changed and what had not.
 
-The work her husband had started would finally reach the king. The network that had preserved it would survive, restructured but intact. The child between them would live under a different name, in a different place, but it would live.
+The work her husband had started would finally reach the king. The network that had preserved it would survive, restructured but intact. The life they were building would unfold under a different name, in a different place, but it would be theirs to shape.
 
-She placed her hand over his. Eight years of carrying the cause alone were ending. The mission was transferring to hands she trusted. The life was beginning with a man she had chosen.
+She pressed his hand gently. Eight years of carrying the cause alone were ending. The mission was transferring to hands she trusted. The life was beginning with a man she had chosen.
 
 The work would continue. The form was changing.
 
