@@ -88,13 +88,19 @@ She sealed the letter and set it aside for posting. Those who needed to understa
 
 ---
 
-"I want to see him," Lady Yoon said to Yi Hwon over breakfast. "The king. Just once."
+The night before the procession, Lady Yoon lay awake in the darkness. Yi Hwon felt her restlessness.
 
-Yi Hwon looked up from his morning tea. "The procession?"
+"What is it?" he asked quietly.
 
-"I need to see the face behind all of this." She gestured toward the decree that still lay on their small table. "Eight years of work. Yeong-hak's death. Everything that brought us here. I want to see who it was for."
+She was quiet for a long time. Then: "I want to see him."
 
-He considered this, understanding the weight of what she was asking. "It can be arranged. But carefully."
+"Who?"
+
+"The king. Just once." Her voice was soft but determined. "I need to see the face behind all of this."
+
+Yi Hwon turned toward her in the darkness. He understood the weight of what she was asking.
+
+"It can be arranged," he said finally. "But carefully."
 
 ---
 
