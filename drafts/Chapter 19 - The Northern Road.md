@@ -1,4 +1,4 @@
-# Chapter 19 -- The Northern Road
+# Chapter 19 — The Northern Road
 
 After she turned the corner he stood in the corridor and listened to her footsteps cross the courtyard stones. The gate opened. The gate closed. The innkeeper's wife kept sweeping.
 
@@ -58,17 +58,21 @@ They passed him. First attempt. Sixteen.
 
 ---
 
-Yi Hwon closed the volume.
+Yi Hwon closed the volume and sat with it in his hands.
 
-A first-attempt pass at sixteen. Song Si-yeol's circle. And an essay arguing that correction always carried a price — written in the examination register, in official ink, under his own name. After Song Si-yeol's execution, the Southerners had built their authority on the claim that the purge was necessary and clean. The essay said no purge was ever clean. Not theirs. Not anyone's.
+A first-attempt pass at sixteen. Song Si-yeol's circle. Essay questions that would have challenged men with decades of study, answered by someone who was still growing into his adult face.
 
-They would not have needed to look far. The examination register was already in their hands.
+Yi Hwon had taken the examination at twenty-three. Second attempt. Passed respectably, not brilliantly. His essay had been careful, balanced, safely positioned between factional extremes. The kind of answer that demonstrated competence without taking risks.
 
-The husband had been targeted long before he was killed.
+Yeong-hak's essay had been written in official ink, under his own name, arguing that no correction was ever clean—including the very purge that would later consume him. Either recklessly brave or contemptuous of consequences. Possibly both.
 
-Yi Hwon walked out into the daylight and thought of Lady Yoon sitting on a rock by the stream, her face tilted toward the warmth.
+The dead man would always be sixteen, brilliant, and correct. No age would diminish his insights. No compromises would tarnish his principles. No bureaucratic necessities would force him to moderate his positions.
 
-*Difficult.*
+Yi Hwon would never compete with that version of intellectual fearlessness. He was already too old, too cautious, too aware of what happened to people who wrote dangerous essays in official registers.
+
+He walked out into the daylight, irritated by his own resentment. Lady Yoon deserved better from him than competing with a dead husband for comparative brilliance. But the comparison had been thrust on him by sixteen-year-old handwriting and an essay that would have shamed most senior scholars.
+
+*Difficult,* she had called him. The word carried new weight now.
 
 She had come from that world. The capital. Song Si-yeol's orbit. And after it destroyed her husband, she had taken everything she learned there and carried it to a place no one would think to watch.
 
@@ -137,3 +141,5 @@ He untied the bundle. The handkerchief was where it always was. Pale blue-grey. 
 순.
 
 He retied the bundle and did not sleep.
+
+---

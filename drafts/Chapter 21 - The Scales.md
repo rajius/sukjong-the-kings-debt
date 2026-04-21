@@ -1,4 +1,4 @@
-# Chapter 21 -- The Scales
+# Chapter 21 — The Scales
 
 His mother arrived on the first day of the month, unannounced, carrying a cloth bundle of barley cakes and a purpose she did not immediately state.
 
@@ -122,11 +122,17 @@ The matchmaker was a woman named Mrs. Bae who lived in the next district and who
 
 Soonyi did not ask about Yi Hwon directly. She described the situation as a friend's problem — a common courtesy that Mrs. Bae saw through immediately and did not acknowledge.
 
-"He is not doing anything wrong," Mrs. Bae said.
+"He is harming you," Mrs. Bae said.
 
-"No."
+Soonyi's hands went still. "He has not—"
 
-"But he is not doing anything, either." Mrs. Bae folded her hands. "The absence of wrong is not the presence of right. A man who has decided will act. A man who has not decided will be polite."
+"Has not refused you outright, no. Has not broken the arrangement, no. Has not said anything that would give your father grounds for complaint." Mrs. Bae's voice was matter-of-fact. "But he is keeping you available while remaining unavailable himself. You cannot pursue other arrangements while he delays his decision. You cannot plan your life while he considers his options."
+
+Soonyi was quiet.
+
+"A man who truly intended to marry would not leave you suspended this way," Mrs. Bae continued. "A man who truly intended to refuse would give you clear grounds to move forward. Your young inspector is doing neither. He is benefiting from having you held in reserve while he explores what else might become available to him." 
+
+Mrs. Bae folded her hands. "That is not passive politeness, child. That is active selfishness."
 
 Soonyi walked home slowly.
 
@@ -245,3 +251,5 @@ Soonyi looked at him for a long time. He did not look away.
 She stood. She straightened her skirt. She walked to the door.
 
 Soonyi married the following year.
+
+---

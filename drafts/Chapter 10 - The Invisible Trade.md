@@ -1,4 +1,4 @@
-# Chapter 10 -- The Invisible Trade
+# Chapter 10 — The Invisible Trade
 
 The first woman she lost was named Hwang.
 
@@ -68,13 +68,13 @@ Lady Yoon accepted before she finished reading Ok-sun's description. The routing
 
 The meeting that changed everything happened in the second year.
 
-Lady Yoon had arranged to meet a provincial contact — a minor scholar who had been one of Yeong-hak's correspondents before the purge and had recently sent word, through three intermediaries, that he had information about the apparatus hunting the old network.
+Lady Yoon had arranged to meet a provincial contact — a minor scholar who had been one of Yeong-hak's correspondents before the purge and had recently sent word, through three intermediaries, that he had information about the investigators hunting the old network.
 
 The meeting place was a private residence at the edge of a market town — a house belonging to a merchant who owed Ok-sun's brother a favor. Lady Yoon arrived at dusk and found the door open.
 
 The scholar was inside. He was not alone.
 
-A man Lady Yoon did not recognize was sitting at the table with a cup of tea, as if he had been expected. He was middle-aged, dressed in ordinary clothes, and he turned to look at her with the particular attention of someone who had been waiting.
+A man Lady Yoon did not recognize was sitting at the table with a cup of tea, as if he had been expected. He was middle-aged, dressed in ordinary clothes, and he turned to look at her as if he had been waiting.
 
 "Ah," the scholar said. "This is — a colleague. He is interested in the same questions."
 
@@ -138,4 +138,5 @@ She could not prove this. She could not remove him without revealing what she su
 
 By the fourth year, the Southerner apparatus was still looking for scholarly networks. They found nothing. What existed in their place was invisible to anyone looking for the wrong thing.
 
-She was waiting, without knowing she was waiting, for the weather to change.
+
+---

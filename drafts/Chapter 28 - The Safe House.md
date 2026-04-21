@@ -1,4 +1,4 @@
-# Chapter 28 -- The Safe House
+# Chapter 28 — The Safe House
 
 The house was half a day south of the ridge, set back from the road behind a stand of persimmon trees. A farmhouse to anyone passing — low walls, thatched roof, a kitchen garden along the south side. Nothing that announced itself.
 
@@ -24,7 +24,7 @@ He did not flinch. She had expected that.
 
 "I have others."
 
-She looked at him. He said it the way a man says something he has decided is not important — which told her it was.
+She looked at him. His voice was flat. Which told her it wasn't.
 
 She wrapped the arm in fresh cloth, tighter than before. He drew a short breath when she tied the knot.
 
@@ -42,7 +42,7 @@ He told her what the king needed. The burial site at Yeongwol assessed. The reco
 
 "You have what he needs," Yi Hwon said.
 
-"I have what my husband left. I have maintained it. But I cannot deliver it to the capital myself. A widow carrying historical records into the court's hands — the apparatus would intercept it before it reached the king."
+"I have what my husband left. I have maintained it. But I cannot deliver it to the capital myself. A widow carrying historical records into the court's hands — the censorate would intercept it before it reached the king."
 
 "That is why they sent an amhaeng-eosa."
 
@@ -100,12 +100,6 @@ She had told him to go back. To the handkerchief. To the girl who cared for him.
 
 And somewhere in the years after she sent him home, he had gone to a port city and gotten himself stabbed because a man with nothing to return to does not leave when he should.
 
-She had known this in the abstract. She had known that her refusal would cost him something. She had calculated that the cost to him was less than the cost of staying.
-
-The scar said the calculation was wrong.
-
-Not wrong in principle. Wrong in fact. She had measured the cost of his staying against the cost of his leaving, and she had chosen the version that protected him. But the protected version had walked to Busan and put himself in front of a blade because the protection she had offered was indistinguishable from emptiness.
-
 She looked at the scar. The robe had shifted again. The white ridge of tissue ran along his thigh — permanent, structural, the kind of mark that changed a man's gait and did not fade.
 
 She had done that. Not the merchant. Not the magistrate. Not the blade. She had done it by sending him away with nowhere to go and no reason to be careful.
@@ -138,4 +132,4 @@ She caught herself looking at his hands instead of the map. At the wrapping on h
 
 By midday she had stopped catching herself.
 
-She did not know what she was becoming. She knew only that the woman who could sit across a desk from this man and see nothing but the work — that woman no longer arrived when called.
+---

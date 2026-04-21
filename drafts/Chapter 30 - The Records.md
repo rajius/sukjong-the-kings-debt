@@ -1,10 +1,10 @@
-# Chapter 30 -- The Records
+# Chapter 30 — The Records
 
 The burial records arrived on the third day.
 
 Ok-sun brought them from wherever Lady Yoon kept them — Yi Hwon did not ask where, and she did not say. Three document cases, carried by a woman who walked through the gate as though she were delivering cloth. She set them on the desk and left without a word.
 
-Lady Yoon opened the cases the way a woman opens something she has been carrying for eight years.
+Lady Yoon opened the cases slowly. Her hands were steady. Her breathing was not.
 
 "My husband's work," she said. "Stone rubbings of memorial tablets the official record says were destroyed. Correspondence tracing where the Danjong loyalists were actually interred. Maps of burial sites that do not appear in any county register."
 
@@ -16,7 +16,11 @@ Yi Hwon read three pages and stopped.
 
 "This is what the king needs," he said.
 
-"This is what my husband died for."
+"This is what my husband died for." She touched the edge of the nearest document, then pulled her hand back. "His work was extraordinary. But it cost him everything else. It cost us everything else."
+
+She was quiet for a moment, looking at the careful annotations that represented years of solitary scholarship.
+
+"I honor what he accomplished. But I will not pretend that living with a man consumed by such work was easy, or that his brilliance made him a good companion." She met Yi Hwon's eyes. "The cause was worth his sacrifice. The marriage was... more complicated."
 
 ---
 
@@ -66,19 +70,33 @@ They also contained names.
 
 Not burial site names. Contact names. The scholars and intermediaries who had carried the letters — the same network Lady Yoon had inherited and rebuilt. Some of the names were dead. Some were not. Three of the living names belonged to contacts still active in her network.
 
-Yi Hwon set the file on the desk.
+Yi Hwon set the file on the desk and was quiet for a long moment.
 
-"These cannot go to the capital as they are."
+"These letters contain crucial evidence," he said finally. "They prove deliberate obstruction at the county level. They establish chain of custody for the burial site records. The court needs to see them."
 
-"I know."
+Lady Yoon waited.
 
-"If the Board of Rites reads these letters, they will see the names. The court will want to know who these people are. The apparatus will have a map of your network from your husband's own handwriting."
+"The proper procedure is to submit the letters complete with all correspondence details. The Board of Rites will examine the evidence and follow up with the named contacts to verify the documentation process." His voice carried the flat tone of a man reciting administrative requirements. "Standard investigative protocol."
 
-"I know."
+"I see."
 
-"Can you separate the evidence from the names? Copy the letters with the names removed?"
+"The court has a right to examine all sources. If we redact names, we compromise the evidence. If we compromise the evidence, we undermine the restoration." He paused. "That is what my training tells me to recommend."
 
-"If I remove the names, the chain of custody breaks. The letters prove that specific people moved specific documents between specific counties. Without the names, they are unsigned claims. The court will not accept them."
+Lady Yoon's hands had gone still on the papers she was arranging.
+
+Yi Hwon stared at the letters. "But my training assumes that investigation serves justice. It does not account for situations where proper procedure destroys the very people who made justice possible."
+
+He picked up the file again, read the first letter through. "Can you separate the evidence from the names? Copy the letters with the contact information removed?"
+
+"If I remove the names, the chain of custody breaks. The letters prove that specific people moved specific documents between specific counties. Without the names, they are unsigned claims."
+
+"But they would still prove the records were moved deliberately, not lost?"
+
+"Yes. But the court may not accept them."
+
+"Then we forge stronger provenance." The words came out before Yi Hwon could consider their implications fully. "I can attest to having verified the correspondence chain through field investigation. My authority as inspector provides the credibility the redacted letters would lose."
+
+He had just offered to lie in an official report to protect her network. The realization sat between them in the silence that followed.
 
 They sat with this for a long time. The file on the desk between them. The evidence that proved the burial sites and the names that would destroy the network that had preserved them — in the same documents, in the same ink.
 
@@ -100,7 +118,7 @@ He looked at her. She looked at him. The desk between them was the same desk, bu
 
 "I would attach my name to evidence I have personally verified. That is what an amhaeng-eosa does."
 
-She was quiet. He was offering to stand between the court and her network — the same way he had stood between the blade and her body on the trail. His name instead of theirs. His credibility instead of their exposure.
+She was quiet.
 
 "If the court questions your verification —"
 
@@ -161,3 +179,4 @@ He reached for her hand. She let him take it. His fingers around hers.
 "I will come back," he said.
 
 She did not let go.
+---

@@ -1,8 +1,8 @@
-# Chapter 11 -- The Memorial
+# Chapter 12 — The Memorial
 
 The order found Yi Hwon at his garrison posting in the third week of the seventh month.
 
-It was not addressed in the usual way. Most reassignments came through the provincial military office and were read aloud by a clerk before being filed. This one came sealed, by direct courier, with no indication of its contents on the outside. The garrison commander handed it to him without comment, the way a man hands over something he has decided in advance he does not want to know about.
+It was not addressed in the usual way. Most reassignments came through the provincial military office and were read aloud by a clerk before being filed. This one came sealed, by direct courier, with no indication of its contents on the outside. The garrison commander handed it to him without comment and left before Yi Hwon broke the seal.
 
 Yi Hwon read it once at his desk. Then he read it again to be sure he had not misread the name on the seal.
 
@@ -34,7 +34,15 @@ Two rooms behind a courtyard near the south wall of the palace complex, with a s
 
 Yi Hwon considered the question carefully. "No, sir. I thought it should be filed accurately. What was done with it after was not my decision."
 
-Yu studied him for a moment. He was not a tall man, and he held himself the way men hold themselves who have been making consequential decisions for long enough that the consequences had stopped frightening them.
+Yu picked up a second document from his desk. "Your previous supervisor also submitted an assessment. He noted your ability to... distinguish between what people say and what they mean." Yu's tone was neutral. "Particularly with local merchants who had reasons to misrepresent their inventory levels."
+
+Yi Hwon said nothing. That assignment had required him to identify which traders were lying about their grain reserves to avoid taxation. He had developed a system: watch their hands when they spoke numbers, notice which details they elaborated unnecessarily, observe how they positioned themselves when discussing specific transactions. It had been effective. Three merchants had been fined. One had lost his license.
+
+"He also noted that you seemed... comfortable with this type of assessment," Yu continued. "Reading people as patterns rather than individuals."
+
+"The work required accuracy, sir."
+
+"It did." Yu studied him for a moment. He was not a tall man, and he held himself the way men hold themselves who have been making consequential decisions for long enough that the consequences had stopped frightening them. "That particular skill is useful in provincial assessment work. Sometimes it's more useful than sympathy."
 
 "There has been administrative paralysis in three provinces since the spring," Yu said. "Officials are afraid to make ordinary decisions because they do not know which way the political weather will turn. I am being sent to assess the situation and recommend corrections. My core staff will handle the formal inspection. I need one man for the road work."
 
@@ -133,3 +141,5 @@ Yi Hwon stayed through the second day of the ceremony out of professional habit.
 He did not include the widow. He was not yet sure what he would have written if he had.
 
 He had not finished looking.
+
+---

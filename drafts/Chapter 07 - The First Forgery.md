@@ -1,4 +1,4 @@
-# Chapter 7 -- The First Forgery
+# Chapter 7 — The First Forgery
 
 Scholar Pak arrived in the third month of the new year, grateful and overwhelmed in equal measure.
 
@@ -44,7 +44,7 @@ The second letter addressed to him was easier. Polite deflection, suggestion of 
 
 By the fourth letter, she could inhabit his voice completely. She knew which classical references he would choose, which diplomatic phrases he would use to decline dangerous requests.
 
-She was keeping her husband alive on paper. She was keeping Master Kim alive on paper. And both were dying again, slowly, as the news of their deaths traveled outward through the same provincial networks that carried everything else.
+She was keeping her husband alive on paper. She was keeping Master Kim alive on paper.
 
 She had asked Scholar Pak to delay the formal announcement of Master Kim's death — explaining, truthfully, that the transition would go more smoothly if correspondents continued to receive replies in the familiar voice while the seowon established its new administration. Scholar Pak had agreed. He was a practical man, and the argument was practical.
 
@@ -116,4 +116,5 @@ One night, grinding ink past midnight for the second version of a letter Scholar
 
 She stared at the page. Her hands ached. The blanket Scholar Pak had left was around her shoulders. Outside, the first frost had come.
 
-She burned the page and started again. But she understood now that she was running out of time, out of hands, and out of dead men whose voices could carry what the living were too afraid to say.
+She burned the page and started again.
+---

@@ -1,4 +1,4 @@
-# Chapter 25 -- The Tripwire
+# Chapter 25 — The Tripwire
 
 The report came through Ok-sun's brother on a market day.
 
@@ -56,7 +56,7 @@ She sat down at the desk. She placed her hands flat on the surface to stop them 
 
 The protocol was clear. An unknown investigator tripped the network's tripwire. The outer contacts assessed. The inner ring decided. If the investigator was dangerous, he was redirected — sent to a location where a conversation could happen under controlled conditions. If he was useful, the conversation led somewhere. If he was neither, he was left alone and the network went quiet until he moved on.
 
-She should send a contact. That was the protocol. An outer-ring member she could afford to expose — someone who could meet the investigator, take his measure, and report back. Someone whose face meant nothing to the apparatus.
+She should send a contact. That was the protocol. An outer-ring member she could afford to expose — someone who could meet the investigator, take his measure, and report back. Someone whose face meant nothing to the court's investigators.
 
 She should not go herself. She had not gone herself in years. The inner ring did not meet unknown contacts. That was the rule she had built the network on. Compartmentalization. Invisibility. The people who ran the system never appeared in the system.
 
@@ -88,4 +88,6 @@ She was not controlling this meeting. She was going to it because the descriptio
 
 The road south was quiet. She walked it alone. The blade was in her bundle. The protocol was broken. The woman who had built the protocol was the one breaking it.
 
-She did not know what she would do when she saw him. She knew only that sending someone else had become impossible, and that the impossibility was the answer to a question she had been refusing to ask for three years.
+She did not know what she would do when she saw him.
+
+---

@@ -1,6 +1,6 @@
-# Chapter 23 -- The Seal
+# Chapter 23 — The Seal
 
-The court was splitting, and Sukjong could feel it the way a man feels a crack in a wall he is leaning against — not yet dangerous, not yet stable.
+The court was splitting. Not yet dangerous, not yet stable.
 
 The Westerners had been back for three years. Long enough to reclaim their offices, their influence, their certainty that the court belonged to them. Long enough to begin disagreeing about what to do with it.
 
@@ -9,6 +9,30 @@ The Noron wanted Jang Hui-bin punished further. She had been queen. She had prod
 The Soron counseled restraint. The crown prince was still the crown prince. His mother's demotion was damage enough. Pressing further risked destabilizing the succession — the very thing the 1689 Hwanguk had been meant to settle.
 
 Sukjong sat between them and held neither position. He needed both factions to carry the Danjong restoration, and both factions were more interested in carrying their argument about Jang Hui-bin.
+
+The week before, Minister Lee from the Noron had requested a private audience. His message had been carefully phrased: concerns about administrative inconsistencies in the treatment of certain palace positions. But Sukjong understood. They wanted Jang Hui-bin's remaining privileges reduced further. Her quarters. Her allowances. The formal acknowledgment that her son remained crown prince.
+
+Sukjong had listened to the full argument, then asked a single question: "Minister Lee, does the Noron wish to take responsibility for succession stability?"
+
+Lee had paused. Taking responsibility meant accepting blame if the crown prince's position became contested. "The Noron seeks only proper administrative order, Your Majesty."
+
+"Excellent. Then you will support proper administrative procedures for evaluating succession questions." Sukjong had smiled slightly. "I will ensure Minister Park from the Soron receives a full briefing on the Noron position regarding palace administrative consistency. Perhaps the two factions can present a joint recommendation."
+
+Lee had left understanding that pressing the issue meant working with their factional rivals on the question they least wanted to share.
+
+Three days later, Minister Park from the Soron had requested his own audience. His message was equally careful: the importance of maintaining stable arrangements that served the kingdom's peace. He wanted assurance that Jang Hui-bin's position would not be reduced further.
+
+Sukjong had listened, then asked: "Minister Park, does the Soron wish to take responsibility for ensuring that past administrative irregularities are not repeated?"
+
+Park had recognized the trap immediately. Taking responsibility for Jang Hui-bin meant defending the very elevation that had required Queen Inhyeon's exile. "The Soron seeks only to preserve stability, Your Majesty."
+
+"Then you will work with Minister Lee to establish clear administrative guidelines that preserve stability while maintaining proper order. I expect a joint report within the month."
+
+Park had left knowing that defending Jang Hui-bin required articulating his position to the very faction that wanted her destroyed.
+
+Both ministers would now spend weeks crafting language that satisfied neither faction completely while providing Sukjong with a compromise both could claim to have influenced. Neither faction could criticize the result without criticizing their own participation in creating it.
+
+The Danjong restoration would proceed while they argued about administrative procedures they had created together.
 
 ---
 
@@ -52,7 +76,7 @@ Sukjong read the report from the provincial magistrate and set it beside the ear
 
 The Southerners had been removed from the capital in 1694. The Westerners had purged in return — that was the nature of the system, each faction dismantling the other when the gate turned. But the Soron had counseled restraint, and Nam Guman had mediated, and Sukjong himself had chosen not to mirror the bloodbath of 1689. The purge had reached the ministers and the senior officials. It had not reached the provinces.
 
-The same officials who had carried out the post-1689 purge — who had read the examination registers, followed Song Si-yeol's name downward, and reached the scholars who were keeping the Danjong cause alive — some of those officials were still in their county posts. They had survived the Gapsul Hwanguk by being too minor to purge, too local to reach, too useful to the county machinery to remove without replacement.
+The same officials who had carried out the post-1689 purge — who had read the examination registers, followed Song Si-yeol's name downward, and reached the scholars who were keeping the Danjong cause alive — some of those officials were still in their county posts. They had survived the Gapsul Hwanguk by being too minor to purge, too local to reach, too useful to the county administration to remove without replacement.
 
 And they had reason to resist the restoration. If Danjong was restored, the purge that had killed his advocates would be reframed. The men who had carried it out would no longer be servants of order. They would be instruments of injustice. Their positions, their pensions, their safety — all rested on the current arrangement staying in place.
 
@@ -112,4 +136,4 @@ Tomorrow the seal would be given. A young inspector with a scar on his thigh and
 
 He knew only that the work required someone who would not leave.
 
-He had found one.
+---

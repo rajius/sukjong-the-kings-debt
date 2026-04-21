@@ -1,4 +1,4 @@
-# Chapter 17 -- The Mill
+# Chapter 17 — The Mill
 
 The second meeting was at the abandoned mill by the river.
 
@@ -53,3 +53,4 @@ She did not answer immediately. She was looking at the mill wheel — the old me
 She turned and walked toward the trees. At the treeline she stopped and looked back — not at his face, but at his shoulders.
 
 The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.
+---

@@ -1,4 +1,4 @@
-# Chapter 6 -- The Murder
+# Chapter 6 — The Murder
 
 The morning was ordinary.
 
@@ -27,8 +27,6 @@ He kissed her forehead. "Three days. Four at most if the roads are bad."
 She watched him walk to the gate, then turn to wave once before disappearing down the path toward the main road. The gesture was automatic, performed without thought, the way married people say goodbye when they expect to say hello again soon.
 
 When she turned back to the house, her stomach tightened — the kind of low cramp that she might have mistaken for worry if it had not stayed so long. By midday it had not eased. She walked to the physician's house in the late afternoon. The physician gave her herbs for exhaustion and told her to rest. She told no one what else the physician had said.
-
-It was the last time she saw him alive.
 
 ---
 
@@ -90,7 +88,7 @@ She thanked the men who had brought him home. She made the proper arrangements f
 
 That night her body did something that felt both familiar and wrong. Something deeper than exhaustion, more final than grief, accompanied by a wetness that was not tears. She did not attribute this to grief. She washed and changed her clothes and slept badly.
 
-And at night, alone with the certainty that everything she had been told was a lie, she began to plan what she would do about it.
+And at night, alone with the certainty that everything she had been told was a lie.
 
 ---
 
@@ -163,3 +161,4 @@ She held the fragment, reading the few visible characters again. *...capital... 
 She folded it and placed it in the desk where Yeong-hak had kept his most dangerous documents.
 
 Scholar Pak would come within the month. She would have cover. But that would only keep her safe if she could learn to be someone who posed no threat to anyone.
+---

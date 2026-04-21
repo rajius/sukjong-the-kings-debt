@@ -1,4 +1,4 @@
-# Chapter 33 -- The Procession
+# Chapter 33 — The Procession
 
 Sukjong read the morning reports at his desk, but his attention kept drifting to the restoration decree filed among the completed business. Three months since the announcement, and the responses were arriving exactly as he had anticipated.
 
@@ -14,7 +14,21 @@ Sukjong set down the report and looked out the window toward the ceremony prepar
 
 But Sukjong understood what his courtiers did not yet grasp: every historical correction opened new possibilities for future corrections. The restoration of Danjong was not the end of a process — it was the beginning of one.
 
-He had corrected one royal injustice. Now others would ask why their causes remained unaddressed, why their grievances stayed buried. The machinery of justification, once set in motion, would not easily stop.
+He walked to his desk and began drafting orders.
+
+*Minister Nam: Prepare assessments of all pending requests for historical review. Create a formal procedure for evaluating claims. Establish criteria that will limit frivolous appeals while preserving the appearance of fair consideration.*
+
+*Minister Park: Begin reassignment of provincial officials who were directly involved in suppressing loyalist activities. Frame the transfers as promotions or natural rotation, not punishment. Complete within six months.*
+
+*Inspector Yu: Monitor scholarly discourse in the seowons for essays connecting Danjong's restoration to other historical grievances. Submit monthly reports, but take no action without explicit orders.*
+
+*The Palace Secretariat: Draft language defining the scope and limitations of historical corrections. Emphasize that the Danjong restoration addresses a unique case of a legitimate king wrongly deposed, not a general precedent for reviewing all past decisions.*
+
+He paused, considering the most delicate instruction, then wrote:
+
+*Chief Minister: Schedule private meetings with Lady Jang and the remaining Southerner leaders within the month. The message is that historical corrections serve stability, not instability. Those who attempt to use the Danjong precedent to destabilize current arrangements will discover that royal authority extends to managing interpretations as well as making them.*
+
+Sukjong sealed each order separately. Every potential consequence would have a manager. Every emerging threat would have a response prepared before it fully formed. Every justification would operate within boundaries he established, not ones it created for itself.
 
 ---
 
@@ -110,7 +124,7 @@ Yi Hwon had arranged everything carefully. He positioned several men in the crow
 
 Their cart waited nearby among others, giving them an easy departure route when the ceremony concluded.
 
-Lady Yoon rested her hand on her rounded belly and watched the elaborate spectacle unfold below. The full ceremony of royal procession: musicians, banner-carriers, guards in formal armor, court officials in their ranked positions. The machinery of state displaying itself for the people who sustained it.
+Lady Yoon rested her hand on her rounded belly and watched the elaborate spectacle unfold below. The full ceremony of royal procession: musicians, banner-carriers, guards in formal armor, court officials in their ranked positions. The court displaying itself for the people who sustained it.
 
 Then she saw him.
 
@@ -134,6 +148,4 @@ She nodded. Enough.
 
 They walked to the cart, Yi Hwon helping her up carefully in her condition. As the cart pulled away from the ceremony, Lady Yoon looked back once at the procession continuing its ancient route.
 
-The king she had served without meeting continued toward the shrine where Danjong's name would finally be spoken among the royal ancestors. Her work in this cause was finished. What came next belonged to others.
-
-The sun shone brightly as they drove toward home.
+The procession continued toward the shrine.

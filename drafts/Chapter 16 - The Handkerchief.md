@@ -1,4 +1,4 @@
-# Chapter 16 -- The Handkerchief
+# Chapter 16 — The Handkerchief
 
 That evening at the inn, with the day's walking still in his legs and the stream crossing somewhere behind them, he said a name.
 
@@ -63,3 +63,4 @@ Twenty-four. Unmarried. Pretty.
 The pain inside her stomach was so foreign she almost mistook it for illness.
 
 She pressed her stomach with one hand until it stopped screaming.
+---

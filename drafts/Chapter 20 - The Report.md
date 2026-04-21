@@ -1,4 +1,4 @@
-# Chapter 20 -- The Report
+# Chapter 20 — The Report
 
 The report arrived through Inspector Yu's channel in the tenth month, carried by a courier who did not know what he was carrying.
 
@@ -36,31 +36,38 @@ And he had killed them.
 
 Not by order. Not by intent. By the machinery he set in motion when he broke the Westerners in 1689. He had needed to assert that the king — not the ministers — determined the succession. He had needed to show that royal authority was not a courtesy the factions extended at their pleasure. The decision had been real. The necessity had been real.
 
-But the machinery did not distinguish between the faction men he had meant to discipline and the scholars who happened to share a teacher's name. The apparatus read the examination registers the way an apparatus reads anything — without discrimination, without interest in what a man had actually believed or built. It found Song Si-yeol's name and followed it downward through every student, every seowon, every household that had received a letter from someone in his circle.
+But the machinery did not distinguish between the faction men he had meant to discipline and the scholars who happened to share a teacher's name. The purge read the examination registers without discrimination, without interest in what a man had actually believed or built. It found Song Si-yeol's name and followed it downward through every student, every seowon, every household that had received a letter from someone in his circle.
 
 Among the men it reached were the ones who had been keeping the Danjong cause alive.
 
-He had broken his own instrument.
-
 ---
 
-Was there another path?
+Sukjong stared at the report, then closed it.
 
-He could not have kept the Westerners in 1689. Song Si-yeol's defiance had been real. The factional pressure was structural. If Sukjong had not acted, the crown prince question would have consumed the court.
+He walked to his desk and took out a sheet of paper. At the top, he wrote: *Classification: Royal Eyes Only.*
 
-He could not have prevented the purge. The Southerners had waited years. When the gate opened, they walked through it.
+Below that, a list of decisions:
 
-He could, perhaps, have shielded the scholars who carried the Danjong cause. Separated them from the Westerner purge. Marked them as the king's own concern.
+*This report will not be copied. The original remains in the king's private files.*
 
-But that would have required admitting, in 1689, that the Danjong restoration existed as a royal project — that the king had a cause tied to the very network the Southerners were hunting. It would have exposed the restoration before it was ready. And it would have given the Southerners a weapon they would not have hesitated to use.
+*Inspector Yu will receive orders for the northern provinces. His mandate: assess surviving scholarly networks, but report findings verbally, not in writing.*
 
-Every direction had carried a cost. He had chosen the one he could see. The cost he could not see had fallen on the people he could not protect.
+*The provincial authorities who implemented the original purge will not be informed that their efficiency is being measured.*
+
+*If evidence of Danjong loyalist activity is found in the northern provinces, that evidence will be preserved but not acted upon until the restoration is ready to proceed.*
+
+*Minister Nam will be instructed to identify which current court officials have knowledge of scholarly networks. Those officials will be assigned to positions that limit their access to provincial intelligence.*
+
+He set the brush down and read the list. Each decision turned dead scholars into operational security. Each choice protected what remained by concealing the crown's interest in finding it.
+
+The restoration would proceed. But it would proceed without exposing anyone else to the system that had already consumed his people.
+
+He sealed the list and locked it in the same chest where the restoration formula waited.
 
 ---
 
 He thought about his grandmother. Not the words — the voice. The way she had spoken about Danjong as though the dead king were not history but a debt that gathered interest with every year it went unpaid.
 
-He understood now what she had been telling him. Not just that the debt existed. That it grew. That every year the kingdom delayed, the cost of settling it increased — and the cost of ignoring it increased faster.
 
 ---
 
@@ -74,4 +81,6 @@ The scholars who should have lived to see this were dead. The networks that shou
 
 That was the nature of royal authority. The king's name went on the order. The cost was absorbed by people whose names were no longer in any register.
 
-He sealed the document and set it beside the report. Two pages on the desk — the record of what had been destroyed and the decision to build from what remained.
+He sealed the document and set it beside the report. Two pages on the desk.
+
+---

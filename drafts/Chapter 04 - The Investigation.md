@@ -1,4 +1,4 @@
-# Chapter 4 -- The Investigation
+# Chapter 4 — The Investigation
 
 She had never met him. He had left the seowon five years before she arrived — a prodigy, Master Kim said, though he did not use the word with the warmth most teachers use for their best students. He used it the way a craftsman describes a tool that performs beyond specification: precisely, with respect, and with a faint undertone of something that was not quite caution but not quite comfort either.
 
@@ -16,7 +16,7 @@ They sat in Ok-sun's kitchen. The visit was social — a gift of dried persimmon
 
 She gave the name.
 
-Ok-sun's expression shifted — not recognition exactly, but the particular alertness of a woman who has heard a name in a context she is now trying to recall.
+Ok-sun's expression shifted — not recognition exactly, but alertness. She had heard the name in a context she was now trying to recall.
 
 "My husband's colleague mentioned him once. Song Si-yeol's student. Passed the examination very young." She paused. "No wife."
 
@@ -132,11 +132,11 @@ The warmth stopped.
 
 Lady Yoon looked at him. His face held nothing — no cruelty, no apology. He was being exact. He had needed a wife who would not need him. Someone with an interior life sufficient that his absences would not become grievances.
 
-She nodded, once, the way one acknowledges weather.
+She nodded, once.
 
 He picked up the document. She returned to the sleeve.
 
-The room was quiet and warm, and the distance between them was precisely the distance he had chosen. She understood now that it had been chosen, and that the choosing had been, in its way, a form of respect.
+The room was quiet and warm, and the distance between them was precisely the distance he had chosen.
 
 ---
 
@@ -180,7 +180,6 @@ She looked up. "You timed that."
 
 Yeong-hak did not lift his eyes from the page. "Of course."
 
-The answer was so unembarrassed that she felt the warmth of it more sharply than she felt the heat in her fingers.
 
 ---
 
@@ -223,3 +222,4 @@ Something shifted behind Master Kim's expression.
 She stood in the corridor with the lamp. Through the wall, fragments — not the conversation itself, but its edges. Her husband's voice, low and taut: "...the records in Yeongwol do not match..." Master Kim's voice, lower: "...they will not match. That is the point. The question is who else knows they do not match..."
 
 She did not enter. She did not leave. The lamp burned down. The voices continued. She waited.
+---

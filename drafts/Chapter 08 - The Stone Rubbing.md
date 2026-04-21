@@ -1,4 +1,4 @@
-# Chapter 8 -- The Stone Rubbing
+# Chapter 8 — The Stone Rubbing
 
 The problem revealed itself when Scholar Pak brought her a letter that made her stomach tighten.
 
@@ -49,3 +49,4 @@ She thought about the body that had come back from Wonju with clean hands and a 
 The rubbing was not in the archive because it did not yet exist. Her husband had been killed before he could make it.
 
 She folded the notes and placed them back in the compartment. The young man had said he would return too. He had not said when.
+---

@@ -1,4 +1,4 @@
-# Chapter 13 -- The Dead Man
+# Chapter 13 — The Dead Man
 
 Inspector Yu's second order arrived in the spring. The first assessment had been useful but incomplete. Yu wanted the ground verified: had the new appointments settled, were the provinces recovering or still frozen?
 
@@ -105,3 +105,5 @@ She adjusted the veil. She walked through the door without looking back.
 He closed the door. He walked back up the lane.
 
 He did not file a report that night. He sat in his room at the inn and looked at his hands and could still feel where the hold had been.
+
+---

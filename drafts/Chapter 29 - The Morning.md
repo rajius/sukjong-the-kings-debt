@@ -1,4 +1,4 @@
-# Chapter 29 -- The Morning
+# Chapter 29 — The Morning
 
 The second night was worse than the first.
 
@@ -106,7 +106,7 @@ She did not move her hand.
 
 They did not finish the routes.
 
-He withdrew his hand first. Not quickly — the way a man withdraws when he understands that the next moment is not his to take. He picked up the map, rolled it, and set it with the others.
+He withdrew his hand first. Not quickly. He picked up the map, rolled it, and set it with the others.
 
 "The arm," she said. "Let me check the wound."
 
@@ -125,3 +125,4 @@ Then she released the arm and stood.
 "Stay," she said.
 
 She closed the door.
+---

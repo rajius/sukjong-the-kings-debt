@@ -1,4 +1,4 @@
-# Chapter 18 -- Go Home
+# Chapter 18 — Go Home
 
 She sent word through Ok-sun's brother: an inn on the southern road, four days from now.
 
@@ -67,3 +67,5 @@ He set the bundle down.
 She stood. She picked up her travel bundle and settled it on her shoulder.
 
 She walked to the end of the corridor and turned the corner.
+
+---

@@ -1,4 +1,4 @@
-# Chapter 22 -- Busan
+# Chapter 22 — Busan
 
 He heard about Soonyi's marriage from Park Myeong-su, who mentioned it the way people mention weather that has already passed.
 
@@ -201,3 +201,5 @@ But someone in Inspector Yu's office mentioned the case to someone in the king's
 The name reached Sukjong's desk.
 
 It was not the first time.
+
+---

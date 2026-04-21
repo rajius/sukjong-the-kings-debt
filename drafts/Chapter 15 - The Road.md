@@ -1,4 +1,4 @@
-# Chapter 15 -- The Road
+# Chapter 15 — The Road
 
 The first of the two meetings she had promised was not a meeting at all in the formal sense. It was a road.
 
@@ -72,9 +72,11 @@ She smiled. Not the controlled, partial thing he had seen before. Full. Brief, b
 
 She watched the stream.
 
-"But he let me be myself the whole time," she whispered.
+"But he let me be myself the whole time," she whispered. The words caught slightly. "Though I think... I think he let me be myself partly because he couldn't be anything else with me. The work consumed him. It had to. There wasn't space for the kind of attention that would have... shaped me into something different."
 
-She had not said this to anyone. Not to Ok-sun. Not to Scholar Pak. Not in five years. She did not know why she was saying it now, to this man, by this stream, in the middle of an operation.
+She paused, surprised by the admission. "I was grateful for the freedom. But I was also lonely in it sometimes."
+
+She had not said this to anyone. Not to Ok-sun. Not to Scholar Pak. Not in five years. She had not even acknowledged it clearly to herself — that gratitude and loneliness could live in the same memory, that his best gift to her had grown from his deepest limitation.
 
 The stream moved over the stones. He filled the gourd. The water was cold.
 
@@ -85,3 +87,4 @@ The corner of her mouth moved.
 "You have no idea."
 
 They walked on. He carried the gourd the rest of the day. She did not ask him to. He did not offer.
+---

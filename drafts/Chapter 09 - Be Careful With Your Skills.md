@@ -1,4 +1,4 @@
-# Chapter 9 -- Be Careful With Your Skills
+# Chapter 9 — Be Careful With Your Skills
 
 ---
 
@@ -30,7 +30,7 @@ She knew two of them.
 
 She sat alone that evening in the study, the copied names in front of her, and thought about the capital.
 
-Not the capital as it was now — the machinery of investigation, the surveillance apparatus, the ministerial-level coordination that had just revealed itself through a misdirected letter. She thought about the capital as it had been. The years she had lived there with Yeong-hak, when the work was still scholarship and the danger was still theoretical and the evenings had a shape she had not known to value.
+Not the capital as it was now — the investigators, the surveillance networks, the ministerial-level coordination that had just revealed itself through a misdirected letter. She thought about the capital as it had been. The years she had lived there with Yeong-hak, when the work was still scholarship and the danger was still theoretical and the evenings had a shape she had not known to value.
 
 Every evening was the same. He would ask, and she would tell.
 
@@ -124,4 +124,6 @@ The fire took them all.
 
 When the last page had turned to ash, she sat in the kitchen for a long time. Scholar Pak's blanket was folded on the chair where she had left it that morning. The brazier was cooling. Outside, the frost had not yet lifted from the courtyard stones.
 
-The dead names had bought her a season. The women would buy her years.
+The dead names had bought her a season.
+
+---

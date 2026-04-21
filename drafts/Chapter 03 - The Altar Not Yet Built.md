@@ -1,4 +1,4 @@
-# Chapter 3 -- The Altar Not Yet Built
+# Chapter 3 — The Altar Not Yet Built
 
 The volume arrived without ceremony.
 
@@ -6,11 +6,35 @@ Sukjong found it on his private desk one morning, wrapped in plain silk. No note
 
 The binding was Chinese, the paper thin and yellowed. Ming imperial records, copied during the Wanli reign. He opened it to a page marked with a strip of red silk.
 
-*The restoration of Prince Jianwen to the imperial shrine, with full honors due a legitimate sovereign, in the thirty-first year of Wanli.*
+*The restoration of Prince Jianwen to the imperial shrine, with full honors due a legitimate sovereign, in the twenty-third year of Wanli.*
 
 Sukjong read the passage twice. Then he read the commentary that followed, written in a careful scholarly hand he did not recognize: *Though the Prince reigned briefly and died young, the Emperor Wanli recognized that legitimacy does not depend on duration. Both uncle and nephew had worn the dragon robes. Both could be acknowledged in the shrine. The altar grew larger to hold what had been divided.*
 
 He set the book down and stared at it for a long time.
+
+---
+
+The next morning, Sukjong summoned Scholar Pak, the court historiographer, for what appeared to be a routine consultation about ceremonial precedents.
+
+"I have been reading about Chinese imperial practices," Sukjong said, gesturing to several volumes on his desk. The Ming text was among them, but positioned as if it were one of many sources rather than the centerpiece. "The relationship between legitimacy and shrine placement. How does our court typically handle... complex succession questions?"
+
+Scholar Pak approached the desk cautiously. "Your Majesty refers to theoretical questions, or specific historical cases?"
+
+"Both. For instance, if an emperor wished to honor a predecessor whose reign had been... disputed, how might that be accomplished while preserving proper ritual order?"
+
+Sukjong watched Pak's eyes move across the volumes, settling briefly on the Ming text. The scholar's expression remained carefully neutral, but his hands clasped more tightly behind his back.
+
+"Such questions would require careful research," Pak said. "Historical precedents exist, but their application to our kingdom's particular circumstances would need thorough consideration."
+
+"Indeed. Perhaps you could identify which precedents might be most instructive? I should like to understand the range of options available to a king in such a position."
+
+"I will prepare a comprehensive assessment, Your Majesty."
+
+After Pak left, Sukjong waited. By the afternoon, he knew the scholar had visited three separate advisors before returning to his quarters. By evening, word had traveled to the Southern faction leadership. By the following morning, Minister Park's questions about "scholarly activities in the provinces" had taken on new urgency.
+
+Sukjong had not revealed his intentions. He had simply asked about precedents. But the question had been enough to activate every network that feared what those precedents might justify.
+
+Now he knew who was watching. And they knew he was considering options they could not control.
 
 ---
 
@@ -102,6 +126,5 @@ He thought of his twenty-year-old self, arguing with Nam Guman over a single syl
 
 He set the brush down. His hand shook slightly.
 
-He had become the voice that said *not yet.* 
-
 He sealed the document and placed it in the wooden chest where it would wait.
+---

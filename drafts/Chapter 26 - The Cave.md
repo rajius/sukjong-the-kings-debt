@@ -1,4 +1,4 @@
-# Chapter 26 -- The Cave
+# Chapter 26 — The Cave
 
 They heard the voices before they reached the valley floor.
 
@@ -110,8 +110,6 @@ She did not answer for a long time.
 
 "I kept everything. After he died, the records were the only part of his work that could still be completed. I moved them when the Southerners began searching. I have been maintaining them since."
 
-The dark between them was no longer operational. It was the dark of two people realizing they have been working the same cause from opposite sides of a wall neither could see through.
-
 "The king sent me to find those records," he said.
 
 Her breathing changed.
@@ -142,9 +140,13 @@ Her hands remained on his arm. He could feel her processing — not the informat
 
 "Why?"
 
-He did not answer immediately. The honest answer was not operational. It was not strategic. It was the thing that had been true since the stream south of Jecheon, since the mill, since the corridor where she had put the sun behind her and told him to go home.
+He did not answer immediately. The honest answer had several parts, and he was not certain which was strongest.
 
-"Because it was yours," he said.
+"Because it was yours," he said finally. "Because reporting it would have destroyed something real. And because..." He paused. "Because I was not ready to hand you over to the machinery I serve."
+
+The last admission surprised him. He had not planned to voice it, but once spoken, he recognized its truth. He had known, from the moment he understood what she had built, that formal channels would reduce her network to names on arrest warrants. That was how the system processed information — by converting it into actionable intelligence, regardless of what such action would eliminate.
+
+He had chosen to protect her from that machinery, but he had also chosen to benefit from her work without exposing her to the consequences. The choice had not been pure. It had served his investigation, his growing understanding of her, and his reluctance to see her become another casualty of proper procedure.
 
 ---
 
@@ -180,4 +182,4 @@ She was no longer sure what that word meant.
 
 She sat with this until the first grey light came through the crack and the birds outside began. She did not wake him. She let his weight stay where it was.
 
-That was the first thing she had allowed herself in three years.
+---

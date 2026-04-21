@@ -1,4 +1,4 @@
-# Chapter 31 -- The Choice
+# Chapter 31 — The Choice
 
 Yi Hwon crouched beside the memorial tablet in the darkness, holding his lamp close to the weathered stone. The characters were there — Eom Heung-do's name, carved exactly as Yeong-hak's rubbing had recorded it. The seventh site verified. Three more to go in this county.
 
@@ -142,11 +142,19 @@ These costs were real. She had chosen to pay them.
 
 ---
 
-After the ceremony, Yi Hwon wrote to his family.
+After the ceremony, Yi Hwon sat at the desk where Yeong-hak had written the records that would restore Danjong. The irony was inescapable and sharp.
 
-The letter was brief. He had married a widow of good family in the provinces. His assignment would conclude within the month. He expected reassignment to the capital by spring.
+He was writing to his family to announce a marriage made possible by his service to the crown. The same crown whose apparatus had identified Yeong-hak as a Westerner sympathizer. The same system that had read the examination registers, followed Song Si-yeol's name downward, and reached the scholars who were keeping the Danjong cause alive.
 
-He did not explain the haste. He did not mention the pregnancy. As long as Yu handled the legal corrections, his family's approval was a secondary consideration.
+Including the man whose desk he now occupied. Whose wife he had just married.
+
+Yi Hwon set his brush down and stared at the half-finished letter. He was getting what he wanted—meaningful work, a woman whose mind matched his own, a life that felt real rather than performed. But he was getting it through service to the machinery that had destroyed her first chance at such a life.
+
+The system that had killed Yeong-hak was now regularizing Yi Hwon's marriage to his widow. The apparatus that had eliminated the scholar was now legitimizing the inspector's claim to his research and his household.
+
+He picked up the brush again, finished the letter with the necessary facts. His family would receive their notification. Yu would handle the administrative corrections. The mechanisms would operate smoothly.
+
+But the discomfort would not resolve. He could serve justice through contaminated machinery, but he could not serve it cleanly. Every benefit the system provided came weighted with the knowledge of what it had already taken away.
 
 He sealed the letter and set it aside. The important correspondence was complete.
 
@@ -162,11 +170,7 @@ Yi Hwon read the letter once and set it aside. The family would do what duty req
 
 That night she lay in the dark, his hand in hers, and thought about what had changed and what had not.
 
-The work her husband had started would finally reach the king. The network that had preserved it would survive, restructured but intact. The life they were building would unfold under a different name, in a different place, but it would be theirs to shape.
-
-She pressed his hand gently. Eight years of carrying the cause alone were ending. The mission was transferring to hands she trusted. The life was beginning with a man she had chosen.
-
-The work would continue. The form was changing.
+She pressed his hand.
 
 ---
 
@@ -179,3 +183,4 @@ Lady Yoon watched him disappear down the path toward the main road. When the mis
 The records would survive on both paths. And when they succeeded, their new life could truly begin.
 
 She closed the door and began preparing for the household she would soon leave behind.
+---

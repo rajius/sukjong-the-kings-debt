@@ -1,4 +1,4 @@
-# Chapter 11 -- The Queen Restored
+# Chapter 11 — The Queen Restored
 
 The evidence arrived before dawn on a gray morning in autumn.
 
@@ -26,19 +26,27 @@ Sukjong studied the documents again. The language was too crude, the political a
 
 Sukjong walked to the window. Five years earlier, he had eliminated Westerner opposition to preserve royal prerogative. That had created the political vacuum that allowed the Southerners to attempt this fabrication.
 
-"Prepare orders for Minister Mok's arrest," Sukjong said. "And summons for the Westerner leaders to return to court."
+"We have a problem of language," he said finally. "If I simply reverse the purge, I appear reactive. If I arrest the fabricators, I appear vindictive. Either approach makes the crown look unstable."
 
-Nam was quiet for a moment. "Majesty, that will constitute a complete reversal of the political arrangement established five years ago."
+Nam waited.
 
-"Yes."
+"Instead, the issue will be procedural corruption." Sukjong turned from the window. "Minister Mok and his associates have compromised the integrity of the investigative process. The crown cannot permit administrative fraud, regardless of which faction benefits. The reversal becomes a defense of proper governance, not factional preference."
 
-"The Southerners will not accept removal quietly. And the Westerners who return will not be the same men who were purged. Song Si-yeol is dead. The networks have been broken. What returns will be fragments, not the coherent faction that was eliminated."
+"And the Westerners' return?"
 
-Sukjong understood. The restoration would not restore what had been destroyed. It would simply create new forms of division, new sources of instability, new reasons for the court to distrust royal judgment.
+"Invited to resume participation in government as part of restoring administrative balance disrupted by fraudulent evidence. Not a political reward, but a correction of an injustice that was based on false documentation." Sukjong considered the language carefully. "The decree will note that the crown has a responsibility to ensure that all political decisions are based on verified evidence, not manufactured accusations."
 
-But the alternative was to permit fabricated evidence to determine policy. That would establish a precedent far more dangerous than political instability.
+Nam nodded slowly. "That frames the Southerners as having betrayed the administrative system rather than simply losing a factional struggle."
 
-"Issue the orders."
+"Exactly. And it positions my decision as procedural necessity rather than royal preference. The court cannot argue with administrative integrity without appearing to endorse fraud." Sukjong paused. "There is one more element. The investigation into the fabrication will be conducted by ministers from both factions working together. That forces cooperation and makes the conclusion appear consensual rather than imposed."
+
+"The Southerners will recognize the manipulation."
+
+"Of course. But they cannot oppose it without admitting they prefer manufactured evidence to verified facts. The position becomes politically indefensible." Sukjong moved to his desk. "Draft the orders using this framework. I want the language to be precise. Every phrase should serve the procedural narrative while achieving the political result."
+
+Nam bowed. "As Your Majesty commands."
+
+"And Minister? When you announce this to the court, emphasize that the crown's commitment to verified evidence protects all factions from false accusations. That makes the reversal appear protective rather than punitive."
 
 ---
 
@@ -72,7 +80,7 @@ Lady Jang Hui-bin was not dismissed. She remained in the palace, her status redu
 
 Sukjong understood that he had created a situation where two queens occupied the same palace, neither comfortable, both aware that their positions depended on his ability to balance competing claims without resolving them permanently.
 
-The machinery of restoration operated efficiently. The human consequences remained where they had been left by five years of separation and uncertainty.
+The restoration operated efficiently. The human consequences remained where five years of separation had left them.
 
 ---
 
@@ -101,3 +109,4 @@ Sukjong walked to the wooden chest and opened it. The formula was where he had l
 He left the chest open.
 
 "Send the order to Yu tonight."
+---

@@ -1,4 +1,4 @@
-# Chapter 2 -- The Teacher's Student
+# Chapter 2 — The Teacher's Student
 
 She learned to pause at the right length.
 
@@ -92,7 +92,7 @@ Master Kim returned the next day. He listened to the account from the cook. He s
 
 "You need to marry," he said.
 
-She had expected this. She had been expecting it since the gate, since Cho's parting words, since the moment she understood that the threat was not about Cho at all but about the structural fact of what she was: unprotected, unattached, available to be defined by anyone with enough standing to make the definition stick.
+She had expected this. She had been expecting it since the gate, since Cho's parting words.
 
 "I know," she said.
 
@@ -103,3 +103,5 @@ She had expected this. She had been expecting it since the gate, since Cho's par
 Master Kim looked at her the way he had looked at her when she asked about the Zuozhuan — measuring, recalculating, arriving at a conclusion he had not expected to reach this quickly.
 
 "I have a former student," he said. "In the capital."
+
+---
