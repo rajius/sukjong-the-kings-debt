@@ -2,6 +2,8 @@
 
 Lady Jang Hui-bin would be elevated to queen. Her son would remain crown prince. Queen Inhyeon would be stripped of her title and exiled from court.
 
+The Gisa Hwanguk — the reversal of 1689.
+
 ---
 
 Sukjong stood at the window of the council chamber, watching the afternoon light shift across the palace grounds. Behind him, Chief Minister Min Jeong-jung waited with the list.

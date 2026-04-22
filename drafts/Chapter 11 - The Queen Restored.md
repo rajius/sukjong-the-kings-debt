@@ -1,6 +1,6 @@
 # Chapter 11 — The Queen Restored
 
-The evidence arrived before dawn on a gray morning in autumn.
+Five years after the Hwanguk, the evidence arrived before dawn on a gray morning in autumn.
 
 Sukjong read the documents in his private study while Nam Guman waited in silence. The papers were convincing: correspondence between young Noron scholars, meeting schedules, fragments of plans to restore Queen Inhyeon through coordinated pressure on the throne. The kind of factional conspiracy that had justified the previous purge.
 

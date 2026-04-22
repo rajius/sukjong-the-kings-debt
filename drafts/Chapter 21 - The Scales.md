@@ -96,31 +96,7 @@ She had been watching this happen for two years.
 
 ---
 
-She went to her father's cousin first.
-
-Auntie Jeong had been married for thirty years. She had raised four sons and managed a household through two changes of husband's posting. She knew marriages.
-
-Soonyi did not say "I think he has changed." She said: "He has become very serious about his work. He reads constantly. He has stopped coming to dinners."
-
-Auntie Jeong poured tea.
-
-"Men change when their careers change," she said. "He has royal notice now. The pressure increases. He is building himself into something. Let him build."
-
-"And the distance?"
-
-"Distance is not absence. He is still carrying your handkerchief, is he not?"
-
-Soonyi nodded.
-
-"Then give him time. A man who carries a woman's cloth has not forgotten her. He has only become busy."
-
-Soonyi went home. It helped for a week.
-
----
-
-The matchmaker was a woman named Mrs. Bae who lived in the next district and who read couples the way Soonyi's father read contracts — for what was written and for what was not.
-
-Soonyi did not ask about Yi Hwon directly. She described the situation as a friend's problem — a common courtesy that Mrs. Bae saw through immediately and did not acknowledge.
+The matchmaker was Mrs. Bae. She read couples the way Soonyi's father read contracts — for what was written and for what was not.
 
 "He is harming you," Mrs. Bae said.
 
@@ -128,47 +104,13 @@ Soonyi's hands went still. "He has not—"
 
 "Has not refused you outright, no. Has not broken the arrangement, no. Has not said anything that would give your father grounds for complaint." Mrs. Bae's voice was matter-of-fact. "But he is keeping you available while remaining unavailable himself. You cannot pursue other arrangements while he delays his decision. You cannot plan your life while he considers his options."
 
-"A man who truly intended to marry would not leave you suspended this way," Mrs. Bae continued. "A man who truly intended to refuse would give you clear grounds to move forward. Your young inspector is doing neither. He is benefiting from having you held in reserve while he explores what else might become available to him." 
-
 Mrs. Bae folded her hands. "That is not passive politeness, child. That is active selfishness."
 
-Soonyi walked home slowly.
-
 ---
 
-The mudang lived outside the city walls, in a house that smelled of incense and old paper.
+The service was mentioned at a reception — two women near the garden wall, speaking about a woman who helped with difficult questions. Not a matchmaker. Not a fortune teller. Someone who found things.
 
-Soonyi had never been to a shaman. She had been raised by a merchant father who trusted scales and ledgers and who regarded spiritual counsel the way he regarded unsecured loans — with deep suspicion.
-
-She went because she had exhausted every other explanation.
-
-The mudang did not ask many questions. She held Soonyi's hands, closed her eyes, and was quiet for a long time.
-
-"His spirit is divided," the mudang said. "Part of him is somewhere else."
-
-"Where?"
-
-"It left before he knew it left. He did not choose to send it. It was called."
-
-Soonyi paid and walked home in the dark. She told herself the shaman was guessing. She told herself anyone could say "his spirit is divided" about any man who seemed distant. She told herself it was a trick of the trade, a statement vague enough to fit any situation.
-
-She could not stop hearing it.
-
----
-
-The service was mentioned at a reception she attended with her father — an evening at a senior official's household, the kind her family's money bought access to.
-
-Two women were speaking near the garden wall. Soonyi was close enough to hear because she was always close enough to hear — she had learned to stand at the right distance in rooms where she was welcome for her father's money and tolerated for her family's name.
-
-"— a woman who helps with difficult questions. Not a matchmaker. Not a fortune teller. Someone who understands how to find things."
-
-"What kind of things?"
-
-"The kind you cannot ask about openly."
-
-Soonyi waited. The women moved on. She found the first woman the next day and asked, as casually as she could manage, about the service.
-
-The referral took three weeks. The meeting took two more.
+The referral took three weeks.
 
 ---
 
@@ -188,25 +130,17 @@ She hated it because it was not an answer. It was an instruction. And the instru
 
 ---
 
-She took a long time.
-
-She went back to Auntie Jeong's reassurance: he is building himself. She went back to Mrs. Bae's diagnosis: a man who has not decided will be polite. She went back to the mudang: his spirit is somewhere else.
-
-She cycled through them. Looking for the version that did not end with another woman. Looking for the reading where the scholarly turn was professional growth, where the distance was career pressure, where the stare at the garden party was nothing.
+She took a long time. She cycled through Mrs. Bae's diagnosis, looking for the version that did not end with another woman.
 
 But the instruction kept working. Connect the dots.
 
-The woman at the reception. The one in white, her back to them, standing near the gate. His face — not desire, something worse. Recognition.
+The woman at the reception. The one in white, standing near the gate. His face — not desire, something worse. Recognition.
 
-The scholarly turn. Texts he had never cared about. Read the way he trained: methodically, without shortcuts. The discipline of a man becoming adequate to something.
-
-Not a provincial woman. Not a court woman. Not anyone who moved through the rooms Soonyi knew.
+The scholarly turn. Texts he had never cared about. The discipline of a man becoming adequate to something.
 
 Someone whose weight did not register on any scale she had been taught to use.
 
-She could not prove it. She could not argue it. She could only hold the two things together and feel the shape they made.
-
-Once she accepted the possibility — not as certainty, but as something she could no longer keep out of the frame — the question formed itself.
+She could not prove it. She could only hold the two things together and feel the shape they made.
 
 ---
 

@@ -1,6 +1,6 @@
 # Chapter 20 — The Report
 
-The report arrived through Inspector Yu's channel in the tenth month, carried by a courier who did not know what he was carrying.
+Two years after the queen's return, the report arrived through Inspector Yu's channel in the tenth month, carried by a courier who did not know what he was carrying.
 
 No name on the cover page. Inspector Yu's reports never carried the field investigator's name — the findings arrived clean, stripped of attribution, so the king could read them without the politics of who had gathered them. Sukjong did not need the name. He recognized the method. The findings were too precise, the provincial routes too carefully traced, for routine surveillance. This was someone who had walked the roads himself.
 

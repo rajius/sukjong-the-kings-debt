@@ -1,8 +1,8 @@
 # Chapter 3 — The Altar Not Yet Built
 
-The volume arrived without ceremony.
+The volume arrived without ceremony, in the fifteenth year of Sukjong's reign.
 
-Sukjong found it on his private desk one morning, wrapped in plain silk. No note. Only the placement that meant a trusted intermediary had delivered what someone thought the king should see.
+He found it on his private desk one morning, wrapped in plain silk. No note. Only the placement that meant a trusted intermediary had delivered what someone thought the king should see.
 
 The binding was Chinese, the paper thin and yellowed. Ming imperial records, copied during the Wanli reign. He opened it to a page marked with a strip of red silk.
 
