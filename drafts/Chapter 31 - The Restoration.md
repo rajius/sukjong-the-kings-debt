@@ -1,4 +1,4 @@
-# Chapter 32 — The Restoration
+# Chapter 31 — The Restoration
 
 The records arrived at Inspector Yu's office in the eleventh month, carried by the inspector who had been sent to find them.
 

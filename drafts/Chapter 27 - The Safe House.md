@@ -1,4 +1,4 @@
-# Chapter 28 — The Safe House
+# Chapter 27 — The Safe House
 
 The house was half a day south of the ridge, set back from the road behind a stand of persimmon trees. A farmhouse to anyone passing — low walls, thatched roof, a kitchen garden along the south side. Nothing that announced itself.
 

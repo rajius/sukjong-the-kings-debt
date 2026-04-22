@@ -1,4 +1,4 @@
-# Chapter 22 — Busan
+# Chapter 21 — Busan
 
 He heard about Soonyi's marriage from Park Myeong-su, who mentioned it the way people mention weather that has already passed.
 

@@ -1,4 +1,4 @@
-# Chapter 33 — The Procession
+# Chapter 32 — The Procession
 
 Sukjong read the morning reports at his desk, but his attention kept drifting to the restoration decree filed among the completed business. Three months since the announcement, and the responses were arriving exactly as he had anticipated.
 

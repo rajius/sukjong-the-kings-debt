@@ -1,4 +1,4 @@
-# Chapter 31 — The Choice
+# Chapter 30 — The Choice
 
 Yi Hwon crouched beside the memorial tablet in the darkness, holding his lamp close to the weathered stone. The characters were there — Eom Heung-do's name, carved exactly as Yeong-hak's rubbing had recorded it. The seventh site verified. Three more to go in this county.
 

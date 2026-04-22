@@ -1,4 +1,4 @@
-# Chapter 25 — The Tripwire
+# Chapter 24 — The Tripwire
 
 The report came through Ok-sun's brother on a market day.
 

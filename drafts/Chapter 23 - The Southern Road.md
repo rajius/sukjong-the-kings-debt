@@ -1,4 +1,4 @@
-# Chapter 24 — The Southern Road
+# Chapter 23 — The Southern Road
 
 Inspector Yu handed him the pouch himself.
 

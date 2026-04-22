@@ -1,4 +1,4 @@
-# Chapter 30 — The Records
+# Chapter 29 — The Records
 
 The burial records arrived on the third day.
 

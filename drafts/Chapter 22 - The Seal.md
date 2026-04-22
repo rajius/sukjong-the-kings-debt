@@ -1,4 +1,4 @@
-# Chapter 23 — The Seal
+# Chapter 22 — The Seal
 
 The court was splitting. Not yet dangerous, not yet stable.
 
