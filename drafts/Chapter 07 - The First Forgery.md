@@ -34,7 +34,7 @@ She wrote back as Yeong-hak. The reply was polite, regretful: her husband's rese
 
 If Scholar Woo was still there, the contact would reach a safe node and the inquiry would survive. If Woo was gone, the letter would arrive at an empty address and die quietly. If the seowon had been compromised, the damage would fall on a connection Lady Yoon had never used and could not be traced back to her.
 
-Each redirection was a gamble. She did not know the odds. She only knew they were better than answering the question herself.
+Each redirection was a gamble with better odds than answering the question herself.
 
 This was not a system. It was triage.
 
@@ -50,7 +50,7 @@ She had asked Scholar Pak to delay the formal announcement of Master Kim's death
 
 But delay was not erasure. A visiting scholar from Chungju had already asked after Master Kim's health. A letter of condolence had arrived from a former student in Jeonju who had heard the news through family channels. Each one was a crack. Each crack shortened the time before a distant correspondent realized that the letter he had received last month from Master Kim had been written by a dead man.
 
-She counted the cracks. She did not yet know how many it would take.
+She counted the cracks.
 
 ---
 
@@ -117,4 +117,3 @@ One night, grinding ink past midnight for the second version of a letter Scholar
 She stared at the page. Her hands ached. The blanket Scholar Pak had left was around her shoulders. Outside, the first frost had come.
 
 She burned the page and started again.
----

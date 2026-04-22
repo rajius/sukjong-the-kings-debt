@@ -100,8 +100,6 @@ She looked at him. The lamplight was honest. She could see everything in his fac
 
 "We should finish the routes," she said.
 
-She did not move her hand.
-
 ---
 
 They did not finish the routes.
@@ -125,4 +123,3 @@ Then she released the arm and stood.
 "Stay," she said.
 
 She closed the door.
----

@@ -86,7 +86,7 @@ And there was a small, dark mark on his neck that looked like a bruise from pres
 
 She thanked the men who had brought him home. She made the proper arrangements for burial. She received the condolences of neighbors and prepared the household for mourning. She did everything that was expected of a widow who had received the body of her husband.
 
-That night her body did something that felt both familiar and wrong. Something deeper than exhaustion, more final than grief, accompanied by a wetness that was not tears. She did not attribute this to grief. She washed and changed her clothes and slept badly.
+That night her body did something that felt both familiar and wrong. Something deeper than exhaustion, more final than grief, accompanied by a wetness that was not tears. She washed and changed her clothes and slept badly.
 
 And at night, alone with the certainty that everything she had been told was a lie.
 
@@ -144,7 +144,7 @@ Nothing more. No names. No clear meaning.
 
 Master Kim seemed to have trouble focusing. "There was... someone asked about him. Before. But I cannot..." He rubbed his temples. "The fever took much."
 
-They sat in silence. The fragment told her nothing useful.
+The fragment told her nothing useful.
 
 "I have arranged... Scholar Pak will come for the seowon. I told him you manage the practical matters. You will have a place. Cover."
 
@@ -159,6 +159,3 @@ After he left, Lady Yoon sat alone in the main room.
 She held the fragment, reading the few visible characters again. *...capital... urgent...* It was not enough to build on.
 
 She folded it and placed it in the desk where Yeong-hak had kept his most dangerous documents.
-
-Scholar Pak would come within the month. She would have cover. But that would only keep her safe if she could learn to be someone who posed no threat to anyone.
----

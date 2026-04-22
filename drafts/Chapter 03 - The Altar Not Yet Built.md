@@ -58,9 +58,9 @@ Nam Guman arrived the following month, travel-worn and carrying news that showed
 
 Sukjong placed the Chinese volume on the desk between them. "Then they should have the answer."
 
-Nam read the marked passage, his expression growing more troubled with each line. When he finished, he closed the book and was quiet for a long time.
+Nam read the marked passage, his expression growing more troubled with each line. When he finished, he closed the book.
 
-"This is exactly what they will not permit," he said finally.
+"This is exactly what they will not permit," he said.
 
 "Because?"
 
@@ -75,8 +75,6 @@ Sukjong had been expecting this. Nam's sources were better than the court's goss
 "And Jang Hui-bin?"
 
 Nam's expression tightened almost imperceptibly. "The queen's favor continues to decline."
-
-They sat in silence.
 
 So we have the moral foundation and the precedent.
 
@@ -127,4 +125,3 @@ He thought of his twenty-year-old self, arguing with Nam Guman over a single syl
 He set the brush down. His hand shook slightly.
 
 He sealed the document and placed it in the wooden chest where it would wait.
----

@@ -78,8 +78,6 @@ She studied him — closer than the memorial, closer than across a courtyard.
 
 "The desk was searched by someone who knew what they were looking for. The document case was opened from the inside — he gave them what they wanted before he died. The papers were burned one piece at a time. No visible wound." He paused. "And you are still here. Which means you arrived after whoever killed him, and you are looking for what they did not find."
 
-She was quiet for a moment.
-
 "Or," she said, "I arrived before."
 
 Neither of them moved.
@@ -105,5 +103,3 @@ She adjusted the veil. She walked through the door without looking back.
 He closed the door. He walked back up the lane.
 
 He did not file a report that night. He sat in his room at the inn and looked at his hands and could still feel where the hold had been.
-
----

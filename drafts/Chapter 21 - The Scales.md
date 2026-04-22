@@ -1,6 +1,6 @@
 # Chapter 21 — The Scales
 
-His mother arrived on the first day of the month, unannounced, carrying a cloth bundle of barley cakes and a purpose she did not immediately state.
+His mother arrived on the first day of the month, unannounced, carrying a cloth bundle of barley cakes.
 
 She sat in his quarters and looked at the desk. The texts. The notes. The brush set.
 
@@ -128,8 +128,6 @@ Soonyi's hands went still. "He has not—"
 
 "Has not refused you outright, no. Has not broken the arrangement, no. Has not said anything that would give your father grounds for complaint." Mrs. Bae's voice was matter-of-fact. "But he is keeping you available while remaining unavailable himself. You cannot pursue other arrangements while he delays his decision. You cannot plan your life while he considers his options."
 
-Soonyi was quiet.
-
 "A man who truly intended to marry would not leave you suspended this way," Mrs. Bae continued. "A man who truly intended to refuse would give you clear grounds to move forward. Your young inspector is doing neither. He is benefiting from having you held in reserve while he explores what else might become available to him." 
 
 Mrs. Bae folded her hands. "That is not passive politeness, child. That is active selfishness."
@@ -249,7 +247,3 @@ Without thinking. Three words. He knew the other woman well enough to answer on 
 Soonyi looked at him for a long time. He did not look away.
 
 She stood. She straightened her skirt. She walked to the door.
-
-Soonyi married the following year.
-
----

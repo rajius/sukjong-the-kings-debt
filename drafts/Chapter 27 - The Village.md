@@ -140,7 +140,7 @@ Yi Hwon picked it up. The man did not move.
 
 ---
 
-The trail was quiet. Blood ran down Yi Hwon's forearm and dripped from his fingers onto the dry ground.
+Blood ran down Yi Hwon's forearm and dripped from his fingers onto the dry ground.
 
 Lady Yoon was against the opposite rock face. She had not fallen — she had been pulled off balance and caught herself, one hand on the stone. She was looking at his arm.
 
@@ -179,11 +179,3 @@ She removed them. She stood. She checked the man on the ground — unconscious, 
 She took the trail again. He followed. She did not adjust her speed for his wound. She walked fast, arms tight, face forward.
 
 He kept up. The blood soaked through the cloth and dried against his skin.
-
-They did not speak for the rest of the walk. They did not need to. Something had changed on the trail behind them — at the rock, at the blade, at the one second that had separated his arm from her body.
-
-She was no longer the woman who had stood in a corridor with the sun behind her and sent him home. She did not yet know what she was instead.
-
-But the woman from the corridor — the one who calculated every cost, who named Soonyi because Soonyi was the easiest thing to say, who protected herself from a transformation she did not trust — that woman had ended at the rock. One second. One arm. The arithmetic she had lived by for three years no longer produced a result she could use.
-
----

@@ -1,7 +1,5 @@
 # Chapter 9 — Be Careful With Your Skills
 
----
-
 The letter that ended the forgeries arrived three weeks after the young man's visit.
 
 Two letters came on the same morning. The first was routine — an inquiry about genealogical records from a scholar in Andong, addressed to Master Kim. Lady Yoon prepared her usual careful reply.
@@ -42,7 +40,7 @@ So she did. She told him about the price of barley at the eastern market and the
 
 He never commented. He ate. He listened the way a man reads a letter he expects to be routine — scanning for the one line that isn't.
 
-Most nights there was no such line, and when she finished, he would nod and return to his papers. She understood, without being told, that what she provided was not gossip. It was texture. He lived in the world of documents and official correspondence. She lived in the world of what people actually did, which was not always the same thing.
+Most nights there was no such line, and when she finished, he would nod and return to his papers. What she provided was not gossip. It was texture. He lived in the world of documents and official correspondence. She lived in the world of what people actually did, which was not always the same thing.
 
 She did not mind. The ritual gave shape to her days. She began, without fully realizing it, to move through the town with a listener's attention — not seeking, but receiving. Who was nervous. Who had new fabric. Whose servants had been dismissed. She gathered these things the way moss gathers rain: passively, thoroughly, and without apparent effort.
 
@@ -65,8 +63,6 @@ She paused to refill his bowl.
 "I didn't tell her what it meant. I just placed the two things next to each other. She's intelligent. She could see it herself — that her brother's office was likely under review by a new superior, and that the changes were significant enough to affect even the local school. I thought it would ease her worry to know at least the shape of what was happening, even if the details were unclear."
 
 She continued with the rest of the day's account — the draper's new stock from the capital, the rumor that the ferry crossing would be closed for repairs. Small things. Ordinary texture.
-
-When she finished, the room was quiet.
 
 She looked at him. He had stopped eating. His chopsticks rested across the bowl, and he was watching her with an expression she had not seen before. Not anger. Not admiration. Something closer to recognition — as though he were seeing a tool he had been holding for years and only now understanding what it was made for.
 
@@ -98,9 +94,7 @@ She never heard four better ones.
 
 ---
 
-Now, sitting in the study with Scholar Yi's copied names in front of her, Lady Yoon understood what the investigators were looking for and what they would never think to find.
-
-They were looking for scholarly correspondence. Documented connections. Formal channels. Men writing to men about research that could be traced, catalogued, and prosecuted.
+Now, sitting in the study with Scholar Yi's copied names in front of her, The investigators were looking for scholarly correspondence. Documented connections. Formal channels. Men writing to men about research that could be traced, catalogued, and prosecuted.
 
 They were not looking for a woman who had learned, over years of evening reports and magistrate's-wife gatherings and ordinary conversations about barley, to place two facts next to each other and let someone else see the shape they made.
 
@@ -123,7 +117,3 @@ Master Kim's formal courtesy. Yeong-hak's angular precision. Scholar Min's class
 The fire took them all.
 
 When the last page had turned to ash, she sat in the kitchen for a long time. Scholar Pak's blanket was folded on the chair where she had left it that morning. The brazier was cooling. Outside, the frost had not yet lifted from the courtyard stones.
-
-The dead names had bought her a season.
-
----

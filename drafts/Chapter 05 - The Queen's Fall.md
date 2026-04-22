@@ -76,7 +76,7 @@ That evening, he worked later than usual. She heard him moving between study and
 
 "Song Si-yeol is dead."
 
-The words were simple, but they carried weight she immediately understood. Song Si-yeol—the teacher's teacher, the man whose intellectual lineage connected to everything her husband did.
+Song Si-yeol—the teacher's teacher, the man whose intellectual lineage connected to everything her husband did.
 
 "When?"
 
@@ -133,6 +133,3 @@ When he worked late, she ground his ink and trimmed his brushes as always. When 
 ---
 
 That night Lady Yoon lay awake in the dark. Beside her, Yeong-hak breathed with the even rhythm of sleep.
-
-She knew what he knew.
----

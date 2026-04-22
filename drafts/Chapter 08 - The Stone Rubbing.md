@@ -40,13 +40,10 @@ But they had survived — in stone, in a location Yeong-hak had visited and docu
 
 He had been planning to go back.
 
-Lady Yoon sat in the dark study holding her husband's notes. She understood now what the young man had been asking about and why he had been disappointed by her reply. Someone else knew the rubbing existed — or knew that Yeong-hak had been trying to make one. The young man had come to the seowon expecting to find the completed rubbing in Master Kim's collection. He had not found it because it was not there. Yeong-hak had not lived long enough to complete it.
+Lady Yoon sat in the dark study holding her husband's notes. Someone else knew the rubbing existed — or knew that Yeong-hak had been trying to make one. The young man had come to the seowon expecting to find the completed rubbing in Master Kim's collection. He had not found it because it was not there. Yeong-hak had not lived long enough to complete it.
 
 She read his notes again. The handwriting was steady in the first pages, more hurried near the end. The final entry was a list of materials he would need for the second visit: heavy paper, ink blocks, a mallet, cloth for padding. The list of a man who expected to return.
 
 She thought about the body that had come back from Wonju with clean hands and a mark on the neck. The body of a man who had been mapping the evidence the state wanted erased. Who had found the stone the state had ordered destroyed. Who had been planning to bring back the proof.
 
-The rubbing was not in the archive because it did not yet exist. Her husband had been killed before he could make it.
-
 She folded the notes and placed them back in the compartment. The young man had said he would return too. He had not said when.
----

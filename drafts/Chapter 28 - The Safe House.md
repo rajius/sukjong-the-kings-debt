@@ -131,5 +131,3 @@ But she could not stay inside it.
 She caught herself looking at his hands instead of the map. At the wrapping on his arm. At the place where his robe met his collarbone. She caught herself and returned to the document. She caught herself again.
 
 By midday she had stopped catching herself.
-
----

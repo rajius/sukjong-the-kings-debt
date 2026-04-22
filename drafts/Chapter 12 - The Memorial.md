@@ -76,7 +76,7 @@ He rode south in plain clothes, carrying nothing that proved who he was. The ord
 
 He stopped at inns. He listened. He bought silk thread from a market woman and asked, casually, whether business had been steady. She told him about three families that had received polite visitors in the past month. He noted the names. He did not write them down where the inn keeper might find the paper.
 
-By the time he reached the county where the memorial was to be held, he had a small mental map of where the silence was thickest and where the watching was. He had seen no investigators. He had seen the absence of investigators in places where investigators had been. He understood that this was the same thing.
+By the time he reached the county where the memorial was to be held, he had a small mental map of where the silence was thickest and where the watching was. He had seen no investigators. He had seen the absence of investigators in places where investigators had been. It was the same thing.
 
 ---
 
@@ -97,8 +97,6 @@ One of the widows was managing the room.
 He did not see it at first. She was not doing anything visible — she was standing near a table where the tea was being prepared, speaking quietly to another woman, occasionally adjusting the placement of a cup or a folded cloth. Nothing that would draw attention.
 
 But the room moved around her in a way that did not match her position. A wealthy donor's wife approached the tea table with a complaint that looked, from a distance, as if it might become a scene. The widow stepped forward, said three or four words, touched the donor's wife lightly on the elbow, and the situation resolved without anyone in the courtyard noticing that it had been a situation. The donor's wife laughed at something. The tea continued. The widow returned to her position by the cups.
-
-Yi Hwon watched this and understood that he had just seen a piece of professional work.
 
 He looked at her properly then.
 
@@ -139,7 +137,3 @@ She had no name the scholar offered, or no name he chose to offer. And which seo
 Yi Hwon stayed through the second day of the ceremony out of professional habit. He noted who attended and who did not. He sent the list to Yu by trusted courier from a town two days' ride south.
 
 He did not include the widow. He was not yet sure what he would have written if he had.
-
-He had not finished looking.
-
----

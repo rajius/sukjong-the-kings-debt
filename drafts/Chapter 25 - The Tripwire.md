@@ -40,7 +40,7 @@ The third time she read it, her hands were not steady.
 
 The gait. The left leg. The calluses. The way he sat where he could see the door.
 
-She stood and walked to the window of the study. Scholar Pak's seowon was quiet in the afternoon light. A student crossed the courtyard carrying a stack of texts. A bird moved from one roof beam to another.
+She stood and walked to the window of the study. A student crossed the courtyard carrying a stack of texts. A bird moved from one roof beam to another.
 
 She had sent him home three years ago. She had been standing in a corridor with the sun behind her, and she had said the easiest thing she could say, and he had walked north.
 
@@ -86,8 +86,4 @@ Three years ago she had chosen the morning because important things were said wh
 
 She was not controlling this meeting. She was going to it because the description said *left leg, old injury* and she could not send someone else to see if it was him.
 
-The road south was quiet. She walked it alone. The blade was in her bundle. The protocol was broken. The woman who had built the protocol was the one breaking it.
-
-She did not know what she would do when she saw him.
-
----
+She walked it alone. The blade was in her bundle. The protocol was broken. The woman who had built the protocol was the one breaking it.

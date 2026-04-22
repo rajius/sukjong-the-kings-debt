@@ -4,7 +4,7 @@ That evening at the inn, with the day's walking still in his legs and the stream
 
 "There is someone. In the capital."
 
-He did not look at her. His voice was easy — the voice of a man making a small offering to balance the one he had received.
+His voice was easy — the voice of a man making a small offering to balance the one he had received.
 
 "Soonyi. We grew up on the same street."
 
@@ -26,7 +26,7 @@ Soonyi was a name, a street, a childhood. She was waiting. She was possible. She
 
 The husband had been something else. The husband had been *difficult* — and the word, the way Lady Yoon had said it, with a full smile and a whisper, meant: the husband had been extraordinary in a way that did not need to announce itself. The husband had taught her the sequenced questions. The husband had let her be herself. The husband had been the kind of man whose absence was still the largest thing in the room five years after his death.
 
-Yi Hwon lay in the dark and understood that Soonyi and the husband were not the same kind of claim on him. Soonyi asked whether he would return to the life meant for him. The husband asked whether he was even visible to the life Lady Yoon had already lived.
+Soonyi asked whether he would return to the life meant for him. The husband asked whether he was even visible to the life Lady Yoon had already lived.
 
 He did not have an answer to either question.
 
@@ -63,4 +63,3 @@ Twenty-four. Unmarried. Pretty.
 The pain inside her stomach was so foreign she almost mistook it for illness.
 
 She pressed her stomach with one hand until it stopped screaming.
----

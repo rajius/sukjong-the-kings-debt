@@ -22,8 +22,6 @@ Yu sat down. He did this rarely. Yi Hwon remained standing.
 
 "Bandits. According to the provincial magistrate."
 
-The room was quiet.
-
 "And according to you, sir?"
 
 Yu looked at him. "According to me, Inspector Kwon was a careful man who had done provincial work for nine years and who did not die of bandits."
@@ -112,10 +110,6 @@ Three characters. A location — a village name he recognized, half a day's walk
 
 No signature. No seal. The paper was ordinary — the kind used for market receipts, available anywhere.
 
-Someone had noticed a scholar asking about Yeongwol.
-
 He burned the paper. He packed the bundle. He checked the seal in his inner pocket.
 
 He took the southern road.
-
----

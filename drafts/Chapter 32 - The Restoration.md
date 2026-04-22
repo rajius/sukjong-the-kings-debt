@@ -76,9 +76,7 @@ Scholar Pak read the decree aloud in the courtyard to the household and students
 
 When Scholar Pak finished reading, the students dispersed. Lady Yoon remained in the courtyard.
 
-Yi Hwon had delivered the records in the eighth month, three months ago. His letters had been careful, saying only that the work proceeded and that he would return when circumstances permitted. Now she understood what he had been waiting for.
-
-Yeong-hak's work was done. The boy-king's name was restored. The shrine at Yeongwol would be rebuilt. The men who died defending him were rehabilitated.
+Yi Hwon had delivered the records in the eighth month, three months ago. His letters had been careful, saying only that the work proceeded and that he would return when circumstances permitted. Yeong-hak's work was done. The boy-king's name was restored. The shrine at Yeongwol would be rebuilt. The men who died defending him were rehabilitated.
 
 She thought of the night Yeong-hak had left for Wonju, eight years ago. The ordinary goodbye. The work that had killed him. The records he had begun and she had preserved and Yi Hwon had delivered.
 
@@ -118,7 +116,7 @@ Yi Hwon looked at the tablet, then at her. "Spring," he said. Not a question.
 
 "The physician confirmed it before we left the provinces."
 
-They sat together in the lamplight of their new home. Outside, the capital went about its business, unaware of the cost that had brought the decree to existence. Inside, two people who had served a cause in silence settled into the quiet life their work had earned.
+They sat together in the lamplight of their new home. Outside, the capital went about its business, unaware of the cost that had brought the decree to existence. Inside, two people who had served a cause in silence settled into what their work had earned.
 
 ---
 
@@ -127,5 +125,3 @@ The record would show that King Sukjong, in the twenty-fourth year of his reign,
 The record would not show the stone rubbings made by a dead scholar in a province where his name had been erased. It would not show the widow who had carried them for eight years through a network the king had never seen. It would not show the inspector who had been stabbed in Busan, who had walked south with a seal against his chest, who had taken a blade meant for someone else on a mountain trail.
 
 The king's name went on the decree.
-
----

@@ -26,7 +26,7 @@ Yi Hwon asked the five questions in order.
 
 The first answer came easily — a routine record of provincial appointments. The second required the clerk to check a different register, which he did with the careful neutrality of a man who had been asked similar questions before and knew the cost of seeming reluctant. The third answer changed the shape of what Yi Hwon was looking at. He asked the fourth.
 
-By the time he left the yamen, he understood what Lady Yoon had been looking for. Official inquiries had been made in this county — three in the past two months, all concerning correspondence routed through the same seowon that Jang had been connecting. The inquiries were not random. They followed Jang's routes exactly. Someone had taken what Jang sold and was using it to map her network from the outside.
+Official inquiries had been made in this county — three in the past two months, all concerning correspondence routed through the same seowon that Jang had been connecting. The inquiries were not random. They followed Jang's routes exactly. Someone had taken what Jang sold and was using it to map her network from the outside.
 
 He walked to the bench by the gate. Lady Yoon was still mending. She did not look up.
 
@@ -58,7 +58,7 @@ She did not open her eyes. "Taught me what?"
 
 "The questions you gave me this morning. The way you sequenced them. That is not classical education."
 
-She was quiet for a moment. The stream moved over the stones.
+The stream moved over the stones.
 
 "My late husband," she said.
 
@@ -87,4 +87,3 @@ The corner of her mouth moved.
 "You have no idea."
 
 They walked on. He carried the gourd the rest of the day. She did not ask him to. He did not offer.
----

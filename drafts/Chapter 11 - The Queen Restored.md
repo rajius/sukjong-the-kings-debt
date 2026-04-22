@@ -78,7 +78,7 @@ Five years had passed. The queen who returned was not the woman who had been sen
 
 Lady Jang Hui-bin was not dismissed. She remained in the palace, her status reduced but not eliminated, her son still acknowledged as crown prince. The arrangement satisfied no one completely but provided everyone with reasons to accept what could not be changed.
 
-Sukjong understood that he had created a situation where two queens occupied the same palace, neither comfortable, both aware that their positions depended on his ability to balance competing claims without resolving them permanently.
+Two queens occupied the same palace, neither comfortable, both aware that their positions depended on his ability to balance competing claims without resolving them permanently.
 
 The restoration operated efficiently. The human consequences remained where five years of separation had left them.
 
@@ -109,4 +109,3 @@ Sukjong walked to the wooden chest and opened it. The formula was where he had l
 He left the chest open.
 
 "Send the order to Yu tonight."
----

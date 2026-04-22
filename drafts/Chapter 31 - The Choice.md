@@ -62,8 +62,6 @@ Then she set down her tea cup and looked at him directly.
 
 "If you take this work to the capital, you do not return to me as a visitor."
 
-He was quiet, understanding her meaning.
-
 "The seowon arrangement cannot continue indefinitely. Scholar Pak grows suspicious of your extended stay. The students ask questions. And after you carry the most dangerous work of my life to the capital..."
 
 She paused, looking at him across the small table.
@@ -178,9 +176,4 @@ Three days after their wedding, the copies departed through Lady Yoon's network.
 
 Within the week, Yi Hwon departed for the capital alone, carrying the original records and his verification report under royal protection. The delivery mission was dangerous - better that he face those risks without the complication of protecting a wife. Two routes, two chances for Yeong-hak's work to reach the king.
 
-Lady Yoon watched him disappear down the path toward the main road. When the mission was complete, when his position was secure, he would return for her. Then they would leave the provinces together.
-
-The records would survive on both paths. And when they succeeded, their new life could truly begin.
-
-She closed the door and began preparing for the household she would soon leave behind.
----
+Lady Yoon watched him disappear down the path toward the main road.

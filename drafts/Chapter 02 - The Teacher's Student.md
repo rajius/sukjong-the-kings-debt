@@ -103,5 +103,3 @@ She had expected this. She had been expecting it since the gate, since Cho's par
 Master Kim looked at her the way he had looked at her when she asked about the Zuozhuan — measuring, recalculating, arriving at a conclusion he had not expected to reach this quickly.
 
 "I have a former student," he said. "In the capital."
-
----

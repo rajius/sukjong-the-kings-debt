@@ -50,8 +50,6 @@ He had opened the gate in 1689 because she asked him to — not in those words, 
 
 The woman he had noticed in the palace was gone. What remained was the political figure she had built herself into — and that figure was the cost he could see every time he looked toward her wing.
 
-He did not look toward it.
-
 ---
 
 The restoration was ready. The formula was sound. The political support, while fractured, was sufficient. The historical argument — the Wanli parallel, the recognition that Danjong's deposition had been unjust — had been filed, refined, and prepared for formal presentation.
@@ -64,7 +62,7 @@ Sukjong had sent two men to do this work.
 
 The first was a junior scholar from the Board of Rites — diligent, well-credentialed, thoroughly unprepared for what he found. He had traveled to Yeongwol and begun examining local records. Within a week, the county magistrate informed him that the records he was seeking had been transferred to the provincial capital. At the provincial capital, the senior clerk informed him that the records had been lost in a fire two years earlier. The scholar returned to the capital and reported that the documentation was unfortunately unavailable.
 
-Sukjong had read the report and understood it for what it was. The records had not been lost. They had been moved beyond his reach by people who did not want them found.
+The records had not been lost. They had been moved beyond his reach by people who did not want them found.
 
 The second man was more experienced — a mid-ranking inspector from the Ministry of Punishments who had done provincial work before. He traveled to Yeongwol with broader authority and sharper instructions. He sent two dispatches back to the capital. The first described obstructed access to burial site records and local officials who could not account for documentation that should have been in their custody. The second dispatch described threats — indirect, deniable, but unmistakable — from sources he could not identify.
 
@@ -133,7 +131,3 @@ Sukjong wrote the appointment in his own hand. The mission was specific: assess 
 He sealed it and set it beside Inspector Yu's file.
 
 Tomorrow the seal would be given. A young inspector with a scar on his thigh and a military father's training would be sent south, carrying royal authority he could not show and walking toward a place where two men before him had failed.
-
-He knew only that the work required someone who would not leave.
-
----

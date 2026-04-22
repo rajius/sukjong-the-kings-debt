@@ -14,7 +14,7 @@ She thought about Yeong-hak. The evenings. The barley. The contentment that had 
 
 It had been enough. She had said that to herself many times.
 
-She understood now that "enough" was not the same as "everything." The marriage had not failed. She had simply never known the rest of herself.
+"Enough" was not the same as "everything." The marriage had not failed. She had simply never known the rest of herself.
 
 ---
 
@@ -50,7 +50,7 @@ He looked up. She almost never used his name.
 
 "When this is finished," she said, "go home."
 
-The courtyard was quiet. A rooster. The innkeeper's wife sweeping.
+A rooster. The innkeeper's wife sweeping.
 
 "The handkerchief," she said. "Go back to whoever made it."
 
@@ -67,5 +67,3 @@ He set the bundle down.
 She stood. She picked up her travel bundle and settled it on her shoulder.
 
 She walked to the end of the corridor and turned the corner.
-
----

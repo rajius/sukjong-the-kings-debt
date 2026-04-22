@@ -56,7 +56,7 @@ The report was the lever. Not because it mattered -- any pretext would have serv
 
 He summoned the secretary back that afternoon and gave three orders. By evening, the chief minister had been stripped of office. By the end of the week, his allies had been scattered to provincial posts. By the end of the month, the rival faction -- men who had waited a generation for this opening, whose teachers had waited before them -- occupied every position that mattered.
 
-Sukjong was twenty. He had done it in a single season. The ministers who remained understood what that meant: this was not a king who would be managed.
+Sukjong was twenty. He had done it in a single season. The ministers who remained were not managed again.
 
 ---
 
@@ -170,7 +170,7 @@ Sukjong studied the old minister. Nam was not wrong. The distance between readin
 
 "A king who speaks," Nam said. "But not every word at once."
 
-The room was quiet. Nam waited. He had the patience of a man who had outlasted better arguments by simply remaining in the room after the argument had exhausted itself.
+Nam waited. He had the patience of a man who had outlasted better arguments by simply remaining in the room after the argument had exhausted itself.
 
 "One step," Nam said. "A step that commits the throne to a direction without exposing it to the indictment. A step the next king cannot reverse -- so that when the formula is ready, the ground has already been prepared."
 
@@ -198,7 +198,7 @@ The court received it with bowed heads and the appearance of gratitude. Relay ho
 
 The scholars bowed. They expressed gratitude. They went home and wrote letters.
 
-In Yeongwol, the old men in the seowon who had inherited this cause from their teachers, who had inherited it from theirs, read the decree and understood exactly what it was. One word. A direction, not a destination.
+In Yeongwol, the old men in the seowon who had inherited this cause from their teachers, who had inherited it from theirs, read the decree. One word. A direction, not a destination.
 
 They could carry it further.
 
@@ -215,9 +215,3 @@ He did not frame it as preparation for restoration. He framed it as scholarly cu
 Within weeks, the inquiry had been noted by someone who understood what a king's "scholarly curiosity" about Yeongwol meant. The name of the county began to appear in private correspondence.
 
 Sukjong did not know this. He had sent a thread into the provinces, and the thread had been seen, and now it was being followed by eyes that did not want the tomb at Yeongwol to bear any weight at all.
-
-In the seowon, the teachers placed new pages among the practice sheets. In the countryside, the grandmothers sang the same song. And in the provinces, among the scholars and minor officials who had been documenting what the state wanted forgotten, something shifted.
-
-
-
----

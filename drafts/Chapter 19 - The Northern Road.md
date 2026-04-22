@@ -141,5 +141,3 @@ He untied the bundle. The handkerchief was where it always was. Pale blue-grey. 
 순.
 
 He retied the bundle and did not sleep.
-
----

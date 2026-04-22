@@ -50,7 +50,7 @@ Master Kim received him in the study. She brought tea. He glanced at her and awa
 
 The formal meeting came later — chaperoned, proper. He sat across from her and looked at her directly for the first time. His eyes were the part of him that moved fastest. The rest was economical.
 
-She said something about the journey from the capital — how long it had taken, whether the roads were good. Simple questions, but she asked them in a way that suggested she understood what the journey meant. He had come to see her, specifically her, when he could have decided by letter.
+She said something about the journey from the capital — how long it had taken, whether the roads were good. Simple questions. He had come to see her, specifically her, when he could have decided by letter.
 
 "The roads were adequate," he said.
 
@@ -88,7 +88,7 @@ Now he turned. "How do you know?"
 
 "The way he writes. He argues with himself before anyone else can. It is what people do when they expect to be contradicted."
 
-He was quiet for a moment. Then: "You think he does not believe his own proposal?"
+"You think he does not believe his own proposal?"
 
 "I think he believes it. But he does not believe anyone else will."
 
@@ -211,8 +211,6 @@ He stepped inside and looked at her — not as housekeeper or student, but as a 
 
 "How are you?" he said.
 
-She understood the question was not about her health.
-
 "I am reading the house," she said.
 
 Something shifted behind Master Kim's expression.
@@ -222,4 +220,3 @@ Something shifted behind Master Kim's expression.
 She stood in the corridor with the lamp. Through the wall, fragments — not the conversation itself, but its edges. Her husband's voice, low and taut: "...the records in Yeongwol do not match..." Master Kim's voice, lower: "...they will not match. That is the point. The question is who else knows they do not match..."
 
 She did not enter. She did not leave. The lamp burned down. The voices continued. She waited.
----

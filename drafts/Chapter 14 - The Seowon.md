@@ -1,6 +1,6 @@
 # Chapter 14 — The Seowon
 
-She did not find him for two days. He spent the time at an inn in the county seat, writing nothing, asking no questions, letting the inn keeper believe he was a merchant waiting on a delivery.
+He spent the time at an inn in the county seat, writing nothing, asking no questions, letting the inn keeper believe he was a merchant waiting on a delivery.
 
 On the third morning, he went to the seowon outside town.
 
@@ -68,13 +68,13 @@ She waited.
 
 "How old are you?" she said.
 
-The question came out before she had decided to ask it. It was not part of the negotiation. She did not know what she would do with the answer.
+The question came out before she had decided to ask it.
 
 He told her.
 
 She looked at him for a long time. Then she looked away.
 
-The room was quiet again. He did not look away.
+He did not look away.
 
 "The work is real. That part stands. We meet twice more — you tell me what your contact revealed, I tell you what I find. After that, officially, I have found nothing in this county worth pursuing."
 
@@ -95,6 +95,3 @@ He bowed and prepared to leave. At the door he stopped.
 "You remembered me before I said a word."
 
 She did not answer.
-
-He let that be enough.
----

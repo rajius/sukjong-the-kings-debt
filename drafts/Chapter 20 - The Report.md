@@ -79,8 +79,4 @@ He did not consult the ministers. He did not wait for morning audience. He wrote
 
 The scholars who should have lived to see this were dead. The networks that should have carried the news were gone. The restoration would arrive in the court gazette as the king's decision, and no record would show what it had cost to reach it.
 
-That was the nature of royal authority. The king's name went on the order. The cost was absorbed by people whose names were no longer in any register.
-
 He sealed the document and set it beside the report. Two pages on the desk.
-
----

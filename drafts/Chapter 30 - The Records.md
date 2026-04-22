@@ -118,8 +118,6 @@ He looked at her. She looked at him. The desk between them was the same desk, bu
 
 "I would attach my name to evidence I have personally verified. That is what an amhaeng-eosa does."
 
-She was quiet.
-
 "If the court questions your verification —"
 
 "Then I answer for it."
@@ -179,4 +177,3 @@ He reached for her hand. She let him take it. His fingers around hers.
 "I will come back," he said.
 
 She did not let go.
----

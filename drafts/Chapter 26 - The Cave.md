@@ -72,7 +72,7 @@ She retied the cloth. Tighter. He drew a sharp breath and held it.
 
 "Your network is compromised."
 
-She was quiet for a moment. Her hands were still on his arm, holding the knot she had just tied.
+Her hands were still on his arm, holding the knot she had just tied.
 
 "Part of it. The outer contacts in this county. Someone talked — or was made to talk. The inner routes are still intact."
 
@@ -181,5 +181,3 @@ She thought about the word she had used three years ago, sitting alone in a room
 She was no longer sure what that word meant.
 
 She sat with this until the first grey light came through the crack and the birds outside began. She did not wake him. She let his weight stay where it was.
-
----

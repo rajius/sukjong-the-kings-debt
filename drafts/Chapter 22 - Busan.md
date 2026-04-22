@@ -201,5 +201,3 @@ But someone in Inspector Yu's office mentioned the case to someone in the king's
 The name reached Sukjong's desk.
 
 It was not the first time.
-
----
