@@ -1,4 +1,4 @@
-# Hard Development Edit - THE KING'S DEBT
+# Hard Development Edit - THE BURIED NAME
 
 ## Core Diagnosis
 

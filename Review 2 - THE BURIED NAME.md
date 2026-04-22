@@ -1,7 +1,7 @@
-# Review 2 - THE KING'S DEBT (Gemini CLI Evaluation)
+# Review 2 - THE BURIED NAME (Gemini CLI Evaluation)
 
 ## Overview
-"THE KING'S DEBT" is a sophisticated and intellectually ambitious historical novel concept. It moves beyond a standard historical mystery by centering itself on a profound moral paradox: **What is the value of justice when it is delivered by the same machinery that created the injustice?**
+"THE BURIED NAME" is a sophisticated and intellectually ambitious historical novel concept. It moves beyond a standard historical mystery by centering itself on a profound moral paradox: **What is the value of justice when it is delivered by the same machinery that created the injustice?**
 
 By focusing on the *restoration* of King Danjong in the late 17th century—rather than the 1457 tragedy itself—the narrative finds a fresh and structurally powerful way to explore the "shame" of a state and the human cost of political "corrections."
 

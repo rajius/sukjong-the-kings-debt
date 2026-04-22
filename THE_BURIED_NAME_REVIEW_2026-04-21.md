@@ -1,7 +1,7 @@
-# THE KING'S DEBT -- Consolidated Review Report
+# THE BURIED NAME -- Consolidated Review Report
 
-**Document**: THE KING'S DEBT (Complete Novel, 33 Chapters + 2 Interstitials)
-**Source file**: THE_KINGS_DEBT_CHAPTERS_H2.md
+**Document**: THE BURIED NAME (Complete Novel, 33 Chapters + 2 Interstitials)
+**Source file**: THE_BURIED_NAME_CHAPTERS_H2.md
 **Date**: 2026-04-21
 **Review templates applied**: AI Sloppiness Checklist, AI Plagiarism Risk Checklist, Scene Similarity Risk Checklist
 **Calibrated against**: Personal Style Map (Scenes Only)
@@ -10,7 +10,7 @@
 
 ## Overall Assessment
 
-THE KING'S DEBT is structurally ambitious and emotionally intelligent. Its first two-thirds (Chapters 1-22) operate at a high level -- compressed, inference-driven, trusting the reader. Its best chapters (2, 4, 8, 9, 12, 13, 16, 17, 18, 22) embody the author's signature: social intelligence, emotional inference, and pressure carried by detail. The final third (Chapters 29-33) loses this distinctive voice, becoming more procedural and explanatory. The single most pervasive issue across all three reviews is **over-explanation after impact** -- strong concrete moments followed by 1-3 sentences explaining their significance.
+THE BURIED NAME is structurally ambitious and emotionally intelligent. Its first two-thirds (Chapters 1-22) operate at a high level -- compressed, inference-driven, trusting the reader. Its best chapters (2, 4, 8, 9, 12, 13, 16, 17, 18, 22) embody the author's signature: social intelligence, emotional inference, and pressure carried by detail. The final third (Chapters 29-33) loses this distinctive voice, becoming more procedural and explanatory. The single most pervasive issue across all three reviews is **over-explanation after impact** -- strong concrete moments followed by 1-3 sentences explaining their significance.
 
 **AI Sloppiness Profile**: LOW-TO-MODERATE overall; concentrated in Chapters 29-33 and in chapter endings throughout.
 **AI Plagiarism Risk**: LOW overall; style-imitation risk from Hilary Mantel in Sukjong political chapters; no verbatim borrowing detected.
