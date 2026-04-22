@@ -46,22 +46,20 @@ Ok-sun had found her. The handwriting was cautious, the phrasing careful, but un
 
 *Respectfully, Ok-sun*
 
-Lady Yoon read the letter twice. The subtext was clear: network contacts were testing whether operations might resume, asking through Ok-sun whether their former connection was still accessible. They wouldn't know Lady Yoon personally, but they knew Ok-sun had been the bridge.
+Lady Yoon read the letter twice. The subtext was clear: network contacts were testing whether operations might resume, asking through Ok-sun whether their former connection was still accessible.
 
-She set the letter aside and placed her hand on her rounded belly. The network had been her life for eight years. The contacts, the careful cultivation of information sources, the delicate balance of operational security — all of it had defined who she was and how she moved through the world.
+She walked to the small desk where she kept writing materials. She sat for a long time before picking up the brush.
 
-But that was before she had been Lady Yoon, invisible provincial widow. Now she was Inspector Yi's wife, expecting his child, resident of the capital. Her movements were observed, her associations noted. The invisibility that had made her effective was gone.
+An inspector's wife could not move the way a widow could. Every association noted, every letter observed. Reactivating the network from this house would expose everyone in it.
 
-More than that: the mission that had driven the network was complete. Yeong-hak's records had reached the king. The restoration had been achieved. What would be the purpose of rebuilding?
-
-She walked to the small desk where she kept writing materials and composed her reply.
+She composed her reply.
 
 *Ok-sun: I am grateful for your letter. Please give Scholar Pak my regards.*
 
-*My situation has changed considerably since leaving the provinces. Family responsibilities now occupy my time. I find the capital requires different priorities than I maintained before.*
+*The capital keeps me busy. My husband's household requires attention I did not anticipate. I am afraid I have little time for correspondence these days.*
 
-*I hope all our former acquaintances are managing well in their current circumstances.*
+*I hope the autumn cloth prices have settled. Please do not trouble yourself to write again on my account — the post is unreliable this far north.*
 
 *With warm regards, Lady Yi*
 
-She sealed the letter and set it aside for posting. Those who needed to understand would read between the lines. Those who did not were safer for the ambiguity.
+She sealed the letter. The network would go dormant — not because the work was finished, but because she could no longer safely touch it.

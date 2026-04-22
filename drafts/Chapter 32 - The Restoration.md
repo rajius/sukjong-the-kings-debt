@@ -120,6 +120,16 @@ They sat together in the lamplight of their new home. Outside, the capital went 
 
 ---
 
+The house was quiet in the afternoons.
+
+She sat at the desk and did not write. The name that owed her did not need it. The network was dormant — an inspector's wife could not move the way a widow could. But she could still find the man if she wanted.
+
+The child moved.
+
+She sat with her hand on her stomach for a long time.
+
+---
+
 The record would show that King Sukjong, in the twenty-fourth year of his reign, had corrected a historical injustice through royal wisdom and moral authority.
 
 The record would not show the stone rubbings made by a dead scholar in a province where his name had been erased. It would not show the widow who had carried them for eight years through a network the king had never seen. It would not show the inspector who had been stabbed in Busan, who had walked south with a seal against his chest, who had taken a blade meant for someone else on a mountain trail.
