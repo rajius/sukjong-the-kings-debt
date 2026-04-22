@@ -26,6 +26,10 @@ He had known the purge had consequences. He had known it in 1689, when he allowe
 
 This report was not in the passive voice. It was in names. And in the silences where names used to be.
 
+After Song Si-yeol's execution, Sukjong had felt the balance shift in court. He was used to such shifts — factions rose, factions fell, the weight moved from one side of the hall to the other. That was politics. He had been managing it since he was fourteen.
+
+This was different. The report was a statement about the capacity he had lost as the cost of managing the court.
+
 ---
 
 The scholars who died in those seven counties were not faction men. They were not Westerners in the political sense — men angling for ministerial posts, aligning with Song Si-yeol for influence. They were the ones who had cared about the Danjong question itself. The old debt. The cause Sukjong had carried since he was a boy listening to his grandmother speak of the dead king as though the wound were still open in her hands.

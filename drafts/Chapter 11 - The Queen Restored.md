@@ -18,6 +18,8 @@ Sukjong studied the documents again. The language was too crude, the political a
 
 Sukjong set the documents on the desk, face down. He said nothing for a long time.
 
+He had always known this reversal would come. Mok was Jang Hui-bin's man — the fabrication had not happened without her knowledge. The woman he had elevated was not the woman who sat in the queen's chambers now. That one had been sharp and direct and unafraid of him. This one had learned from his example — how to use position as weapon, how to reward loyalty and punish doubt. He had given her too much, too quickly, and what grew in that space was not what he had planted.
+
 "The fabricators have given me a gift," he said. "They intended it as a weapon. Make it a procedural matter."
 
 Nam studied the king's face. Then he understood.

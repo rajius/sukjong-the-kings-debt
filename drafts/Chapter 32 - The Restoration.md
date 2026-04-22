@@ -32,7 +32,9 @@ Yu said nothing. There were things the protocol did not require him to confirm.
 
 Sukjong understood. The inspector had protected his source. The records were here. The source was not. That was the inspector's choice, and it was the right one.
 
-He closed the case, then opened it again, studying the handwriting once more.
+He closed the case, then opened it again, studying the handwriting once more. He had seen it before — a munkwa essay, the winning paper from a year when the candidate was sixteen. He had read it because sixteen was remarkable. The prose had been clear, precise, without vanity.
+
+He could not remember the name. The purge had followed the examination registers downward, and the registers did not distinguish between enemies and scholars who might have been useful.
 
 "Send for Nam Guman," Sukjong said.
 
