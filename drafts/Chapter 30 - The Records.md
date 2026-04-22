@@ -64,7 +64,7 @@ She looked at it for a long time.
 
 "Yes."
 
-She picked it up. She turned it in her hands — a woman who had handled documents all her life, holding the one document that changed everything. The seal meant the king's authority. It meant the records she had maintained for eight years could be delivered through official channels, under royal protection, to the court that would use them to complete the restoration her husband had spent his life trying to build.
+She picked it up. She turned it in her hands.
 
 She set it down beside the stone rubbings.
 
@@ -88,7 +88,7 @@ Yi Hwon set the file on the desk and was quiet for a long moment.
 
 Lady Yoon waited.
 
-"The proper procedure is to submit the letters complete with all correspondence details. The Board of Rites will examine the evidence and follow up with the named contacts to verify the documentation process." His voice carried the flat tone of a man reciting administrative requirements. "Standard investigative protocol."
+"The proper procedure is to submit the letters complete with all correspondence details. The Board of Rites will follow up with the named contacts to verify the chain." He paused. "Standard protocol."
 
 "I see."
 
@@ -96,7 +96,7 @@ Lady Yoon waited.
 
 Lady Yoon's hands had gone still on the papers she was arranging.
 
-Yi Hwon stared at the letters. "But my training assumes that investigation serves justice. It does not account for situations where proper procedure destroys the very people who made justice possible."
+Yi Hwon stared at the letters. "But proper procedure would destroy the people who made the evidence possible."
 
 He picked up the file again, read the first letter through. "Can you separate the evidence from the names? Copy the letters with the contact information removed?"
 
@@ -106,11 +106,9 @@ He picked up the file again, read the first letter through. "Can you separate th
 
 "Yes. But the court may not accept them."
 
-"Then we forge stronger provenance." The words came out before Yi Hwon could consider their implications fully. "I can attest to having verified the correspondence chain through field investigation. My authority as inspector provides the credibility the redacted letters would lose."
+"Then I verify it myself." He said it before he could reconsider. "I inspect the sites, confirm the documents match, and file my own attestation. My authority substitutes for the names."
 
-He had just offered to lie in an official report to protect her network. The realization sat between them in the silence that followed.
-
-They sat with this for a long time. The file on the desk between them. The evidence that proved the burial sites and the names that would destroy the network that had preserved them — in the same documents, in the same ink.
+The silence that followed was long.
 
 "I will not send my people's names to the capital," she said.
 
@@ -122,19 +120,15 @@ They sat with this for a long time. The file on the desk between them. The evide
 
 "Then we have a problem."
 
-He looked at her. She looked at him. The desk between them was the same desk, but the distance had returned — not personal but structural. He carried the king's seal. She carried her people's safety. The seal needed the names. The people needed the names to stay hidden.
-
-"There is a third option," he said. "I verify the provenance myself. I inspect the burial sites in person, confirm that the documents match the locations, and file my own report attesting to the accuracy. The court accepts the amhaeng-eosa's verification instead of the original chain."
+He looked at her. She looked at him.
 
 "You would attach your name to evidence you cannot fully source."
 
-"I would attach my name to evidence I have personally verified. That is what an amhaeng-eosa does."
+"I would attach my name to evidence I have personally verified."
 
 "If the court questions your verification —"
 
 "Then I answer for it."
-
-She looked at the file. The names her husband had written. The contacts she had maintained. The people who had carried letters through eight years of silence because she had asked them to.
 
 She removed the correspondence file from the case and placed it in her lap.
 
@@ -162,15 +156,9 @@ She said it without drama. The voice of a woman who had rebuilt before.
 
 On the fourth evening, the cases were packed. The verification route was marked. The contacts were notified. The work was organized.
 
-Yi Hwon would leave the following morning to verify the burial sites. If the verification held, if the plan proved sound, the originals could then be carried to the capital under royal protection.
+She found him in the study, reading the last stone rubbing. He set it aside when she came in.
 
-She found him in the study, reading the last stone rubbing — Eom Heung-do's memorial tablet, the one her husband had considered the most important. He set it aside when she came in.
-
-"The route is planned," she said. "The verification first. Then, if all holds, the capital."
-
-"Yes."
-
-She sat across from him. The document cases were stacked by the wall, organized and ready. The desk was clear for the first time in four days.
+She sat across from him. The desk was clear for the first time in four days.
 
 "Come back," she said.
 
@@ -181,8 +169,6 @@ He looked at her.
 "Lady Yoon —"
 
 "I am not sending you home this time."
-
-The room was quiet. The lamp. The packed cases. The work that had consumed eight years of her life, organized and planned but not yet released.
 
 He reached for her hand. She let him take it. His fingers around hers.
 

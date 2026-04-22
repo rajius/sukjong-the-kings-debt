@@ -40,25 +40,23 @@ She waited for him to continue.
 
 He reached into his traveling pouch and withdrew a leather folder. "Sixteen pages of attestation that your husband's documents are accurate. The court will accept my verification instead of the correspondence that would expose your network."
 
-She took the folder but did not open it. The plan they had made before he left was still intact — his verification would substitute for the dangerous chain of custody letters. The records could be delivered under royal protection.
+She took the folder but did not open it.
 
 "When do you leave for the capital?"
 
 "Within the week. Yu expects the delivery before spring."
 
-She nodded. The timing was what they had discussed. The two-route delivery was ready — his verification would protect the originals while her network carried the copies through separate channels.
+She nodded.
 
-"The copies have been prepared," she said. "My contacts will begin moving them tomorrow. If they travel the northern route through Jecheon, they should reach the capital within two weeks."
+"The copies will move through Jecheon. Two weeks."
 
 "And if something happens to my route?"
 
-"The copies will still arrive. Your verification report proves their authenticity." She paused. "And if something happens to the copies?"
+"The copies still arrive." She paused. "And if something happens to the copies?"
 
-"The originals travel under royal protection. The king receives what your husband died trying to preserve."
+"The originals travel under royal protection."
 
-The mission was ready to conclude on two paths.
-
-Then she set down her tea cup.
+She set down her tea cup.
 
 "What is your plan after that?"
 
@@ -75,10 +73,6 @@ He said nothing.
 The silence between them was long.
 
 "I cannot move as easily as you."
-
-There were things she wanted to say. The network. The cover identity. Scholar Pak. Eight years of invisible work that could not be packed into a bundle. She swallowed all of it.
-
-She had never struggled to say what she meant. She did not know why she could not now.
 
 Another silence. Longer than the first.
 
@@ -108,11 +102,9 @@ Three days later, Yi Hwon wrote to Yu.
 
 Yu read the letter at his desk in the capital. He read it twice.
 
-In twenty years of managing provincial assignments, he had not received quite this combination of success and administrative complexity. The man had secured the most important intelligence cache in a generation and formed a formal alliance with the source. The professional outcome was excellent. The administrative requirements would need careful handling.
-
 He called for paper and brush.
 
-The first letter would go to the administrative clerk. A routine notation: Inspector Yi Hwon's provincial assignment required documentation under assumed identity. Marriage record to be transferred to service file for legitimacy. The clerk would ask no questions.
+The first letter would go to the administrative clerk. Marriage record to be transferred to service file. The clerk would ask no questions.
 
 The second letter would go to Yi Hwon.
 
@@ -126,25 +118,17 @@ They held a small wedding the following week.
 
 To the neighborhood, a capital man marrying a provincial widow before returning to his assignment was unremarkable. The ceremony was brief. Ok-sun stood witness.
 
-Scholar Pak received the news with resignation, though not surprise. He had observed their collaboration over the past months — the genealogy researcher's extended stay, the evening consultations over archival materials, the careful professional courtesy that had gradually become something less formal.
+Scholar Pak received the news without surprise.
 
-"I wondered when this might develop," he said quietly to Lady Yoon when they discussed the arrangements. "Scholarly partnerships often deepen when the work is... substantial."
+"Scholarly partnerships often deepen when the work is... substantial," he said quietly.
 
-He offered congratulations and made arrangements for her departure from the seowon, though she could see he understood more about the nature of their "research" than he had ever acknowledged.
-
-But she watched his face during the ceremony and saw the cost. He would have to find someone else to manage the correspondence, the accounts, the delicate balance of keeping a seowon running without attracting attention. Her departure left him exposed in ways that would take months to repair.
-
-The network, too, would need restructuring. The widow who could move invisibly was gone. What remained was a married woman whose husband would draw scrutiny wherever they lived.
-
-These costs were real. She had chosen to pay them.
+She watched his face during the ceremony and saw the cost.
 
 ---
 
-The family's response arrived two days later.
+His father's letter arrived two days later. Carefully formal. The marriage acknowledged, the choice unexpected, the disappointment clear.
 
-His father's letter was carefully formal. The marriage was acknowledged. The choice was unexpected. His mother expressed disappointment that proper consultations had not occurred.
-
-Yi Hwon read the letter once and set it aside. What surprised him was how little their approval mattered now.
+Yi Hwon read it once and set it aside.
 
 ---
 
@@ -154,8 +138,8 @@ She pressed his hand.
 
 ---
 
-Three days after their wedding, the copies departed through Lady Yoon's network. She watched Ok-sun's brother disappear down the back path, carrying documents disguised as a scholar's private collection. The northern route would take two weeks, but it was secure.
+Three days after the wedding, the copies departed. She watched Ok-sun's brother disappear down the back path.
 
-Within the week, Yi Hwon departed for the capital alone, carrying the original records and his verification report under royal protection. The delivery mission was dangerous - better that he face those risks without the complication of protecting a wife. Two routes, two chances for Yeong-hak's work to reach the king.
+Within the week, Yi Hwon departed for the capital alone. Two routes, two chances.
 
 Lady Yoon watched him disappear down the path toward the main road.

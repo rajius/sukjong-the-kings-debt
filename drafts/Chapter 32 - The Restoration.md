@@ -20,7 +20,7 @@ It was not destroyed. It was here. On his desk. Documented by a dead man's hand.
 
 "The inspector's report does not identify the source," Yu said. "Protocol."
 
-Sukjong looked at the handwriting. Not the inspector's — he had seen the inspector's hand in the Busan report and the earlier provincial assessment. This was someone else. Someone with a classical education. Someone who wrote with the precision of a man who had passed the munkwa and who understood that documentation was the difference between a cause and a memory.
+Sukjong looked at the handwriting. Not the inspector's. Someone else. Someone with a classical education, who wrote with the precision of a man who had passed the munkwa.
 
 "This person is dead," Sukjong said.
 
@@ -72,13 +72,11 @@ The decree was filed. The shrine was repaired. The names were restored.
 
 At the seowon, Lady Yoon heard the news on a morning in late autumn.
 
-Scholar Pak read the decree aloud in the courtyard to the household and students gathered there. She stood at the edge of the group, her hand resting on the swell of the child she had conceived in the summer, now heavy beneath her autumn clothes as she heard the words that completed eight years of work.
+Scholar Pak read the decree aloud in the courtyard to the household and students gathered there. She stood at the edge of the group, her hand resting on the swell of the child, now heavy beneath her autumn clothes.
 
 When Scholar Pak finished reading, the students dispersed. Lady Yoon remained in the courtyard.
 
-Yi Hwon had delivered the records in the eighth month, three months ago. His letters had been careful, saying only that the work proceeded and that he would return when circumstances permitted. Yeong-hak's work was done. The boy-king's name was restored. The shrine at Yeongwol would be rebuilt. The men who died defending him were rehabilitated.
-
-She thought of the night Yeong-hak had left for Wonju, eight years ago. The ordinary goodbye. The work that had killed him. The records he had begun and she had preserved and Yi Hwon had delivered.
+She thought of the night Yeong-hak had left for Wonju, eight years ago. The ordinary goodbye.
 
 The child moved under her hand — barely perceptible, but real. The last time, she had not felt the child move at all. Only the wetness, the night they brought his body home.
 
@@ -86,37 +84,37 @@ The child moved under her hand — barely perceptible, but real. The last time, 
 
 Yi Hwon arrived two days later.
 
-She had been expecting him since the decree was read, though Scholar Pak seemed surprised by his sudden return. He came directly to her quarters, carrying a leather satchel and wearing the careful satisfaction of a man whose dangerous work had concluded successfully.
+He came directly to her quarters.
 
-"It's done," he said, setting the satchel on her desk. "The king received the records. The restoration proceeded exactly as planned."
+"It's done," he said.
 
-She looked at him — thinner than when he had left for the capital, but steady. The mission that had consumed eight years of her life had finally reached its completion through his hands.
+She looked at him — thinner than when he had left, but steady.
 
 "And now?" she asked.
 
 "Now we leave for the capital. My new assignment is permanent. There is a house arranged, modest but suitable." He paused. "If you are ready."
 
-She was ready. She had been ready since the morning she had handed him the records and chosen their future.
+She was ready.
 
 ---
 
 Three weeks later, they departed the provinces.
 
-Scholar Pak bid them farewell with the formal courtesy he had maintained throughout their unusual arrangement. Ok-sun loaded the cart with Lady Yoon's few belongings — everything that mattered to her fit into a single chest.
+Scholar Pak bid them farewell. Ok-sun loaded the cart. Everything that mattered to Lady Yoon fit into a single chest.
 
-As they drove away from the seowon, Lady Yoon looked back once at the courtyard where she had managed the correspondence, the accounts, the delicate balance that had kept a network running for eight years. All ending so that something else could begin.
+As they drove away, she looked back once at the courtyard.
 
 ---
 
 In their small house in the capital, that evening, she showed Yi Hwon where she had placed Yeong-hak's memorial tablet in the main room.
 
-"He should see this completed," she said, touching her swollen belly. "The restoration he died trying to build. The child who will grow up knowing it succeeded."
+"He should see this," she said, touching her belly.
 
 Yi Hwon looked at the tablet, then at her. "Spring," he said. Not a question.
 
 "The physician confirmed it before we left the provinces."
 
-They sat together in the lamplight of their new home. Outside, the capital went about its business, unaware of the cost that had brought the decree to existence. Inside, two people who had served a cause in silence settled into what their work had earned.
+They sat together in the lamplight of their new home.
 
 ---
 
