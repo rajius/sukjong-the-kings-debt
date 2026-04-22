@@ -34,31 +34,31 @@ Sukjong understood. The inspector had protected his source. The records were her
 
 He closed the case, then opened it again, studying the handwriting once more.
 
-"The provincial authorities will question the provenance," he said.
+"Send for Nam Guman," Sukjong said.
 
-"They will, Your Majesty."
+---
 
-"Governor Kim will argue that records preserved by private scholars cannot serve as official evidence. He will demand to examine the original sources, to question the methodologies." Sukjong traced one of the annotations with his finger. "He will be correct, according to administrative protocol."
+Nam arrived within the hour. Sukjong said nothing. He gestured to the open case on the desk.
 
-Yu waited.
+Nam read. He read slowly — the annotations, the rubbings, the handwriting of the dead scholar. When he finished, he closed the case and sat with his hands folded.
 
-"But Governor Kim's objection assumes that evidence must be unimpeachable to be useful," Sukjong continued. "What if the standard is not perfection, but sufficiency? What if the question is not whether these records prove everything, but whether they prove enough?"
+"The provincial authorities will question the provenance," Nam said.
 
-"Your Majesty?"
+Sukjong waited.
 
-"The court needs a reason to act, not a perfect case. I will frame the restoration as a correction of administrative oversight, not as vindication of a cause." Sukjong stood, walking to the window. "The decree will cite the provincial registers as incomplete rather than falsified. It will note discrepancies requiring clarification rather than evidence of deliberate obstruction. The restoration becomes a procedural adjustment, not a historical reversal."
+"Governor Kim will argue that records preserved outside official channels cannot serve as evidence for a royal decree. He will be correct, according to administrative protocol." Nam paused. "But administrative protocol also requires that provincial registers be complete. His are not. The question is whether the court examines the gap in the records or the gap in Governor Kim's custody of them."
 
-"And if Governor Kim continues to object?"
+Sukjong said nothing.
 
-"Governor Kim will be reminded that questioning the thoroughness of royal administrative review suggests either incompetence in his own record-keeping or doubt about the king's judgment. Both are career-limiting positions." Sukjong returned to his desk. "The inspector's report will be classified. The sources remain protected. The provincial authorities will cooperate because the alternative is replacement."
+"A correction of administrative oversight," Nam said, as if thinking aloud. "Not a vindication. Not a reversal. The decree cites incomplete provincial registers. The restoration becomes procedural. Governor Kim's choice is cooperation or an audit of his own record-keeping."
 
-Yu bowed. "Very good, Your Majesty."
+Nam looked at the king. Sukjong's expression had not changed.
 
-"And Minister Yu?" Sukjong picked up his seal. "Ensure that the inspector's next assignment takes him away from Seoul for several months. His work here is complete, and distance will discourage inconvenient questions about his methods."
+"The inspector's report should be classified," Nam continued. "The sources remain protected. The inspector himself — a period of assignment outside the capital would discourage questions about his methods."
 
-"As Your Majesty commands."
+Sukjong picked up his seal. "Draft the language tonight."
 
-"The restoration proceeds," he said finally. "But it proceeds carefully."
+Nam bowed and left. He had not been told what the king wanted. He had not needed to be.
 
 ---
 
