@@ -137,3 +137,5 @@ Lady Yoon extended them. And then, months later, she noticed something she shoul
 She could not prove this. She could not remove him without revealing what she suspected. So she changed the routes. She moved the contacts he knew to new locations. She gave Jang a circuit that looked the same but touched nothing that mattered. And she developed a harder process for the men who came after — because Jang had shown her that the vetting she had been doing was not enough.
 
 By the fourth year, the Southerner apparatus was still looking for scholarly networks. They found nothing.
+
+The dispatch routing showed one item she filed and forgot: a young garrison officer in the southern counties had submitted a memorandum about diverted supply quantities. His superiors had ignored it. No one ignored a memorandum unless it was accurate.

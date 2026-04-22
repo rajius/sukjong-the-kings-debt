@@ -60,6 +60,8 @@ Song Si-yeol was executed at dawn on the seventh day of the sixth month, in the 
 
 The man who had walked away from the fourteen-year-old king was gone.
 
+In a provincial school three counties south, a teacher set aside the day's lesson and told his students what had happened. The boys listened. One of them — a military household's son, the only one in the school preparing for the civil examination instead of the military — copied the teacher's account into his notebook in careful, precise characters.
+
 ---
 
 Lady Yoon was alone in the kitchen when the visitor arrived.
