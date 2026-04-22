@@ -80,7 +80,7 @@ Yi Hwon had delivered the records in the eighth month, three months ago. His let
 
 She thought of the night Yeong-hak had left for Wonju, eight years ago. The ordinary goodbye. The work that had killed him. The records he had begun and she had preserved and Yi Hwon had delivered.
 
-The child moved under her hand — barely perceptible, but real.
+The child moved under her hand — barely perceptible, but real. The last time, she had not felt the child move at all. Only the wetness, the night they brought his body home.
 
 ---
 
