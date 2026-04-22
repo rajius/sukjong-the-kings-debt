@@ -6,9 +6,9 @@ Sukjong found it on his private desk one morning, wrapped in plain silk. No note
 
 The binding was Chinese, the paper thin and yellowed. Ming imperial records, copied during the Wanli reign. He opened it to a page marked with a strip of red silk.
 
-*The restoration of Prince Jianwen to the imperial shrine, with full honors due a legitimate sovereign, in the twenty-third year of Wanli.*
+*In the twenty-third year of Wanli, the Emperor restored the era name of Prince Jianwen to the official chronicles. The reign that the Yongle Emperor had erased — four years struck from the record, as if the nephew had never sat on the throne — was acknowledged again as historical fact.*
 
-Sukjong read the passage twice. Then he read the commentary that followed, written in a careful scholarly hand he did not recognize: *Though the Prince reigned briefly and died young, the Emperor Wanli recognized that legitimacy does not depend on duration. Both uncle and nephew had worn the dragon robes. Both could be acknowledged in the shrine. The altar grew larger to hold what had been divided.*
+Sukjong read the passage twice. Then he read the commentary that followed, written in a careful scholarly hand he did not recognize: *The Emperor Wanli corrected the record but did not resolve the question. Jianwen's era name was restored; his temple name was not. No tablet was placed in the Taimiao. The uncle who seized the throne remained among the honored ancestors. The nephew was returned to history but not to the shrine. The door was opened. No one walked through it.*
 
 He set the book down and stared at it for a long time.
 
@@ -42,13 +42,13 @@ Now he knew who was watching. And they knew he was considering options they coul
 
 They were in the king's private study three days later, the volume open between them. Yoon was old enough to remember Hyojong's early reign, careful enough to survive the decades since.
 
-"The parallel is exact," Sukjong said.
+"The parallel is close," Sukjong said. "But Wanli stopped short."
 
-Scholar Yoon was quiet for a long moment. "Yes. But Majesty should consider what the Ming court was like when Wanli made this choice."
+Scholar Yoon was quiet for a long moment. "He could afford to stop short. The Yongle Emperor built Beijing, commissioned the great encyclopedia, expanded the empire. No Ming sovereign would condemn him to restore a nephew who reigned for four years." Yoon's expression was careful. "Wanli gave Jianwen his era name back because it cost nothing. A temple name, a shrine tablet — that would have cost the dynasty its greatest ancestor."
 
-"Explain."
+"And Sejo?"
 
-"Stable. Prosperous. Wanli had ruled for thirty years. He could afford to be generous with the past." Scholar Yoon's expression was careful. "Our court is not the Ming court of that time."
+"Sejo is no Yongle. But Majesty, the principle is the same. How far you go determines what you condemn."
 
 ---
 
@@ -116,7 +116,7 @@ The decision came in autumn.
 
 He took out brush, ink, and paper. He wrote slowly, in his own hand:
 
-*The restoration of Prince Danjong may follow the precedent established by the Wanli Emperor in the restoration of Prince Jianwen. Both the wronged prince and the regent who succeeded him may be honored as legitimate. The shrine may expand to hold what division has kept separate.*
+*The Wanli Emperor restored the era name of Prince Jianwen but gave him no temple name and no place in the shrine. The door was opened but no one walked through it. In the matter of Prince Danjong, I intend to walk through it. Full restoration. Temple name. Shrine tablet. The boy-king will take his place among the royal ancestors, and the record will show that what was done to him was done wrongly.*
 
 He sat with the document in front of him.
 
