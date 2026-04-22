@@ -64,6 +64,10 @@ This client offered the name of the dispatch clerk who handled correspondence be
 
 Lady Yoon accepted before she finished reading Ok-sun's description. The routing patterns would show her which provincial correspondence the Southerner apparatus was monitoring. She could see the surveillance from the inside.
 
+She also asked Ok-sun's client a second question — whether the dispatch records showed any unusual correspondence routed through Wonju in the third month of the year her husband had traveled south. The wife passed the question to the clerk. The clerk sent back a partial answer: an authorization for county-level surveillance had been issued that month, but the authorizing name had been removed from the file copy. Someone had taken the original.
+
+Lady Yoon tapped her fingers on the desk for a long time. A trace, but not a name.
+
 ---
 
 The meeting that changed everything happened in the second year.
