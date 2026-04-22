@@ -34,11 +34,13 @@ She listened. She asked three questions. The questions told him she had been wor
 
 When she had finished her last question, the professional part of the meeting was over. She could feel the shape of it ending — the moment when the exchange was complete and the distance should return.
 
-A timber above the mill wheel had shifted during the conversation — loosened by age, leaning at an angle that would bring it down by the next rain. Yi Hwon noticed it the way he noticed everything structural. Without a word, he moved to the wall, set his shoulder under the beam, and pushed it back into its joint.
+A timber above the mill wheel had come loose — leaning at an angle that would bring it down by the next rain. Yi Hwon had noticed it when he walked in. He had said nothing about it during the exchange.
+
+Now, with the professional business finished, he walked to the wall, set his shoulder under the beam, and pushed it back into its joint.
 
 His outer robe pulled open with the effort. The inner garment tightened across his back and shoulders — and for a moment, before he settled the timber and stepped away, she saw what the robe had been covering.
 
-He straightened. He adjusted his robe. He did not look at her while he did it.
+He straightened. He adjusted his robe. He did not look at her while he did it. But he had chosen to fix the beam after the meeting, not before. She could read the timing.
 
 She stood very still. She was cataloguing — his shoulders, the way the effort had changed the shape of his back, the line of muscle she had not seen before. She was doing it the way she catalogued information: automatically, without permission. But this was not information.
 
