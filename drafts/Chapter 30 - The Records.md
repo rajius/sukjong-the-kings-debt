@@ -34,6 +34,18 @@ But something had shifted since the night she had closed the door and asked him 
 
 By the fourth night, he was staying until dawn.
 
+She said it on that fourth morning, while he was pulling on his outer robe in the grey light before the students woke.
+
+"We cannot be like this for good. People will notice eventually."
+
+He paused with the robe half on. He did not turn around.
+
+"I know," he said.
+
+The words were not an apology. They were not a promise to stop. They were the sound of a man naming what he had already chosen, the way she had named it when she closed the door.
+
+She lay in the bed and listened to him cross the courtyard. His footsteps were unhurried. A man walking to his own quarters at dawn was a man the seowon would eventually notice. She knew this. He knew this.
+
 Ok-sun brought meals and said nothing. She set the food at the edge of the desk, between the burial maps and the stone rubbings. She looked at the two of them working side by side and developed the careful reserve of a woman who had decided that whatever was happening was beyond the reach of her opinion.
 
 ---
