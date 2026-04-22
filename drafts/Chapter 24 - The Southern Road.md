@@ -48,11 +48,7 @@ By the second day the landscape changed. The capital's northern dryness gave way
 
 He knew this country. The crossroads where he had waited for her with the cart. The inn where she had slid the five questions under his door. The stream south of Jecheon where she had said "Difficult" with a smile he had carried for three years.
 
-He was not going to her. He was going to Yeongwol. The mission was the mission. The seal was the seal. The work was real and two men had died in it and the burial records needed to be found and secured before the restoration could proceed.
-
-But the road to Yeongwol passed through her provinces. The seowon where she managed household correspondence. The counties where her network moved information through channels no investigator had learned to watch. The territory she had held alone for eight years while the scholars who should have held it were dead.
-
-He would encounter her work before he encountered her. He already knew this. He had known it since Yu handed him the pouch.
+The road to Yeongwol passed through her provinces. He had known it since Yu handed him the pouch.
 
 ---
 
