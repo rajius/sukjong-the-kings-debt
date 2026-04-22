@@ -10,29 +10,27 @@ The Soron counseled restraint. The crown prince was still the crown prince. His 
 
 Sukjong sat between them and held neither position. He needed both factions to carry the Danjong restoration, and both factions were more interested in carrying their argument about Jang Hui-bin.
 
-The week before, Minister Lee from the Noron had requested a private audience. His message had been carefully phrased: concerns about administrative inconsistencies in the treatment of certain palace positions. But Sukjong understood. They wanted Jang Hui-bin's remaining privileges reduced further. Her quarters. Her allowances. The formal acknowledgment that her son remained crown prince.
+Minister Lee from the Noron requested a private audience. Concerns about administrative inconsistencies in the treatment of certain palace positions. Sukjong listened to the full argument.
 
-Sukjong had listened to the full argument, then asked a single question: "Minister Lee, does the Noron wish to take responsibility for succession stability?"
+"Minister Lee, does the Noron wish to take responsibility for succession stability?"
 
-Lee had paused. Taking responsibility meant accepting blame if the crown prince's position became contested. "The Noron seeks only proper administrative order, Your Majesty."
+Lee paused. "The Noron seeks only proper administrative order, Your Majesty."
 
-"Excellent. Then you will support proper administrative procedures for evaluating succession questions." Sukjong had smiled slightly. "I will ensure Minister Park from the Soron receives a full briefing on the Noron position regarding palace administrative consistency. Perhaps the two factions can present a joint recommendation."
+"Then you will present a joint recommendation with Minister Park from the Soron. I will ensure he receives a full briefing on your position."
 
-Lee had left understanding that pressing the issue meant working with their factional rivals on the question they least wanted to share.
+Lee left.
 
-Three days later, Minister Park from the Soron had requested his own audience. His message was equally careful: the importance of maintaining stable arrangements that served the kingdom's peace. He wanted assurance that Jang Hui-bin's position would not be reduced further.
+Three days later, Minister Park from the Soron requested his own audience. The importance of maintaining stable arrangements. Sukjong listened.
 
-Sukjong had listened, then asked: "Minister Park, does the Soron wish to take responsibility for ensuring that past administrative irregularities are not repeated?"
+"Minister Park, does the Soron wish to take responsibility for ensuring that past administrative irregularities are not repeated?"
 
-Park had recognized the trap immediately. Taking responsibility for Jang Hui-bin meant defending the very elevation that had required Queen Inhyeon's exile. "The Soron seeks only to preserve stability, Your Majesty."
+"The Soron seeks only to preserve stability, Your Majesty."
 
-"Then you will work with Minister Lee to establish clear administrative guidelines that preserve stability while maintaining proper order. I expect a joint report within the month."
+"Then you will work with Minister Lee. I expect a joint report within the month."
 
-Park had left knowing that defending Jang Hui-bin required articulating his position to the very faction that wanted her destroyed.
+Park left knowing that defending Jang Hui-bin required articulating his position to the faction that wanted her destroyed. Lee had already discovered the same problem from the other side.
 
-Both ministers would now spend weeks crafting language that satisfied neither faction completely while providing Sukjong with a compromise both could claim to have influenced. Neither faction could criticize the result without criticizing their own participation in creating it.
-
-The Danjong restoration would proceed while they argued about administrative procedures they had created together.
+The Danjong restoration would proceed while they argued.
 
 ---
 
@@ -110,11 +108,11 @@ Sukjong called for Inspector Yu.
 
 Sukjong was quiet for a moment.
 
-"The men I sent to Yeongwol are dead or deflected. The provincial officials are obstructing. Someone in the counties around the burial site is systematically removing documentation that the restoration requires."
+"The men I sent to Yeongwol are dead or deflected."
 
 "You want to send him."
 
-"I want to send someone who can survive what the last two did not. Who can read records and read rooms. Who has been in the provinces long enough to know how local resistance works. And who will send back what he actually finds, not what he thinks I want to hear."
+"Yes."
 
 Yu said nothing for a moment.
 
