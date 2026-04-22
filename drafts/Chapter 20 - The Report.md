@@ -20,7 +20,7 @@ The investigator noted this without commentary. The pattern was its own argument
 
 ---
 
-Sukjong set the report on the desk.
+Sukjong set the report on the desk and folded his hands.
 
 He had known the purge had consequences. He had known it in 1689, when he allowed Song Si-yeol's execution. He had known it in 1694, when he reversed the Hwanguk and brought the Westerners back. He had known it the way kings know the cost of their decisions — in dispatches, in numbers, in the careful language of ministers who understood that certain truths were best delivered in the passive voice.
 

@@ -56,7 +56,7 @@ Queen Inhyeon returned to the palace on a cold morning in late autumn.
 
 Sukjong received her in the throne room. She performed the required obeisances, spoke the prescribed words of gratitude. Her voice was steady. Her hands were not. He noticed them shaking against the fabric of her ceremonial robe — a small tremor she controlled before the court could see it, the way a woman controls something she has been practicing on the road for days.
 
-Five years had passed. The queen who returned was not the woman who had been sent away.
+Five years had passed. The queen who returned was not the woman who had been sent away. He almost moved to help her stand. His hands stopped at the right time.
 
 Lady Jang Hui-bin was not dismissed. She remained in the palace, her status reduced but not eliminated, her son still acknowledged as crown prince. The arrangement satisfied no one completely but provided everyone with reasons to accept what could not be changed.
 
