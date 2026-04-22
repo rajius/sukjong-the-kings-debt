@@ -58,51 +58,53 @@ She nodded. The timing was what they had discussed. The two-route delivery was r
 
 The mission was ready to conclude on two paths.
 
-Then she set down her tea cup and looked at him directly.
+Then she set down her tea cup.
 
-"If you take this work to the capital, you do not return to me as a visitor."
+"What is your plan after that?"
 
-"The seowon arrangement cannot continue indefinitely. Scholar Pak grows suspicious of your extended stay. The students ask questions. And after you carry the most dangerous work of my life to the capital..."
+He looked at her. "I will come back."
 
-She paused, looking at him across the small table.
+"Come back to what? The restoration will be complete. Yu will send you to another assignment. There will be no reason for a genealogy researcher to return to this seowon."
 
-"If I am truly choosing you, I cannot keep you as a night visitor and send you away as if nothing has changed. Marriage regularizes the future we have already chosen."
+He said nothing.
 
-"We would have to marry before I leave," he said.
+"You cannot keep inventing reasons to come south," she said. "And I cannot keep waiting for a man who arrives when the work permits and leaves when the work requires."
 
-"Yes. Before you carry the records."
+"Then come with me to the capital."
 
-She had been thinking about this since his return. About the network, which would end with her departure from the provinces. About Scholar Pak, who would lose his household manager. About the choice that had become unavoidable.
+The silence between them was long.
 
-"The cover identity creates complications," she said. "Marriage under a false name requires administrative correction."
+"I cannot move as easily as you."
 
-"Yu will handle it. The mission's completion requires proper registration."
+There were things she wanted to say. The network. The cover identity. Scholar Pak. Eight years of invisible work that could not be packed into a bundle. She swallowed all of it.
 
-Yi Hwon looked at her. "This changes everything."
+She had never struggled to say what she meant. She did not know why she could not now.
 
-"It completes what we began." Her voice was steady. "The records will reach the king. Your verification protects the network. But you do not return here as a genealogy researcher."
+Another silence. Longer than the first.
 
-She paused.
+"You can move with me as a wife," he said. "That would make it easy."
 
-"When you deliver the documents to the capital, I come with you. The work here is finished."
+Something heavy released from her chest. But not all of it.
 
-He understood. Marriage would end her eight years as the seowon's invisible manager. But the mission that had required that invisibility would be complete.
+"It is not going to be easy with me."
 
-"Where will we go?"
+"I know. Since the first time I saw you at the memorial."
 
-"Wherever you are assigned next. The cause will be transferred. The life will begin."
+"And your family."
 
-They sat with this knowledge between them. The work that had brought them together was ending. The choice of what would come next was theirs to make.
+"Yu will arrange the marriage under my real name. The certificate will carry state authority. They cannot reject a state order."
+
+Lady Yoon closed her eyes.
+
+"Before you leave, then."
 
 ---
 
 Three days later, Yi Hwon wrote to Yu.
 
-*The verification is complete. Fourteen of sixteen sites confirmed, sufficient for legal attestation. Records ready for delivery.*
+*The verification is complete. Fourteen of sixteen sites confirmed. Records ready for delivery.*
 
-*The source has transferred the records and chosen formal alliance with me. Operating under assumed scholarly identity creates administrative complications that require correction for proper completion of the delivery.*
-
-*Request instructions sufficient to complete the delivery without compromising the source or the record. The king requires the records before spring. - Yi*
+*I intend to marry the source before departing. She operates under an assumed name. The marriage requires documentation under my real name, which will expose the cover identity. Request authorization to proceed. - Yi*
 
 Yu read the letter at his desk in the capital. He read it twice.
 
@@ -116,9 +118,7 @@ The second letter would go to Yi Hwon.
 
 *Inspector Yi: Your assignment has concluded successfully. Arrangements will be made to regularize your administrative position within two weeks.*
 
-*Complete the delivery. Protect the source. Your personal entanglement does not void your professional accomplishment, provided both are managed properly.*
-
-*The king requires the records before spring. - Yu*
+*Complete the delivery. Protect the source. Your personal entanglement does not void your professional accomplishment, provided both are managed properly. - Yu*
 
 ---
 
@@ -140,29 +140,11 @@ These costs were real. She had chosen to pay them.
 
 ---
 
-After the ceremony, Yi Hwon sat at the desk where Yeong-hak had written the records that would restore Danjong. The irony was inescapable and sharp.
-
-He was writing to his family to announce a marriage made possible by his service to the crown. The same crown whose apparatus had identified Yeong-hak as a Westerner sympathizer. The same system that had read the examination registers, followed Song Si-yeol's name downward, and reached the scholars who were keeping the Danjong cause alive.
-
-Including the man whose desk he now occupied. Whose wife he had just married.
-
-Yi Hwon set his brush down and stared at the half-finished letter. He was getting what he wanted—meaningful work, a woman whose mind matched his own, a life that felt real rather than performed. But he was getting it through service to the machinery that had destroyed her first chance at such a life.
-
-The system that had killed Yeong-hak was now regularizing Yi Hwon's marriage to his widow. The apparatus that had eliminated the scholar was now legitimizing the inspector's claim to his research and his household.
-
-He picked up the brush again, finished the letter with the necessary facts. His family would receive their notification. Yu would handle the administrative corrections. The mechanisms would operate smoothly.
-
-But the discomfort would not resolve. He could serve justice through contaminated machinery, but he could not serve it cleanly. Every benefit the system provided came weighted with the knowledge of what it had already taken away.
-
-He sealed the letter and set it aside. The important correspondence was complete.
-
 The family's response arrived two days later.
 
-His father's letter was carefully formal. The marriage was acknowledged, as state documentation required. However, the choice was unexpected and the circumstances irregular. His mother expressed disappointment that proper consultations had not occurred. His younger brother noted that arrangements for the new sister-in-law's reception would need to be made, though the family remained puzzled about what had attracted him to an older provincial widow with modest connections.
+His father's letter was carefully formal. The marriage was acknowledged. The choice was unexpected. His mother expressed disappointment that proper consultations had not occurred.
 
-The tone was resigned rather than approving. They would accept what the state had legitimized, but their displeasure was clear.
-
-Yi Hwon read the letter once and set it aside. The family would do what duty required. What surprised him was how little their approval mattered now.
+Yi Hwon read the letter once and set it aside. What surprised him was how little their approval mattered now.
 
 ---
 
