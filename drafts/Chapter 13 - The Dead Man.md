@@ -34,37 +34,27 @@ He held still. He could feel the control in her arms — leverage, not strength.
 
 ---
 
-The veil loosened in the struggle. She felt it — the slackening cloth against her cheek.
+He breathed. Close enough to feel the hold, close enough to smell her — something faint beneath the plain cloth. Not perfume. Soap, maybe. Or skin. Something he had no reason to recognize.
 
-She should have tightened it.
+But he did.
 
-A draft through the doorway. The fabric lifted, settled, slipped free.
+The courtyard. The tea table. The morning air carrying something he had not thought to name. A year ago. He had not known he was keeping it.
 
-He saw part of her face first. The jaw. A cheekbone. One eye.
+He went very still. The tension in his body changed — no longer gathered for escape.
 
-Then the veil fell.
+She felt the change. She did not know what had caused it.
 
-He went very still.
-
-The courtyard. The tea table. The gaze that held a beat too long. The morning she had not returned. A year of carrying that image, and the image was here, pressed against his back, with her forearm across his throat.
-
-She felt the change in him. The tension had altered, no longer gathered for escape.
-
-She felt the change in herself. Something in her arms that was not the hold. Something that had no operational name.
-
-She stepped back at once. Not because of what he might betray. Because of what she could not account for in herself.
+She stepped back at once.
 
 ---
 
 "Turn around."
 
-He turned. She was at the far wall. Hands empty. The veil retied — hastily, the knot different from before.
+He turned. She was at the far wall.
 
 He looked at her. She looked at him. Jang lay between them on the floor.
 
 He did not say anything. He waited.
-
-She studied him — closer than the memorial, closer than across a courtyard.
 
 "You came here for the clerk," she said.
 

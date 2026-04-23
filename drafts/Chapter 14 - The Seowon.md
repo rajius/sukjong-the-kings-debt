@@ -10,11 +10,13 @@ He arrived in the clothes of a minor scholar — a credible cover for a man who 
 
 Lady Yoon was crossing the courtyard with her arms full of cloth.
 
-She saw him before he saw her. He felt the weight of her attention before he turned. When he did turn, her face was perfectly composed. She set down the cloth and bowed to him as a stranger.
+She saw him before he saw her. He felt the weight of her attention before he turned. When he did turn, her face was perfectly composed . She set down the cloth and bowed to him as a stranger.
 
 "Master Park," Master Pak said. "Lady Yoon manages our household correspondence. You may speak with her in the small study."
 
 She led him through the back of the building without a word. She closed the door behind them and turned.
+
+The face from the courtyard. The scent from the dark room. He knew.
 
 "What are you doing in my sanctuary?"
 

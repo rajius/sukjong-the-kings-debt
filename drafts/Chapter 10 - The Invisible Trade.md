@@ -2,7 +2,7 @@
 
 The first woman she lost was named Hwang.
 
-Hwang was the wife of a retired clerk in the county seat — a careful woman, literate, connected through her husband to the local magistrate's office. Ok-sun had recruited her. Lady Yoon had never met her. That was the design: Lady Yoon knew Ok-sun. Ok-sun knew Hwang. Hwang knew her two contacts in the market town. No one in the chain could see more than one link in either direction.
+Hwang was the wife of a retired clerk in the county seat — a careful woman, literate, connected through her husband to the local magistrate's office. Ok-sun had recruited her. Ok-sun's husband had died the year after Lady Yoon arrived at the seowon, and she had moved into the household — a widow helping a widow, unremarkable to anyone watching. Lady Yoon had never met her. That was the design: Lady Yoon knew Ok-sun. Ok-sun knew Hwang. Hwang knew her two contacts in the market town. No one in the chain could see more than one link in either direction.
 
 Ok-sun had identified Hwang at a gathering where the conversation had turned, as Lady Yoon had arranged for it to turn, to the difficulty of obtaining reliable information about provincial appointments. Hwang had said something sharp — the kind of observation that showed she understood what she was paying attention to. Ok-sun had waited two weeks, then approached her with a letter about fabric that carried a question about dispatch routes. Hwang had answered both.
 
