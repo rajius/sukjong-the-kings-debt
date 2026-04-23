@@ -14,7 +14,7 @@ Stone rubbings. Memorial tablets. The handwriting of a man he had never met — 
 
 He read the annotations. The burial location of each Danjong loyalist, verified against local records that contradicted the official county registers. The correspondences proving that the graves existed where the court had been told they did not. The stone rubbing of Eom Heung-do's memorial tablet — the one the provincial officials had claimed was destroyed.
 
-It was here. On his desk.
+It was here. On his desk. The provincial officials had claimed the tablet was destroyed. The locals had kept it for two hundred years.
 
 "Who made these?" Sukjong said.
 

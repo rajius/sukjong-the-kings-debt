@@ -98,7 +98,7 @@ The persimmon trees were heavy with fruit. The morning light came through the br
 
 She had told him to go back. To the handkerchief. To the girl who cared for him. She had put the sun behind her so he could not read her face. She had calculated every element of the refusal — the words, the positioning, the exit. She had been right. She had been correct in every particular.
 
-And somewhere in the years after she sent him home, he had gone to a port city and gotten himself stabbed because a man with nothing to return to does not leave when he should.
+And somewhere in the years after she sent him home, he had gone to a port city and gotten himself stabbed.
 
 She looked at the scar. The robe had shifted again. The white ridge of tissue ran along his thigh — permanent, structural, the kind of mark that changed a man's gait and did not fade.
 
