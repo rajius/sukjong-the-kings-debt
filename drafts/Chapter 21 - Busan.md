@@ -178,6 +178,14 @@ He stitched the wound himself, the way his father had taught him to stitch field
 
 ---
 
+Ok-sun's network carried the Busan story within a week. A young inspector had uncovered a grain operation, been warned, been stabbed, and stayed to file his report before treating the wound.
+
+Lady Yoon read the account and set it aside. Brave and stupid. A man with experience would have sent the report from a safe distance and let the capital handle the arrests.
+
+She filed it under port logistics and moved on.
+
+---
+
 The report reached Inspector Yu's office before Yi Hwon did.
 
 He stayed in Busan three more days — long enough for the wound to close, long enough to file the formal complaint against Magistrate Cho, long enough to ensure the courier carrying his sealed findings was two days ahead of anyone who might want to stop him.

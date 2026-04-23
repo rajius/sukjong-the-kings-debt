@@ -1,16 +1,12 @@
 # Chapter 32 — The Procession
 
-Sukjong read the morning reports at his desk, but his attention kept drifting to the restoration decree filed among the completed business. Three months since the announcement, and the responses were arriving exactly as he had anticipated.
+Sukjong stood at the window the morning before the procession.
 
-The Noron celebrated it as vindication of their scholarly tradition. The Soron accepted it because opposing historical justice served no political purpose. But other reactions were more interesting.
+The restoration decree was three months old. Danjong's name would enter the Jongmyo shrine tomorrow, two hundred and forty years late. The boy-king would take his place in the formal succession, as if the delay had been an administrative matter.
 
-Lady Jang had grown quiet since the decree — too quiet. Her faction had built influence by positioning themselves as protectors of royal prerogative, and a restoration that elevated a deposed king complicated that narrative. Sukjong expected her next move within the year.
+He thought about the essay. The scholar boy had been sixteen. Accurate in one account, naive in another. A king did not only pay the debt. He balanced the factions, secured the succession, and maintained the throne that made the payment possible — all from the same purse, all at the same time. If the boy had lived to see this day, he might have understood that.
 
-The Southerner remnants were stirring as well. Danjong's rehabilitation gave them a historical precedent for questioning royal decisions, and some of the younger scholars were already writing essays about "correcting past injustices" with broader implications.
-
-Most intriguing were the reports from the provinces. Minor officials who had been involved in suppressing Danjong loyalist activities were now requesting transfers to avoid association with the "corrected" history. The restoration had created ripples that would reach into unexpected places.
-
-Sukjong set down the report and looked out the window toward the ceremony preparations. In two days, the Jongmyo ritual would proceed with Danjong's name properly included among the royal ancestors. The boy-king would take his place in the formal succession, as if the past two hundred and forty years had been a temporary oversight.
+The scholars who should have seen this morning were dead because he could not pay one debt without defaulting on another.
 
 ---
 
@@ -44,6 +40,8 @@ King Sukjong moved past in robes that caught the morning light, surrounded by th
 
 The one who had invited Song Si-yeol back from exile and then ordered his death. The one who had, in his way, taken one husband from her and sent another.
 
+She imagined a better arrangement: one in which setting one thing right did not require the breaking of something else. One in which justice did not arrive carrying fresh damage in its hands.
+
 Once, she would have carried a thought like this home and heard it made sharper in reply.
 
 She absorbed what she could. She would only see him once.
@@ -55,3 +53,5 @@ She nodded. Enough.
 They walked to the cart.
 
 The procession continued toward the shrine.
+
+Inside the palace, letters were already being written to prepare for the next move.
