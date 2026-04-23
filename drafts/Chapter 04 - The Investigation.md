@@ -136,7 +136,7 @@ She nodded, once.
 
 He picked up the document. She returned to the sleeve.
 
-The room was quiet and warm, and the distance between them was precisely the distance he had chosen.
+The room was quiet and warm. The distance was his.
 
 ---
 

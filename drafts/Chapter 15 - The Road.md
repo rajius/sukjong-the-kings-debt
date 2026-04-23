@@ -76,7 +76,7 @@ She watched the stream.
 
 She paused, surprised by the admission. "I was grateful for the freedom. But I was also lonely in it sometimes."
 
-She had not said this to anyone. Not to Ok-sun. Not to Scholar Pak. Not in five years. She had not even acknowledged it clearly to herself — that gratitude and loneliness could live in the same memory, that his best gift to her had grown from his deepest limitation.
+She had not said this to anyone in these five years. She did not even acknowledge it clearly to herself that his best gift to her had grown from his deepest limitation.
 
 The stream moved over the stones. He filled the gourd. The water was cold.
 
