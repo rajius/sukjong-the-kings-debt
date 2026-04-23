@@ -96,21 +96,25 @@ Lady Yoon closed her eyes.
 
 Three days later, Yi Hwon wrote to Yu.
 
-*The verification is complete. Fourteen of sixteen sites confirmed. Records ready for delivery.*
+*The verification is complete. Fourteen of sixteen sites confirmed, sufficient for legal attestation. Records ready for delivery.*
 
 *I intend to marry the source before departing. She operates under an assumed name. The marriage requires documentation under my real name, which will expose the cover identity. Request authorization to proceed. - Yi*
 
-Yu read the letter at his desk in the capital. He read it twice.
+Yu read the letter at his desk in the capital.
+
+In twenty years of managing provincial assignments, he had not received quite this combination of success and complication. The man had secured the most important intelligence cache in a generation and gotten himself personally entangled with the source. The professional judgment appeared sound. The personal judgment remained to be seen.
 
 He called for paper and brush.
 
-The first letter would go to the administrative clerk. Marriage record to be transferred to service file. The clerk would ask no questions.
+The first letter would go to the administrative clerk. A routine notation: Inspector Yi Hwon's provincial assignment required documentation under assumed identity. Marriage record to be transferred to service file for legitimacy. The clerk would ask no questions.
 
 The second letter would go to Yi Hwon.
 
 *Inspector Yi: Your assignment has concluded successfully. Arrangements will be made to regularize your administrative position within two weeks.*
 
-*Complete the delivery. Protect the source. Your personal entanglement does not void your professional accomplishment, provided both are managed properly. - Yu*
+*Complete the delivery. Protect the source. Your personal entanglement does not void your professional accomplishment, provided both are managed properly.*
+
+*- Yu*
 
 ---
 
@@ -118,28 +122,42 @@ They held a small wedding the following week.
 
 To the neighborhood, a capital man marrying a provincial widow before returning to his assignment was unremarkable. The ceremony was brief. Ok-sun stood witness.
 
-Scholar Pak received the news without surprise.
+Scholar Pak received the news with resignation, though not surprise. He had observed their collaboration over the past months — the genealogy researcher's extended stay, the evening consultations over archival materials, the careful professional courtesy that had gradually become something less formal.
 
-"Scholarly partnerships often deepen when the work is... substantial," he said quietly.
+"I wondered when this might develop," he said quietly to Lady Yoon when they discussed the arrangements. "Scholarly partnerships often deepen when the work is... substantial."
 
-She watched his face during the ceremony and saw the cost.
+He offered congratulations and made arrangements for her departure from the seowon, though she could see he understood more about the nature of their "research" than he had ever acknowledged.
 
----
-
-His father's letter arrived two days later. Carefully formal. The marriage acknowledged, the choice unexpected, the disappointment clear.
-
-Yi Hwon read it once and set it aside.
+But she watched his face during the ceremony and saw the cost. He would have to find someone else to manage the correspondence, the accounts, the delicate balance of keeping a seowon running without attracting attention. Her departure left him exposed in ways that would take months to repair.
 
 ---
 
-That night she lay in the dark, his hand in hers, and thought about what had changed and what had not.
+After the ceremony, Yi Hwon wrote to his family.
 
-She pressed his hand.
+The letter was brief. He had married a widow of good family in the provinces. His assignment would conclude within the month. He expected reassignment to the capital by spring.
+
+The family's response arrived two days later.
+
+His father's letter was carefully formal. The marriage was acknowledged, as state documentation required. However, the haste was unfortunate and the circumstances irregular. His mother expressed disappointment that proper consultations had not occurred. His younger brother noted that arrangements for the new sister-in-law's reception would need to be made, though the family remained curious about what urgent circumstances had necessitated such speed.
+
+Yi Hwon read the letter once and set it aside.
+
+---
+
+She read the letter over his shoulder.
+
+"What does it mean?" she said.
+
+"It means you can only lean on my earnings to live."
+
+"I have been there before."
 
 ---
 
 Three days after the wedding, the copies departed. She watched Ok-sun's brother disappear down the back path.
 
-Within the week, Yi Hwon departed for the capital alone. Two routes, two chances.
+Within the week, Yi Hwon departed for the capital, carrying the original records and his verification report under royal protection. Two routes, two chances.
 
 Lady Yoon watched him disappear down the path toward the main road.
+
+She closed the door and began packing the household she would never manage again.
