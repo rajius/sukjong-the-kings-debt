@@ -14,23 +14,23 @@ Stone rubbings. Memorial tablets. The handwriting of a man he had never met — 
 
 He read the annotations. The burial location of each Danjong loyalist, verified against local records that contradicted the official county registers. The correspondences proving that the graves existed where the court had been told they did not. The stone rubbing of Eom Heung-do's memorial tablet — the one the provincial officials had claimed was destroyed.
 
-It was not destroyed. It was here. On his desk. Documented by a dead man's hand.
+It was here. On his desk.
 
 "Who made these?" Sukjong said.
 
 "The inspector's report does not identify the source," Yu said. "Protocol."
 
-Sukjong looked at the handwriting. Not the inspector's. Someone else. Someone with a classical education, who wrote with the precision of a man who had passed the munkwa.
+Sukjong looked at the handwriting. Not the inspector's. Someone else. Someone with a classical education.
 
 "This person is dead," Sukjong said.
 
 Yu said nothing. There were things the protocol did not require him to confirm.
 
-"These records have been maintained by someone else," Sukjong said. "For years. The annotations continue past the date of the original documentation. Someone preserved them. Someone kept them current."
+"These records have been maintained by someone else," Sukjong said. "For years. The annotations continue past the date of the original documentation. Someone kept them current."
 
-"The inspector's report addresses the obstruction, the burial site assessment, and the status of the provincial records," Yu said carefully. "It does not address the means by which the records were preserved."
+"The inspector's report addresses the obstruction, the burial site assessment, and the status of the provincial records," Yu said carefully.
 
-Sukjong understood. The inspector had protected his source. The records were here. The source was not. That was the inspector's choice, and it was the right one.
+Sukjong understood. The inspector had protected his source.
 
 He closed the case, then opened it again, studying the handwriting once more. He had seen it before — a munkwa essay, the winning paper from a year when the candidate was sixteen. He had read it because sixteen was remarkable. The prose had been clear, precise, without vanity.
 
@@ -48,11 +48,17 @@ Nam read. He read slowly — the annotations, the rubbings, the handwriting of t
 
 Sukjong waited.
 
-"Governor Kim will argue that records preserved outside official channels cannot serve as evidence for a royal decree. He will be correct, according to administrative protocol." Nam paused. "But administrative protocol also requires that provincial registers be complete. His are not. The question is whether the court examines the gap in the records or the gap in Governor Kim's custody of them."
+"Governor Kim will argue that records preserved outside official channels cannot serve as evidence for a royal decree. He will be correct, according to administrative protocol."
 
-Sukjong said nothing.
+"He can be wrong," Sukjong said.
 
-"A correction of administrative oversight," Nam said, as if thinking aloud. "Not a vindication. Not a reversal. The decree cites incomplete provincial registers. The restoration becomes procedural. Governor Kim's choice is cooperation or an audit of his own record-keeping."
+Nam looked at the king. Then at the case. Then at the king again.
+
+A long silence.
+
+"Administrative protocol also requires that provincial registers be complete," Nam said slowly. "His are not. The question is whether the court examines the gap in the records or the gap in Governor Kim's custody of them."
+
+"A correction of administrative oversight," Nam said. "Not a vindication. Not a reversal. The decree cites incomplete provincial registers. The restoration becomes procedural. Governor Kim's choice is cooperation or an audit of his own record-keeping."
 
 Nam looked at the king. Sukjong's expression had not changed.
 
@@ -60,15 +66,15 @@ Nam looked at the king. Sukjong's expression had not changed.
 
 Sukjong picked up his seal. "Draft the language tonight."
 
-Nam bowed and left. He had not been told what the king wanted. He had not needed to be.
+Nam bowed and left.
 
 ---
 
 The formal decree was issued in the eleventh month. King Danjong — stripped of his title two hundred and forty years ago, exiled to Yeongwol, killed at seventeen — was restored to full royal status. His posthumous name was elevated. The shrine at Yeongwol was ordered repaired. The remaining loyalists who had died defending him were rehabilitated — their names restored, their families recognized. The work King Jungjong had begun with the Six Martyred Ministers was finally completed.
 
-The court received the decree with the practiced solemnity of men who understood that opposing a king's act of historical correction was unwise regardless of personal opinion. The Noron supported it as vindication of their scholarly tradition. The Soron supported it because opposing the Noron on this point was not worth the cost. The few remaining Southerner sympathizers in the capital said nothing.
+The record would show that King Sukjong, in the twenty-fourth year of his reign, had corrected a historical injustice through royal wisdom and moral authority. The invisible price paid by others was buried.
 
-The decree was filed. The shrine was repaired. The names were restored.
+The court received the decree with the practiced solemnity of men who understood that opposing a king's act of historical correction was unwise regardless of personal opinion. The Noron supported it as vindication of their scholarly tradition. The Soron supported it because opposing the Noron on this point was not worth the cost. The few remaining Southerner sympathizers in the capital said nothing.
 
 ---
 
@@ -108,30 +114,37 @@ As they drove away, she looked back once at the courtyard.
 
 ---
 
-In their small house in the capital, that evening, she showed Yi Hwon where she had placed Yeong-hak's memorial tablet in the main room.
+The letter arrived on a morning when Yi Hwon was at the ministry.
 
-"He should see this," she said, touching her belly.
+Ok-sun had found her. The handwriting was cautious, the phrasing careful, but unmistakably hers.
 
-Yi Hwon looked at the tablet, then at her. "Spring," he said. Not a question.
+*The seowon manages adequately. Scholar Pak sends regards. The household routines continue, though arrangements remain different. Some inquiries have come through the usual channels about whether previous arrangements might resume.*
 
-"The physician confirmed it before we left the provinces."
+*If circumstances permit, I would welcome news of your new situation. The old concerns no longer apply, but friendship remains.*
 
-They sat together in the lamplight of their new home.
+*Respectfully, Ok-sun*
+
+Lady Yoon read the letter twice. She sat for a long time before picking up the brush.
+
+An inspector's wife could not move the way a widow could. Every association noted, every letter observed. Reactivating the network from this house would expose everyone in it.
+
+*Ok-sun: I am grateful for your letter. Please give Scholar Pak my regards.*
+
+*The capital keeps me busy. My husband's household requires attention I did not anticipate. I am afraid I have little time for correspondence these days.*
+
+*I hope the autumn cloth prices have settled. Please do not trouble yourself to write again on my account — the post is unreliable this far north.*
+
+*With warm regards, Lady Yi*
+
+She sealed the letter.
 
 ---
 
 The house was quiet in the afternoons.
 
-She sat at the desk and did not write. The name that owed her did not need it. The network was dormant — an inspector's wife could not move the way a widow could. But she could still find the man if she wanted.
+She sat at the desk and did not write. The name that owed her did not need it. The network was dormant. But she could still find the man if she wanted.
 
 The child moved.
 
 She sat with her hand on her stomach for a long time.
 
----
-
-The record would show that King Sukjong, in the twenty-fourth year of his reign, had corrected a historical injustice through royal wisdom and moral authority.
-
-The record would not show the stone rubbings made by a dead scholar in a province where his name had been erased. It would not show the widow who had carried them for eight years through a network the king had never seen. It would not show the inspector who had been stabbed in Busan, who had walked south with a seal against his chest, who had taken a blade meant for someone else on a mountain trail.
-
-The king's name went on the decree.
