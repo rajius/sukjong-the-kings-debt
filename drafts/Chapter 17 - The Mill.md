@@ -34,17 +34,11 @@ She listened. She asked three questions. The questions told him she had been wor
 
 When she had finished her last question, the professional part of the meeting was over. She could feel the shape of it ending — the moment when the exchange was complete and the distance should return.
 
-A timber above the mill wheel had come loose — leaning at an angle that would bring it down by the next rain. Yi Hwon had noticed it when he walked in. He had said nothing about it during the exchange.
+He turned to leave. A fallen beam blocked the path to the door. He crouched, gripped it, and moved it aside in one motion — the way a man moves something heavy when he has been moving heavy things since boyhood and no longer thinks about it.
 
-Now, with the professional business finished, he walked to the wall, set his shoulder under the beam, and pushed it back into its joint.
+She noticed. Not the shoulders. The ease. Yeong-hak had carried his body like a vehicle for his mind. This one lived in his.
 
-His outer robe pulled open with the effort. The inner garment tightened across his back and shoulders — and for a moment, before he settled the timber and stepped away, she saw what the robe had been covering.
-
-He straightened. He adjusted his robe. He did not look at her while he did it. But he had chosen to fix the beam after the meeting, not before. She could read the timing.
-
-She stood very still. She was cataloguing — his shoulders, the way the effort had changed the shape of his back, the line of muscle she had not seen before. She was doing it the way she catalogued information: automatically, without permission. But this was not information.
-
-"We will meet once more," she said. Her voice was steady. It cost her something to make it steady.
+"We will meet once more," she said.
 
 "When?"
 
@@ -52,6 +46,6 @@ She did not answer immediately. She was looking at the mill wheel — the old me
 
 "When I have decided what to do about you," she said.
 
-She turned and walked toward the trees. At the treeline she stopped and looked back — not at his face, but at his shoulders.
+She turned and walked toward the trees.
 
 The man in woodcutter's clothes stepped out from behind the pine and walked beside her. He carried her travel bundle. Yi Hwon had not seen her bundle until the man was carrying it.

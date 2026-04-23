@@ -38,9 +38,7 @@ They had been his people.
 
 And he had killed them.
 
-Not by order. Not by intent. By the machinery he set in motion when he broke the Westerners in 1689. He had needed to assert that the king — not the ministers — determined the succession. He had needed to show that royal authority was not a courtesy the factions extended at their pleasure. The decision had been real. The necessity had been real.
-
-But the machinery did not distinguish between the faction men he had meant to discipline and the scholars who happened to share a teacher's name. The purge read the examination registers without discrimination, without interest in what a man had actually believed or built. It found Song Si-yeol's name and followed it downward through every student, every seowon, every household that had received a letter from someone in his circle.
+The machinery he set in motion when he broke the Westerners in 1689 did not distinguish between the faction men he had meant to discipline and the scholars who happened to share a teacher's name. The purge read the examination registers without discrimination, without interest in what a man had actually believed or built. It found Song Si-yeol's name and followed it downward through every student, every seowon, every household that had received a letter from someone in his circle.
 
 Among the men it reached were the ones who had been keeping the Danjong cause alive.
 

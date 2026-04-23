@@ -32,10 +32,6 @@ Sukjong watched Pak's eyes move across the volumes, settling briefly on the Ming
 
 After Pak left, Sukjong waited. By the afternoon, he knew the scholar had visited three separate advisors before returning to his quarters. By evening, word had traveled to the Southern faction leadership. By the following morning, Minister Park's questions about "scholarly activities in the provinces" had taken on new urgency.
 
-Sukjong had not revealed his intentions. He had simply asked about precedents. But the question had been enough to activate every network that feared what those precedents might justify.
-
-Now he knew who was watching. And they knew he was considering options they could not control.
-
 ---
 
 "You have read it," Scholar Yoon said.

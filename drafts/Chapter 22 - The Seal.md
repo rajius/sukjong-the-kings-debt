@@ -44,10 +44,6 @@ He had noticed her in the palace before any faction had a use for her. A court a
 
 She had understood it better than he had. What he thought was openness had been ambition held very still. What he thought was warmth had been patience — the patience of someone waiting for the door to open wide enough to step through. When the door opened, she had not hesitated. She wanted the queen's seat. She wanted her son secured. She had pushed for the elevation that required Inhyeon's removal, and the Southerners had aligned with her because her ambition and their opportunity pointed in the same direction.
 
-He had opened the gate in 1689 because she asked him to — not in those words, not as faction politics, but in the language of the room they shared. And the gate, once open, had admitted everything he had not calculated: Song Si-yeol's death, the purge, the scholars, the damage in seven counties that a report on his desk now measured in names and silences.
-
-The woman he had noticed in the palace was gone. What remained was the political figure she had built herself into — and that figure was the cost he could see every time he looked toward her wing.
-
 ---
 
 The restoration was ready. The formula was sound. The political support, while fractured, was sufficient. The historical argument — the Wanli parallel, the recognition that Danjong's deposition had been unjust — had been filed, refined, and prepared for formal presentation.

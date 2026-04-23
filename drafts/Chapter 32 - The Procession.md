@@ -48,7 +48,7 @@ She absorbed what she could. She would only see him once.
 
 The child moved beneath her hand. Yi Hwon looked at her.
 
-She nodded. Enough.
+She nodded. This one is enough.
 
 They walked to the cart.
 

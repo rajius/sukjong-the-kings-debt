@@ -70,9 +70,7 @@ He had departed the morning of the coronation, before the ceremony was finished.
 
 Sukjong tried twice more. He asked the old scholar to write his father's memorial inscription -- the highest honor a king could offer. Song Si-yeol declined. The refusal said what it was designed to say: *you are fourteen years old, and your father handed the court to my enemies. I will wait until you come to me on acceptable terms.*
 
-Sukjong sat on the throne his father had left him, in a court full of men who had been placed there by a dying king's last judgment. He was king. The word meant nothing if the men who were supposed to serve him could simply walk away.
-
-He did not think of Danjong then. He had heard the story from his tutor the year before, but at fourteen it was still history -- a boy in a lesson, not a boy in a mirror.
+He did not think of Danjong then.
 
 ---
 
@@ -82,9 +80,7 @@ One was not routine.
 
 The memorial from the Left State Councillor concerned other loyalists who had died defending Danjong two hundred and twenty-four years before: Hwangbo In, Kim Jong-seo, men Sejo had destroyed for standing between him and a boy's throne. The Six Martyred Ministers had been restored generations ago under King Jungjong, their names cleared and their sacrifice honored. But others who had fallen in the same cause remained unacknowledged. The memorial asked for their rehabilitation -- the restoration of their names, their ranks, the acknowledgment that what had been done to them was wrong.
 
-Sukjong read the memorial in his private study. He read it twice. The memorial asked for the loyalists who had died defending Danjong two hundred years before -- but it did not ask for the boy himself.
-
-The logic had a gap. You could not call these men loyal without asking: *loyal to whom?* Once you answered that question, you had admitted the boy was worth defending.
+Sukjong read the memorial in his private study. The memorial asked for the loyalists, but not Danjong himself.
 
 He set the memorial down and thought of what his tutor had told him seven years ago. A name the memorial did not contain: Eom Heung-do. A commoner who had pulled the boy's body from the river and carried it up the mountain in the dark and buried it because someone had to. No official had ever acknowledged the act. The grave had no royal marker. The man who performed the burial had no memorial.
 
@@ -108,9 +104,7 @@ Sukjong had done the arithmetic without being asked. The boy had been twelve whe
 
 Then the tutor said: "Your father received a memorial this week asking him to correct this. He will not correct it. The men who hold power in his court do not want it corrected. Remember that -- not as a judgment of your father, but as a fact about courts. A king sees what he is permitted to see. The petition your father did not answer will come to you. It may take years. It may take the right men standing in the right positions. But it will come, because the people who carry this do not stop."
 
-Sukjong had been thirteen. He had understood the history. He had not understood the weight. That came later -- after the coronation, after Song Si-yeol's empty chair, after the years of sitting on a throne that rested on a silence he could no longer maintain without feeling the cost.
-
-Now the weather had changed. Sukjong's overthrow had swept the old faction out and installed the new. The Left State Councillor's memorial had arrived on his desk asking for the loyalists -- and no one, not the Left State Councillor, not the scholars in the seowon, was asking for the boy himself. They were asking for the men who died defending him. Sukjong was the one who saw that the defenders were not the end of the argument. They were the beginning.
+He was wondering why no one — not the Left State Councillor, not the scholars in the seowon — was asking for the boy himself.
 
 When Sukjong thought of the boy -- crowned at twelve, surrounded by men who could destroy him -- something moved. He had sat on the same throne at the same age. The difference was the uncle.
 

@@ -50,8 +50,6 @@ Min bowed. "As Your Majesty commands."
 
 After Min departed, Sukjong remained at the window. He had just condemned sixty men to death and perhaps two hundred more to disgrace. Some deserved it. Others had merely chosen intellectual allegiance poorly.
 
-But the choice had been made before they lifted their brushes. By opposing the elevation of Jang Hui-bin, by maintaining loyalty to a deposed queen, they had positioned themselves between the king and his necessary acts. That position was not survivable.
-
 The purge began the same afternoon.
 
 ---

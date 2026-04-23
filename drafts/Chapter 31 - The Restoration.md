@@ -140,6 +140,24 @@ She sealed the letter.
 
 ---
 
+Yi Hwon's mother poured tea with the precision of a woman performing hospitality as a form of assessment.
+
+"The neighbors continue to ask about your family connections," she said. "I find myself limited in what I can tell them."
+
+"My first husband's family were minor scholars in Chungju," Lady Yoon replied. "Nothing remarkable."
+
+"Nothing established in the capital, no." His mother adjusted the tea service unnecessarily. "They also wonder what qualities attracted such a promising young man to..." She gestured delicately.
+
+"To a woman of my years?" Lady Yoon kept her voice level.
+
+"The circumstances do seem irregular to those who know our family's usual expectations." She paused. "Though of course, your condition has quieted some concerns."
+
+"People will form their opinions regardless of the actual circumstances."
+
+"Yes," his mother agreed. "They will."
+
+---
+
 The house was quiet in the afternoons.
 
 She sat at the desk and did not write. The name that owed her did not need it. The network was dormant. But she could still find the man if she wanted.
