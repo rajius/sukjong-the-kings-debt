@@ -46,25 +46,17 @@ Nam arrived within the hour. Sukjong said nothing. He gestured to the open case 
 
 Nam read. He read slowly — the annotations, the rubbings, the handwriting of the dead scholar. When he finished, he closed the case and sat with his hands folded.
 
-"The provincial authorities will question the provenance," Nam said.
-
-Sukjong waited.
-
-"Governor Kim will argue that records preserved outside official channels cannot serve as evidence for a royal decree. He will be correct, according to administrative protocol."
+"Governor Kim will say that papers kept outside the offices cannot ground a royal decree," Nam said. "By the court's own usage, he will not be wrong."
 
 "He can be wrong," Sukjong said.
 
-Nam looked at the king. Then at the case. Then at the king again.
-
 A long silence.
 
-"Administrative protocol also requires that provincial registers be complete," Nam said slowly. "His are not. The question is whether the court examines the gap in the records or the gap in Governor Kim's custody of them."
+"By that same usage, provincial registers must be whole," Nam said slowly. "His are not. Let the court look first not at where these papers were kept, but at what is absent from Governor Kim's keeping."
 
-"A correction of administrative oversight," Nam said. "Not a vindication. Not a reversal. The decree cites incomplete provincial registers. The restoration becomes procedural. Governor Kim's choice is cooperation or an audit of his own record-keeping."
+"Then frame it as a correction of the registers," Nam said. "Not an open reversal. Let the decree speak of incomplete records and neglected rites. Governor Kim may comply, or answer for the state of his own books."
 
-Nam looked at the king. Sukjong's expression had not changed.
-
-"The inspector's report should be classified," Nam continued. "The sources remain protected. The inspector himself — a period of assignment outside the capital would discourage questions about his methods."
+"The inspector's report stays sealed," Nam continued. "The sources remain hidden. And the inspector himself should serve for a time away from the capital. Questions cool when the man is elsewhere."
 
 Sukjong picked up his seal. "Draft the language tonight."
 
@@ -72,11 +64,9 @@ Nam bowed and left.
 
 ---
 
-The formal decree was issued in the eleventh month. King Danjong — stripped of his title two hundred and forty years ago, exiled to Yeongwol, killed at seventeen — was restored to full royal status. His posthumous name was elevated. The shrine at Yeongwol was ordered repaired. The remaining loyalists who had died defending him were rehabilitated — their names restored, their families recognized. The work King Jungjong had begun with the Six Martyred Ministers was finally completed.
+The decree went out in the eleventh month. King Danjong — stripped of his title two hundred and forty years before, exiled to Yeongwol, killed at seventeen — was restored to royal rank. His posthumous name was raised. The shrine at Yeongwol was to be repaired. The remaining loyalists were restored with him. What had been paid for this did not enter the decree.
 
-The record would show that King Sukjong, in the twenty-fourth year of his reign, had corrected a historical injustice through royal wisdom and moral authority. The invisible price paid by others was buried.
-
-The court received the decree with the practiced solemnity of men who understood that opposing a king's act of historical correction was unwise regardless of personal opinion. The Noron supported it as vindication of their scholarly tradition. The Soron supported it because opposing the Noron on this point was not worth the cost. The few remaining Southerner sympathizers in the capital said nothing.
+In court the ministers received it with lowered heads. The Noron took it as vindication. The Soron did not choose this ground for battle. The few Southerners still left in the capital kept their counsel.
 
 ---
 

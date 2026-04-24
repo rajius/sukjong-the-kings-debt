@@ -4,7 +4,7 @@ Sukjong stood at the window the morning before the procession.
 
 The restoration decree was three months old. Danjong's name would enter the Jongmyo shrine tomorrow, two hundred and forty years late. The boy-king would take his place in the formal succession, as if the delay had been an administrative matter.
 
-He thought about the essay. The scholar boy had been sixteen. Accurate in one account, naive in another. A king did not only pay the debt. He balanced the factions, secured the succession, and maintained the throne that made the payment possible — all from the same purse, all at the same time. If the boy had lived to see this day, how would he update his essay? Sukjong questioned silently.
+He thought about the essay. The scholar boy had been sixteen. Accurate in one account, naive in another. A king did not only pay the debt. He balanced the factions, secured the succession, and maintained the throne that made the payment possible — all from the same purse, all at the same time. If the boy had lived to see this day, would he have judged him harshly, or understood at last what a king must spend?
 
 ---
 
@@ -36,4 +36,6 @@ They walked to the cart.
 
 The procession continued toward the shrine.
 
-Inside the palace, letters were already being written to prepare for the next move.
+In the provinces, grandmothers would not have to sing that song anymore. Scholars would not have to pass the secret question to their chosen students.
+
+Queen Inhyeon would be dead within two years. Jang Hui-bin would follow her.
