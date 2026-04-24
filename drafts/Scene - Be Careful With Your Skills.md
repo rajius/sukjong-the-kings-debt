@@ -36,7 +36,7 @@ She paused to refill his bowl.
 
 "I didn't tell her what it meant. I just placed the two things next to each other. She's intelligent. She could see it herself — that her brother's office was likely under review by a new superior, and that the changes were significant enough to affect even the local school. I thought it would ease her worry to know at least the shape of what was happening, even if the details were unclear."
 
-She continued with the rest of the day's account — the draper's new stock from the capital, the rumor that the ferry crossing would be closed for repairs. Small things. Ordinary texture.
+She continued with the rest of the day's account — the fabric merchant's new stock from the capital, the rumor that the ferry crossing would be closed for repairs. Small things. Ordinary texture.
 
 When she finished, the room was quiet.
 

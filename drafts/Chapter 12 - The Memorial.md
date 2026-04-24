@@ -36,7 +36,7 @@ Yi Hwon considered the question carefully. "No, sir. I thought it should be file
 
 Yu picked up a second document from his desk. "Your previous supervisor also submitted an assessment. He noted your ability to... distinguish between what people say and what they mean." Yu's tone was neutral. "Particularly with local merchants who had reasons to misrepresent their inventory levels."
 
-Yi Hwon said nothing. That assignment had required him to identify which traders were lying about their grain reserves to avoid taxation. He had developed a system: watch their hands when they spoke numbers, notice which details they elaborated unnecessarily, observe how they positioned themselves when discussing specific transactions. It had been effective. Three merchants had been fined. One had lost his license.
+Yi Hwon said nothing. Three merchants had been fined. One had lost his license.
 
 "He also noted that you seemed... comfortable with this type of assessment," Yu continued. "Reading people as patterns rather than individuals."
 

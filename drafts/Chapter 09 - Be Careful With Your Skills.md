@@ -4,9 +4,9 @@ The letter that ended the forgeries arrived three weeks after the young man's vi
 
 Two letters came on the same morning. The first was routine — an inquiry about genealogical records from a scholar in Andong, addressed to Master Kim. Lady Yoon prepared her usual careful reply.
 
-The second was addressed to "Scholar Yi, regarding recent provincial assessments," but had been delivered to the seowon by mistake. The messenger had confused similar-sounding addresses and left it before anyone could correct the error.
+The second was addressed to "Scholar Gwon, regarding recent provincial assessments," but had been delivered to the seowon by mistake. The messenger had confused similar-sounding addresses and left it before anyone could correct the error.
 
-Lady Yoon noticed the seal. Official, high-quality paper, formal chancellery script. The kind of correspondence that did not find its way to provincial seowon by accident.
+Lady Yoon noticed the seal. Official, high-quality paper, formal secretariat script. The kind of correspondence that did not find its way to provincial seowon by accident.
 
 She opened it.
 
@@ -16,11 +16,11 @@ She opened it.
 
 Lady Yoon read the letter three times.
 
-Scholar Yi was not a local official. He was an investigator working for the capital, monitoring exactly the kind of research she had been facilitating. Someone at the ministerial level was coordinating surveillance of genealogical inquiries, targeting networks connected to Song Si-yeol's students.
+Scholar Gwon was not a local official. He was an investigator working for the capital, monitoring exactly the kind of research she had been facilitating. Someone at the ministerial level was coordinating surveillance of genealogical inquiries, targeting networks connected to Song Si-yeol's students.
 
 People like her late husband.
 
-She resealed the letter carefully and arranged for its delivery to the correct address. But first she copied Scholar Yi's name and the provinces in his assignment, and she made note of the names listed for investigation.
+She resealed the letter carefully and arranged for its delivery to the correct address. But first she copied Scholar Gwon's name and the provinces in his assignment, and she made note of the names listed for investigation.
 
 She knew two of them.
 
@@ -62,7 +62,7 @@ She paused to refill his bowl.
 
 "I didn't tell her what it meant. I just placed the two things next to each other. She's intelligent. She could see it herself — that her brother's office was likely under review by a new superior, and that the changes were significant enough to affect even the local school. I thought it would ease her worry to know at least the shape of what was happening, even if the details were unclear."
 
-She continued with the rest of the day's account — the draper's new stock from the capital, the rumor that the ferry crossing would be closed for repairs. Small things. Ordinary texture.
+She continued with the rest of the day's account — the fabric merchant's new stock from the capital, the rumor that the ferry crossing would be closed for repairs. Small things. Ordinary texture.
 
 She looked at him. He had stopped eating. His chopsticks rested across the bowl, and he was watching her with an expression she had not seen before. Not anger. Not admiration. Something closer to recognition — as though he were seeing a tool he had been holding for years and only now understanding what it was made for.
 
@@ -94,13 +94,13 @@ She never heard four better ones.
 
 ---
 
-Now, sitting in the study with Scholar Yi's copied names in front of her, The investigators were looking for scholarly correspondence. Documented connections. Formal channels. Men writing to men about research that could be traced, catalogued, and prosecuted.
+Now, sitting in the study with Scholar Gwon's copied names in front of her, The investigators were looking for scholarly correspondence. Documented connections. Formal channels. Men writing to men about research that could be traced, catalogued, and prosecuted.
 
 They were not looking for a woman who had learned, over years of evening reports and magistrate's-wife gatherings and ordinary conversations about barley, to place two facts next to each other and let someone else see the shape they made.
 
 That evening she did not begin with the letters. She began with the women.
 
-She wrote to Ok-sun — a request to share dried persimmons next month. She wrote to Madam Choe, whose nephew worked in the chancellery — a polite inquiry about a fabric pattern. She wrote to three others. Wives, one widow, one merchant's mother. None of the letters mentioned scholarship. None mentioned politics. Each one carried, beneath the ordinary words, a question that would be answered in the same form.
+She wrote to Ok-sun — a request to share dried persimmons next month. She wrote to Madam Choe, whose nephew worked in the royal secretariat — a polite inquiry about a fabric pattern. She wrote to three others. Wives, one widow, one merchant's mother. None of the letters mentioned scholarship. None mentioned politics. Each one carried, beneath the ordinary words, a question that would be answered in the same form.
 
 The women would talk to their husbands and brothers and sons and servants. The answers would come back through gathering invitations, fabric samples, polite inquiries about the price of rice.
 
@@ -108,7 +108,7 @@ The women would talk to their husbands and brothers and sons and servants. The a
 
 Then she let the dead men die.
 
-She gathered the correspondence files from the compartment Scholar Pak had never examined. The voice notes. The careful records of what had been said to whom. Five months of five voices, written in the hands of men who were no longer alive, signed by a scholar who did not know what he was signing.
+She gathered the correspondence files from the compartment Scholar Pak had never examined. The transcribed conversations. The careful records of what had been said to whom. Five months of five voices, written in the hands of men who were no longer alive, signed by a scholar who did not know what he was signing.
 
 She burned them in the kitchen brazier, one document at a time.
 

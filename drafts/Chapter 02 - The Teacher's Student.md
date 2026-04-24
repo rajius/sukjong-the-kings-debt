@@ -32,7 +32,7 @@ He looked up. He had not assigned her anything. He had not known she was reading
 
 "What about it?"
 
-"The commentator says Duke Xiang's failure was indecision. But the Zuozhuan itself says he consulted three times before acting. That is not indecision. That is consultation. The commentator is punishing him for doing what the classics say a ruler should do."
+"The commentator says Duke Xiang failed because he hesitated. But the Zuozhuan says he consulted three times before acting." She shifted the tray in her hands. "I thought a ruler was meant to seek counsel. Why is he blamed for doing it?"
 
 Master Kim set down his brush. "That is not how the passage is taught."
 

@@ -56,7 +56,7 @@ The report was the lever. Not because it mattered -- any pretext would have serv
 
 He summoned the secretary back that afternoon and gave three orders. By evening, the chief minister had been stripped of office. By the end of the week, his allies had been scattered to provincial posts. By the end of the month, the rival faction -- men who had waited a generation for this opening, whose teachers had waited before them -- occupied every position that mattered.
 
-Sukjong was twenty. He had done it in a single season. The ministers who remained were not managed again.
+Sukjong was twenty. He had done it in a single season. He heard later that the chief minister's household had been packed in a single night. He did not ask where they went. The ministers who remained were not managed again.
 
 ---
 
@@ -202,7 +202,9 @@ They could carry it further.
 
 In the days that followed, Sukjong did one more thing the court record would not note.
 
-Through a private channel -- not an official dispatch, not a sealed decree, but a letter carried by a trusted hand to a trusted hand -- he sent a quiet inquiry south. The inquiry concerned the state of the tomb at Yeongwol: whether it still stood, whether the local people still tended it, whether the descendants of Eom Heung-do still lived in the county, whether the ground could bear the weight of what might one day come.
+The loyalists had been restored. But a commoner who had carried a body up a mountain in the dark remained unacknowledged. Honoring his loyalty to the boy king was not condemning anyone. And if the ground at Yeongwol could bear the commoner's weight, it could one day bear the boy's.
+
+Through a private channel -- not an official dispatch, not a sealed decree, but a letter carried by a trusted hand to a trusted hand -- he sent a quiet inquiry south. The inquiry concerned the state of the tomb at Yeongwol: whether it still stood, whether the local people still tended it, whether the descendants of Eom Heung-do still lived in the county.
 
 He did not frame it as preparation for restoration. He framed it as scholarly curiosity -- a king's private interest in provincial heritage. The letter carried no royal seal. It bore no official weight. It was deniable.
 

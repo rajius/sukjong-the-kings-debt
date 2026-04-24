@@ -1,5 +1,15 @@
 # Chapter 31 — The Restoration
 
+The memorial arrived in the ninth month, from a man Sukjong had never heard of.
+
+Sin Gyu. A saengwon — a classics licentiate who had never held high office. He asked for what no minister had dared to ask: full restoration of Nosan Daegun to royal status. King. Tomb. Shrine.
+
+The man was either reckless or he had measured the moment precisely. Sukjong had been waiting for the voice that would say it aloud so that the king did not have to say it first.
+
+He ordered a consultation. Let the court speak before the king speaks.
+
+---
+
 The records arrived at Inspector Yu's office in the eleventh month, carried by the inspector who had been sent to find them.
 
 Yu opened the cases himself. He read three pages and sent a message to the king.
@@ -37,6 +47,8 @@ Sukjong understood. The inspector had protected his source.
 He closed the case, then opened it again, studying the first handwriting once more. The characters moved faster than the brush — impatient, exact, the hand of someone who resented the delay between thought and ink. He had seen it before — a munkwa essay, the winning paper from a year when the candidate was sixteen. He had read it because sixteen was remarkable.
 
 He could not remember the name. The purge had followed the examination registers downward, and the registers did not distinguish between enemies and scholars who might have been useful.
+
+He closed the case. The room was quiet for a long time.
 
 "Send for Nam Guman," Sukjong said.
 
