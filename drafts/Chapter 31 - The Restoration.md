@@ -142,7 +142,7 @@ Ok-sun had found her. The handwriting was cautious, the phrasing careful, but un
 
 Lady Yoon read the letter twice. She sat for a long time before picking up the brush.
 
-An inspector's wife could not move the way a widow could. Every association noted, every letter observed. Reactivating the network from this house would expose everyone in it.
+One word — *stay* — and it had cost the network she built in years.
 
 *Ok-sun: I am grateful for your letter. Please give Scholar Pak my regards.*
 

@@ -126,9 +126,7 @@ Scholar Pak received the news without surprise.
 
 "I wondered when this might develop," he said quietly to Lady Yoon when they discussed the arrangements. "Scholarly partnerships often deepen when the work is... substantial."
 
-He offered congratulations and made arrangements for her departure from the seowon, though she could see he understood more about the nature of their "research" than he had ever acknowledged.
-
-But she watched his face during the ceremony and saw the cost. He would have to find someone else to manage the correspondence, the accounts, the delicate balance of keeping a seowon running without attracting attention. Her departure left him exposed in ways that would take months to repair.
+Lady Yoon smiled faintly. He offered congratulations and made arrangements for her departure from the seowon. She noticed his face was more tired than usual. Ok-sun told her yesterday that he had sent more letters since the wedding ceremony.
 
 ---
 

@@ -33,5 +33,3 @@ She nodded. This one is enough.
 They walked to the cart.
 
 The procession continued toward the shrine.
-
-In the provinces, grandmothers would not have to sing that song anymore. Scholars would not have to pass the secret question to their chosen students.
