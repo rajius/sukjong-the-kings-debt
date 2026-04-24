@@ -122,7 +122,7 @@ Nam's face revealed nothing, but his hands, folded inside his sleeves, shifted s
 
 "Your Majesty has read the memorial," Nam said carefully.
 
-"I have. Seven names. Seven men who died for a cause that my ancestor's court decided was treason." Sukjong let the weight of that sit between them. "But times change. Causes that were dangerous in one reign become... instructive in another. What instruction do you see here?"
+"I have. Seven names. Seven men who died for a cause that my ancestor's court decided was treason." Sukjong let the weight of that sit between them. "But times change. Causes that were dangerous in one reign become... worthy of remembrance in another. What name would you give them now?"
 
 "The Left State Councillor clearly views these men as worthy of remembrance."
 
@@ -136,11 +136,11 @@ Nam was trapped now, and both men knew it. Answer that Sejo was legitimate, and 
 
 "Heaven's will is often... difficult to discern in the moment," Nam said finally.
 
-"Indeed. But perhaps easier to discern with distance. Two hundred and forty years of distance." Sukjong set the memorial down deliberately. "I find myself wondering if seven generations of silence have been sufficient time for... clarification."
+"Indeed. But perhaps easier to discern with distance. Two hundred and forty years of distance." Sukjong set the memorial down deliberately. "I find myself wondering if seven generations of silence have been enough years to speak the thing by its name."
 
 "The Left State Councillor did not ask for restoration."
 
-"No. I am asking for it. King Jungjong restored the Six Ministers a century ago—he completed part of this work. But the work itself was left unfinished. Every reign since Jungjong has had the precedent and done nothing more. My father inherited that incomplete justice. I inherited it. If I do nothing, my son inherits the same unfinished business—and his burden will be heavier than mine, because it will include the knowledge that I had the precedent, understood the logic, and still looked away." He set the memorial down. "I am not willing to make that bequest."
+"No. I am asking for it. King Jungjong restored the Six Ministers a century ago—he completed part of this work. But the work itself was left unfinished. Every reign since has seen what Jungjong began, and done nothing more. My father inherited a wrong left half-righted. I inherited it. If I do nothing, my son inherits the same unfinished burden—and his will be heavier than mine, because it will include the knowledge that I saw, and still turned away." He set the memorial down. "I am not willing to leave that burden to my son."
 
 Nam stood with his hands folded inside his sleeves, his posture that of a man discussing the weather with a neighbor he respected. Sukjong had learned to distrust that posture. It meant Nam had already decided what the king should do and was now constructing the appearance of open counsel.
 
@@ -148,7 +148,7 @@ Nam stood with his hands folded inside his sleeves, his posture that of a man di
 
 "That a boy was wronged."
 
-"That a king was murdered by his uncle and every reign since maintained the lie. Full restoration is not a correction, Your Majesty. It is an indictment of the throne itself."
+"That a king was murdered by his uncle and every reign since maintained the lie. Full restoration is not a correction, Your Majesty. It is a charge laid upon the throne itself."
 
 Sukjong let the silence hold.
 
@@ -156,7 +156,7 @@ Sukjong let the silence hold.
 
 "Sejo is a portrait on a wall," Sukjong said. "Seven portraits back. I feel nothing when I read his name. No loyalty. No debt. Nothing."
 
-"What Your Majesty feels is not the same as what the court will hear." Nam paused. "You are twenty, Your Majesty. You have clarity about the past. But there is no formula yet for how to honor the victim without condemning the ancestor. If you declare full restoration before that formula exists, you hand your enemies the indictment and no defense."
+"What Your Majesty feels is not the same as what the court will hear." Nam paused. "You are twenty, Your Majesty. You have clarity about the past. But there is no settled way yet to honor the victim without condemning the ancestor. If you declare full restoration before that way exists, you give your rivals the charge and no answer."
 
 Sukjong studied the old minister. Nam was not wrong. The distance between reading about purges and having survived them was the distance between twenty and sixty, and Nam was standing in it.
 
@@ -166,7 +166,7 @@ Sukjong studied the old minister. Nam was not wrong. The distance between readin
 
 Nam waited. He had the patience of a man who had outlasted better arguments by simply remaining in the room after the argument had exhausted itself.
 
-"One step," Nam said. "A step that commits the throne to a direction without exposing it to the indictment. A step the next king cannot reverse -- so that when the formula is ready, the ground has already been prepared."
+"One move," Nam said. "One that sets the throne upon that road without exposing it to the charge. A move the next king cannot reverse — so that when the way is ready, the ground has already been prepared."
 
 "What step?"
 

@@ -16,7 +16,7 @@ He set the book down and stared at it for a long time.
 
 The next morning, Sukjong summoned Scholar Pak, the court historiographer, for what appeared to be a routine consultation about ceremonial precedents.
 
-"I have been reading about Chinese imperial practices," Sukjong said, gesturing to several volumes on his desk. The Ming text was among them, but positioned as if it were one of many sources rather than the centerpiece. "The relationship between legitimacy and shrine placement. How does our court typically handle... complex succession questions?"
+"I have been reading about Chinese imperial practices," Sukjong said, gesturing to several volumes on his desk. The Ming text was among them, but positioned as if it were one of many sources rather than the centerpiece. "How the shrine bears witness to succession. How disputed kings are handled in the ancestral hall. How does our court typically handle... complex succession questions?"
 
 Scholar Pak approached the desk cautiously. "Your Majesty refers to theoretical questions, or specific historical cases?"
 
@@ -26,7 +26,7 @@ Sukjong watched Pak's eyes move across the volumes, settling briefly on the Ming
 
 "Such questions would require careful research," Pak said. "Historical precedents exist, but their application to our kingdom's particular circumstances would need thorough consideration."
 
-"Indeed. Perhaps you could identify which precedents might be most instructive? I should like to understand the range of options available to a king in such a position."
+"Indeed. Perhaps you could identify which precedents might be most instructive? I should like to understand what ways lie open to a king in such a position."
 
 "I will prepare a comprehensive assessment, Your Majesty."
 
@@ -60,7 +60,7 @@ Nam read the marked passage, his expression growing more troubled with each line
 
 "Because?"
 
-"Because it makes the Westerner position intellectually unassailable," Nam said. "They would rather the question remain unsolved than solved in our favor."
+"Because it makes the Westerner position one that cannot be gainsaid," Nam said. "They would rather the question remain unsolved than settled to our advantage."
 
 Sukjong had been expecting this. Nam's sources were better than the court's gossip, and the court's gossip had been shifting for months.
 

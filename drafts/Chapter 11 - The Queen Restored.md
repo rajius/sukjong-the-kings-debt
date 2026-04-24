@@ -20,11 +20,11 @@ Sukjong set the documents on the desk, face down. He said nothing for a long tim
 
 He had always known this reversal would come. Mok was Jang Hui-bin's man — the fabrication had not happened without her knowledge. The woman he had elevated was not the woman who sat in the queen's chambers now. That one had been sharp and direct and unafraid of him. This one had learned from his example — how to use position as weapon, how to reward loyalty and punish doubt. He had given her too much, too quickly, and what grew in that space was not what he had planted.
 
-"The fabricators have given me a gift," he said. "They intended it as a weapon. Make it a procedural matter."
+"The fabricators have given me a gift," he said. "They intended it as a weapon. Make it a matter of corrupted inquiry."
 
 Nam studied the king's face. Then he understood.
 
-"Administrative fraud. The investigative process was compromised. The crown corrects the process, not the politics."
+"The papers are false. The inquiry was tainted. The crown corrects the handling of the matter, not the quarrel between factions."
 
 Sukjong waited.
 
@@ -86,7 +86,7 @@ Nam understood without elaboration. The purge had scattered the Westerner networ
 
 "He understands."
 
-Sukjong walked to the wooden chest and opened it. The formula was where he had left it, written in his own hand. For the first time since he had written it, the document was not an argument filed for the future. It was a plan waiting for the ground to be mapped.
+Sukjong walked to the wooden chest and opened it. The formula was where he had left it, written in his own hand. For the first time since he had written it, the document was no longer a paper laid by for another reign.
 
 He left the chest open.
 
