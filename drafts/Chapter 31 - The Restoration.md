@@ -2,11 +2,11 @@
 
 The records arrived at Inspector Yu's office in the eleventh month, carried by the inspector who had been sent to find them.
 
-Yu opened the cases himself. He read three pages and sent for the king.
+Yu opened the cases himself. He read three pages and sent a message to the king.
 
 ---
 
-Sukjong came to Yu's office — an unusual concession. Kings did not visit inspectors' offices. Inspectors brought their findings to the king. But Yu had sent word that the material required the king's presence, not a summary, and Sukjong understood from the phrasing that this was not routine.
+Sukjong came to Yu's office. Kings did not visit inspectors' offices — inspectors brought their findings to the palace. But Yu's message had asked whether the material should be carried through the palace grounds or examined where it sat, and Sukjong understood from the question that the fewer eyes on this, the better.
 
 He sat at Yu's desk and opened the first case.
 
@@ -26,13 +26,15 @@ Sukjong looked at the handwriting. Not the inspector's. Someone with a classical
 
 Yu said nothing. There were things the protocol did not require him to confirm.
 
-"These records have been maintained by someone else," Sukjong said. "For years. The annotations continue past the date of the original documentation. Someone kept them current."
+Sukjong turned the pages slowly. Partway through, the handwriting changed. The later annotations were in a different hand — clear, angular, without the flourishes of the first. The same work, continued by someone else.
+
+"Someone kept these current," Sukjong said. "For years after the original scholar died."
 
 "The inspector's report addresses the obstruction, the burial site assessment, and the status of the provincial records," Yu said carefully.
 
 Sukjong understood. The inspector had protected his source.
 
-He closed the case, then opened it again, studying the handwriting once more. The characters moved faster than the brush — impatient, exact, the hand of someone who resented the delay between thought and ink. He had seen it before — a munkwa essay, the winning paper from a year when the candidate was sixteen. He had read it because sixteen was remarkable.
+He closed the case, then opened it again, studying the first handwriting once more. The characters moved faster than the brush — impatient, exact, the hand of someone who resented the delay between thought and ink. He had seen it before — a munkwa essay, the winning paper from a year when the candidate was sixteen. He had read it because sixteen was remarkable.
 
 He could not remember the name. The purge had followed the examination registers downward, and the registers did not distinguish between enemies and scholars who might have been useful.
 
@@ -84,9 +86,7 @@ Scholar Pak read the decree aloud in the courtyard to the household and students
 
 When Scholar Pak finished reading, the students dispersed. Lady Yoon remained in the courtyard.
 
-She thought of the night Yeong-hak had left for Wonju, eight years ago. The ordinary goodbye.
-
-The physician had confirmed her guess. The last time, she had not known until it was gone. Only the wetness, the night they brought his body home.
+She thought of the night Yeong-hak had left for Wonju, eight years ago. The ordinary goodbye. Then the night they brought his body home, and she lost the child.
 
 ---
 
@@ -116,7 +116,7 @@ While they packed, a message arrived from Yu. The procession to install Danjong'
 
 "I want to see it," Lady Yoon said.
 
-Yi Hwon looked at her. She had carried the records that made the procession possible. She had inherited the work from a man who died before it was finished. She had maintained it alone for five years.
+Yi Hwon looked at her. She had carried the records that made the procession possible for years.
 
 He wrote to Yu that evening. His wife's family obligations required a stop in the capital before the Gyeongsang posting. The procession fell within the window. He requested a delay.
 
