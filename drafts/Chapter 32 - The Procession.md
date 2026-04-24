@@ -4,25 +4,7 @@ Sukjong stood at the window the morning before the procession.
 
 The restoration decree was three months old. Danjong's name would enter the Jongmyo shrine tomorrow, two hundred and forty years late. The boy-king would take his place in the formal succession, as if the delay had been an administrative matter.
 
-He thought about the essay. The scholar boy had been sixteen. Accurate in one account, naive in another. A king did not only pay the debt. He balanced the factions, secured the succession, and maintained the throne that made the payment possible — all from the same purse, all at the same time. If the boy had lived to see this day, he might have understood that.
-
-The scholars who should have seen this morning were dead because he could not pay one debt without defaulting on another.
-
----
-
-The night before the procession, Lady Yoon lay awake in the darkness. Yi Hwon felt her restlessness.
-
-"What is it?" he asked quietly.
-
-She was quiet for a long time. Then: "I want to see him."
-
-"Who?"
-
-"The king. Just once." Her voice was soft but determined. "I need to see the face behind all of this."
-
-Yi Hwon turned toward her in the darkness.
-
-"It can be arranged," he said finally. "But carefully."
+He thought about the essay. The scholar boy had been sixteen. Accurate in one account, naive in another. A king did not only pay the debt. He balanced the factions, secured the succession, and maintained the throne that made the payment possible — all from the same purse, all at the same time. If the boy had lived to see this day, how would he update his essay? Sukjong questioned silently.
 
 ---
 
