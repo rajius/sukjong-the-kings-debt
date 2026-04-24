@@ -122,7 +122,7 @@ They held a small wedding the following week.
 
 To the neighborhood, a capital man marrying a provincial widow before returning to his assignment was unremarkable. The ceremony was brief. Ok-sun stood witness.
 
-Scholar Pak received the news with resignation, though not surprise. He had observed their collaboration over the past months — the genealogy researcher's extended stay, the evening consultations over archival materials, the careful professional courtesy that had gradually become something less formal.
+Scholar Pak received the news without surprise.
 
 "I wondered when this might develop," he said quietly to Lady Yoon when they discussed the arrangements. "Scholarly partnerships often deepen when the work is... substantial."
 
@@ -148,7 +148,7 @@ She read the letter over his shoulder.
 
 "What does it mean?" she said.
 
-"It means you can only lean on my earnings to live."
+"It means we live on what I earn."
 
 "I have been there before."
 

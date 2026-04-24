@@ -20,9 +20,7 @@ Then she saw him.
 
 King Sukjong moved past in robes that caught the morning light, surrounded by the ceremony that made him more than human. She had imagined him smaller, somehow.
 
-The one who had invited Song Si-yeol back from exile and then ordered his death. The one who had, in his way, taken one husband from her and sent another.
-
-She imagined a better arrangement: one in which setting one thing right did not require the breaking of something else. One in which justice did not arrive carrying fresh damage in its hands.
+The one who had invited Song Si-yeol back from exile and then ordered his death. The one who had, in his way, taken one husband from her and sent another. She wondered what price he himself had paid. And whether it was enough.
 
 Once, she would have carried a thought like this home and heard it made sharper in reply.
 
@@ -37,5 +35,3 @@ They walked to the cart.
 The procession continued toward the shrine.
 
 In the provinces, grandmothers would not have to sing that song anymore. Scholars would not have to pass the secret question to their chosen students.
-
-Queen Inhyeon would be dead within two years. Jang Hui-bin would follow her.

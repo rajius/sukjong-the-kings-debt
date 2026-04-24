@@ -118,7 +118,9 @@ She held his gaze for a beat longer than civility required. Then she looked down
 
 The ceremony continued. He did not approach her. He did not need to.
 
-When the ceremony ended for the day, he heard her tell the host she would return tomorrow. He was nearby — not close enough to be obviously listening, close enough to have heard. She did not look at him when she said it.
+When the ceremony ended for the day, she passed close to him on her way to the host. He caught something in the air as she moved — faint, green, like crushed stems after rain. Not perfume. Something closer to skin, or to whatever she had washed with that morning. It was gone before he could place it.
+
+He heard her tell the host she would return tomorrow. She did not look at him when she said it.
 
 ---
 
