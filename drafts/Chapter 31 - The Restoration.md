@@ -14,13 +14,13 @@ Stone rubbings. Memorial tablets. The handwriting of a man he had never met — 
 
 He read the annotations. The burial location of each Danjong loyalist, verified against local records that contradicted the official county registers. The correspondences proving that the graves existed where the court had been told they did not. The stone rubbing of Eom Heung-do's memorial tablet — the one the provincial officials had claimed was destroyed.
 
-It was here. On his desk. The provincial officials had claimed the tablet was destroyed. The locals had kept it for two hundred years.
+It was here. On his desk. The provincial officials had claimed the tablet was destroyed. The locals had kept it for over two hundred years.
 
 "Who made these?" Sukjong said.
 
 "The inspector's report does not identify the source," Yu said. "Protocol."
 
-Sukjong looked at the handwriting. Not the inspector's. Someone else. Someone with a classical education.
+Sukjong looked at the handwriting. Not the inspector's. Someone with a classical education.
 
 "This person is dead," Sukjong said.
 
@@ -32,7 +32,7 @@ Yu said nothing. There were things the protocol did not require him to confirm.
 
 Sukjong understood. The inspector had protected his source.
 
-He closed the case, then opened it again, studying the handwriting once more. He had seen it before — a munkwa essay, the winning paper from a year when the candidate was sixteen. He had read it because sixteen was remarkable. The prose had been clear, precise, without vanity.
+He closed the case, then opened it again, studying the handwriting once more. The characters moved faster than the brush — impatient, exact, the hand of someone who resented the delay between thought and ink. He had seen it before — a munkwa essay, the winning paper from a year when the candidate was sixteen. He had read it because sixteen was remarkable.
 
 He could not remember the name. The purge had followed the examination registers downward, and the registers did not distinguish between enemies and scholars who might have been useful.
 
@@ -80,13 +80,13 @@ The court received the decree with the practiced solemnity of men who understood
 
 At the seowon, Lady Yoon heard the news on a morning in late autumn.
 
-Scholar Pak read the decree aloud in the courtyard to the household and students gathered there. She stood at the edge of the group, her hand resting on the swell of the child, now heavy beneath her autumn clothes.
+Scholar Pak read the decree aloud in the courtyard to the household and students gathered there. She stood at the edge of the group, her hand resting on her stomach beneath her autumn clothes.
 
 When Scholar Pak finished reading, the students dispersed. Lady Yoon remained in the courtyard.
 
 She thought of the night Yeong-hak had left for Wonju, eight years ago. The ordinary goodbye.
 
-The child moved under her hand — barely perceptible, but real. The last time, she had not felt the child move at all. Only the wetness, the night they brought his body home.
+The physician had confirmed her guess. The last time, she had not known until it was gone. Only the wetness, the night they brought his body home.
 
 ---
 
@@ -100,9 +100,35 @@ She looked at him — thinner than when he had left, but steady.
 
 "And now?" she asked.
 
-"Now we leave for the capital. My new assignment is permanent. There is a house arranged, modest but suitable." He paused. "If you are ready."
+"Now we leave. My new assignment is in Gyeongsang. There is a house arranged, modest but suitable." He paused. "If you are ready."
 
-She was ready.
+Lady Yoon nodded. "This one will be ready too."
+
+Yi Hwon looked at her. Her fingers rested on her stomach.
+
+He was still for a moment. Then he stepped forward and put his arms around her, and she felt him smile against her hair.
+
+"The house is enough for three," he said.
+
+---
+
+While they packed, a message arrived from Yu. The procession to install Danjong's tablet at the Jongmyo shrine would be held in the third month.
+
+"I want to see it," Lady Yoon said.
+
+Yi Hwon looked at her. She had carried the records that made the procession possible. She had inherited the work from a man who died before it was finished. She had maintained it alone for five years.
+
+He wrote to Yu that evening. His wife's family obligations required a stop in the capital before the Gyeongsang posting. The procession fell within the window. He requested a delay.
+
+Yu's reply arrived within the week.
+
+*The posting is for your protection, not punishment. The longer you remain visible, the more questions follow you home.*
+
+*However: I can place you on temporary assignment at the ministry. Desk work. No field contact. Available only if His Majesty calls you directly. You remain in the capital through the third month, then you leave for Gyeongsang the day after the procession.*
+
+*This is the best arrangement I can offer. Take it or go south now.*
+
+Yi Hwon wrote back that evening. He would take the arrangement.
 
 ---
 
@@ -136,7 +162,7 @@ An inspector's wife could not move the way a widow could. Every association note
 
 *With warm regards, Lady Yi*
 
-She sealed the letter.
+She sealed the letter and got ready for visiting her mother-in-law's house.
 
 ---
 
@@ -158,9 +184,9 @@ Yi Hwon's mother poured tea with the precision of a woman performing hospitality
 
 ---
 
-The house was quiet in the afternoons.
+The house was quiet in the sunset. She rested against the window frame, watching the red light disappear from the horizon. The maid lit the lamp and said the bath would be ready soon. A bath was all she needed after a long day of courtesy.
 
-She sat at the desk and did not write. The name that owed her did not need it. The network was dormant. But she could still find the man if she wanted.
+She looked at the desk. For a moment she thought of writing something — about the name that owed her. The network was dormant. But she could still find the man if she wanted.
 
 The child moved.
 
