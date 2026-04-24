@@ -142,7 +142,7 @@ Ok-sun had found her. The handwriting was cautious, the phrasing careful, but un
 
 Lady Yoon read the letter twice. She sat for a long time before picking up the brush.
 
-One word — *stay* — and it had cost the network she built in years.
+One word — *stay* — had carried a weight she had not entirely considered at the time.
 
 *Ok-sun: I am grateful for your letter. Please give Scholar Pak my regards.*
 

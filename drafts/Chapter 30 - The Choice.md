@@ -102,11 +102,11 @@ Three days later, Yi Hwon wrote to Yu.
 
 Yu read the letter at his desk in the capital.
 
-In twenty years of managing provincial assignments, he had not received quite this combination of success and complication. The man had secured the most important intelligence cache in a generation and gotten himself personally entangled with the source. The professional judgment appeared sound. The personal judgment remained to be seen.
+In twenty years of managing provincial work, he had not received quite this combination of success and complication. The man had secured the most valuable records in a generation and gotten himself entangled with the source. The work was sound. The rest remained to be seen.
 
 He called for paper and brush.
 
-The first letter would go to the administrative clerk. A routine notation: Inspector Yi Hwon's provincial assignment required documentation under assumed identity. Marriage record to be transferred to service file for legitimacy. The clerk would ask no questions.
+The first letter would go to the administrative clerk. A routine notation: Inspector Yi Hwon's provincial assignment required documentation under assumed identity. Marriage record to be transferred to his file for legitimacy. The clerk would ask no questions.
 
 The second letter would go to Yi Hwon.
 
