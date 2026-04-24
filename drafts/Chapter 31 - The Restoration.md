@@ -118,11 +118,11 @@ While they packed, a message arrived from Yu. The procession to install Danjong'
 
 Yi Hwon looked at her. She had carried the records that made the procession possible for years.
 
-He wrote to Yu that evening. His wife's family obligations required a stop in the capital before the Gyeongsang posting. The procession fell within the window. He requested a delay.
+He wrote to Yu that evening. His family obligations required a stop in the capital before the Gyeongsang posting. The procession fell within the window. He requested a delay.
 
 Yu's reply arrived within the week.
 
-*The posting is for your protection, not punishment. The longer you remain visible, the more questions follow you home.*
+*The posting is for your protection. The longer you remain visible, the more questions follow you home.*
 
 *However: I can place you on temporary assignment at the ministry. Desk work. No field contact. Available only if His Majesty calls you directly. You remain in the capital through the third month, then you leave for Gyeongsang the day after the procession.*
 
