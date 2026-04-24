@@ -10,7 +10,7 @@ Lady Yoon opened the cases slowly. Her hands were steady. Her breathing was not.
 
 Yi Hwon opened the first case.
 
-The documents were meticulous. Yeong-hak's handwriting — precise, unhurried, the hand of a man who wrote the way he thought: without shortcuts. Each stone rubbing was annotated with location, date, and the name of the loyalist whose grave it documented. The correspondence was filed chronologically and cross-referenced by county.
+The documents were meticulous. Yeong-hak's handwriting — precise, impatient, the hand of a man who thought faster than he wrote. Each stone rubbing was annotated with location, date, and the name of the loyalist whose grave it documented. The correspondence was filed chronologically and cross-referenced by county.
 
 Yi Hwon read three pages and stopped.
 
@@ -24,7 +24,7 @@ They spent four days organizing the records for transport.
 
 The work required both of them — her knowledge of what the documents contained and his understanding of what the court would require. She knew which rubbings were originals and which were copies. He knew which originals the court would demand and which copies would suffice. She knew which correspondences proved the burial locations. He knew the format in which the Board of Rites would accept the evidence.
 
-The first nights, Yi Hwon returned to his quarters before midnight. Professional work. Careful distance maintained even in the lamplight.
+The first nights, Yi Hwon returned to his quarters before midnight. The work required it — careful distance maintained even in the lamplight.
 
 But something had shifted since the night she had closed the door and asked him to stay. He sat beside her at the desk, not across from it. Their arms touched when they both reached for the same document. Neither of them adjusted.
 
