@@ -56,11 +56,29 @@ She showed him the arrangement while the students were at their morning lessons.
 
 ---
 
-The first week established the pattern.
+He always sat nearest the door. She did not ask why. After the second evening she stopped noticing it as a choice and began noticing it as absence — the nights he was late, the empty chair on the wrong side of the desk.
 
-Days: Lady Yoon managed the seowon household. Yi Hwon worked in the archives, consulting local genealogies, taking notes on family records. They maintained careful distance when their paths crossed in the corridors.
+The work filled the evenings. He brought a second lamp from his quarters. He rebuilt the fire without being asked. Small things. The quiet competence of a man who had lived alone long enough to manage a room without announcing it. She had lived with a man who forgot rooms existed. This was different.
 
-Evenings: When the lamps went out and the students settled for sleep, Yi Hwon crossed the courtyard. They worked on route planning, contact verification, document organization. The burial records would be ready for transport within days.
+One evening the work stalled. A route she could not verify, a name that would not resolve. Lady Yoon set the document aside.
+
+"Why did you choose the civil service?" she said. "Your father was military."
+
+Yi Hwon looked at her. Not at the question — at the fact of it. "You sent a letter. To find out about me." He paused. "Is that when you found the handkerchief?"
+
+Lady Yoon kept her face very still. She could feel the warmth climbing her neck and willed it to stop at her collar.
+
+Yi Hwon set down his brush. If he noticed, he did not say so.
+
+"I did not want to go to war," he said. "I never saw the point. But the training my father insisted on turned out to be useful after I passed the munkwa. The road work requires a man who can sleep on the ground and move without being heard." He paused. "My father does not know this is what his training produced. He believes I sit at a desk."
+
+"You fooled him?"
+
+"Regularly. When I was fourteen he sent me to a garrison for summer discipline. I spent the month reading in the quartermaster's supply room. The quartermaster owed my father a debt and said nothing."
+
+Lady Yoon started to smile before the story was finished.
+
+Somewhere in the middle of the week, she stopped pouring one cup of tea.
 
 Ok-sun observed the arrangement without comment. She brought meals to both quarters, swept both courtyards, and said nothing about Yi Hwon's evening lamp never being lit.
 
@@ -68,7 +86,9 @@ Scholar Pak asked no questions about the genealogy researcher's progress. The ac
 
 ---
 
-On the seventh night, the work was nearly complete.
+On the seventh night, she heard him crossing the courtyard before he knocked. She had been listening for it.
+
+The work was nearly complete.
 
 They sat at Lady Yoon's desk, reviewing the final routes. The burial records were organized, the contacts verified. Yi Hwon would leave for the capital within days to deliver what Yeong-hak had died trying to preserve.
 
