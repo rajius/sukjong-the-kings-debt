@@ -134,6 +134,12 @@ Lady Yoon looked at him. His face held nothing — no cruelty, no apology. He wa
 
 She nodded, once.
 
+"I also heard you rejected many proposals," he said.
+
+Lady Yoon smiled faintly. "I like being in the seowon."
+
+Yeong-hak heard the unspoken part. *She only accepted a better alternative.*
+
 He picked up the document. She returned to the sleeve.
 
 The room was quiet and warm. The distance was his.
