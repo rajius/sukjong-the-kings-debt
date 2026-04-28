@@ -90,7 +90,13 @@ On the seventh night, she heard him crossing the courtyard before he knocked. Sh
 
 The work was nearly complete.
 
-They sat at Lady Yoon's desk, reviewing the final routes. The burial records were organized, the contacts verified. Yi Hwon would leave for the capital within days to deliver what Yeong-hak had died trying to preserve.
+They sat at Lady Yoon's desk, reviewing the final routes. The burial records were organized, the contacts verified. Yi Hwon would leave within days to verify the burial sites — three weeks moving through hostile counties alone, checking graves that were not supposed to exist.
+
+Three weeks in the field. Magistrates asking questions. Men with torches on mountain roads. He would be carrying nothing that identified him, and if something went wrong, Yu's office would note the loss and continue without him.
+
+Either way, the desk would be empty and the second cup would go back to the shelf.
+
+She had watched one man leave for the provinces and not come back. The work had been the same work.
 
 "The southern route is closed," she said. "We'll move the records through Jecheon instead. There is a contact there I trust."
 
