@@ -68,6 +68,20 @@ She set it down beside the stone rubbings.
 
 It was the first time she had spoken the husband's name in front of Yi Hwon since the stream.
 
+"Why now?" she said. "The king has known about the boy for twenty years. Why does he want the restoration now?"
+
+Yi Hwon did not look up from the document. "The Southerners held the court. They had no reason to restore Danjong — it would vindicate everything the Westerners stood for. The king had to wait until they lost their grip."
+
+"But the Westerners held the court before that. Why not then?"
+
+"Because they were pressing him about the queen. About the heir." He turned a page. "They wanted Inhyeon restored and Jang Hui-bin's son set aside. The king needed them out of the way before he could settle the succession on his own terms. So he let the reversal happen."
+
+He said it the way a man describes weather that occurred in another province.
+
+Lady Yoon set down her brush. *So the purge was his game.*
+
+She picked it up again.
+
 ---
 
 The problem came on the third morning.
