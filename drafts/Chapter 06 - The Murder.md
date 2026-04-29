@@ -146,7 +146,7 @@ Master Kim seemed to have trouble focusing. "There was... someone asked about hi
 
 The fragment told her nothing useful.
 
-"I have arranged... Scholar Pak will come for the seowon. I told him you manage the practical matters. You will have a place. Cover."
+"I have arranged... Scholar Pak will come for the seowon with his wife. I told him you manage the practical matters. You will have a place. Cover."
 
 She nodded.
 

@@ -20,11 +20,11 @@ After that, books came regularly. One at a time, through Mrs. Kim, with the same
 
 ---
 
-Mrs. Kim died in the winter of the following year. A cough, then fever, then silence. The household reorganized around the girl.
+Mrs. Kim died in the winter of the following year. A cough, then fever, then silence. Her daughter came from Naju but could not stay long — she had a household of her own. The household reorganized around the girl.
 
 She was eighteen now, and there was no one else. The other servants cooked and cleaned but could not manage accounts or correspondence. Mrs. Kim had done all of this. The girl did it now.
 
-Master Kim noticed eventually. When grief cleared enough for him to see his household running as it had when his wife was alive, the answer was standing in his study doorway with a question about a passage she had been reading.
+Master Kim did not notice for months. He taught. He ate what was placed before him. He did not ask who had arranged the suppliers or balanced the accounts or written the letters to the paper merchant in his wife's place. When grief cleared enough for him to see his household running as it had when his wife was alive, he saw who had been running it.
 
 One evening she brought his tea and did not leave. She stood in the doorway of the study, holding the empty tray, and said: "The Zuozhuan commentary you assigned the second-years. The passage on Duke Xiang."
 

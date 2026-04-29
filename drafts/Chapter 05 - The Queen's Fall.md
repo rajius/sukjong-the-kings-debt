@@ -1,54 +1,52 @@
 # Chapter 5 — The Queen's Fall
 
-Lady Jang Hui-bin would be elevated to queen. Her son would remain crown prince. Queen Inhyeon would be stripped of her title and exiled from court.
+The question came in early summer, delivered through channels so formal that Sukjong knew the court had already chosen sides.
 
-The Gisa Hwanguk — the reversal of 1689.
+"The succession," Nam Guman said, setting the memorial on the king's desk with the particular care reserved for documents that would change everything. "The crown prince's legitimacy. The Westerners have prepared their argument."
+
+Sukjong read without expression. The language was precise, respectful, and absolute: Lady Jang's son could not inherit the throne. The reasons were carefully constructed around precedent, propriety, and the stability of the dynasty. Nowhere did the memorial mention that the boy's mother had been born a concubine, but the argument turned entirely on that fact.
+
+"And their alternative?"
+
+"Queen Inhyeon's son. When she provides one."
+
+The conditional was pointed. The queen had been married to Sukjong for seven years. Lady Jang had given him a son in two.
+
+Sukjong set the memorial down and walked to the window.
+
+"They mean to decide this for me," he said.
+
+"They mean to advise, Majesty."
+
+"No. They mean to decide." Sukjong turned back to Nam. "The crown prince's mother was elevated by royal decree. The prince was acknowledged by royal proclamation. If the court can void those decisions, then the court governs, not the king."
+
+Nam was quiet for a long moment. "The Westerners have served your family for thirty years."
+
+"And now they would serve their own principles more than their king."
+
+"The purge will be extensive."
+
+Sukjong looked at him carefully. Nam's expression revealed nothing, but his presence here, now, with this warning, was its own form of counsel.
+
+"Who will remain?"
+
+"The Southerners. Those who opposed the Westerners' rise to power. They will support any decision that diminishes Song Si-yeol's influence."
+
+"And if I proceed?"
+
+"The Westerners will be removed from office. Their students will be questioned. Their networks will be examined — in the capital and in the provinces." Nam paused. "Song Si-yeol trained the best minds of a generation, Majesty. The net will not sort them."
+
+Sukjong heard the warning. But the court had spent seven years demanding an heir, and Lady Jang had provided one. They had told him what to do, and when he did it, they told him he had done it wrong.
+
+"Summon the council," he said.
 
 ---
 
-Sukjong stood at the window of the council chamber, watching the afternoon light shift across the palace grounds. Behind him, Chief Minister Min Jeong-jung waited with the list.
+The announcement was brief.
 
-"Your Majesty requested the Westerner sympathizers," Min said. "We have identified the core."
+Lady Jang Hui-bin would be elevated to queen. Her son would remain crown prince. Queen Inhyeon would be stripped of her title and exiled from court.
 
-"Show me."
-
-Min approached with the scroll. Sukjong did not turn from the window. "Read the names."
-
-"Song Si-yeol, as expected. Kim Soo-hang. Lee Se-baek. Master Cho from Andong. Scholar Min." Min's voice carried the satisfaction of a man whose intelligence work had proven thorough. "Seventeen in the capital. Forty-three in the provinces."
-
-"Sixty total." Sukjong finally turned. "All proven Westerner loyalists?"
-
-"The core, yes. But Your Majesty..." Min hesitated. "There are others. Associates. Correspondents. Students who carried messages. If we stop at the core, we leave the network intact."
-
-Sukjong took the scroll, read the first page. Song Si-yeol's name headed the list, followed by men he recognized from his father's court. But the secondary list was longer. Much longer.
-
-"How many associates?"
-
-"Perhaps two hundred. Some are merely sympathetic. Others have provided material support."
-
-Sukjong set the scroll on the table. He knew what Min was proposing without the words being spoken. Open the gate wide enough, and guilt would be determined by proximity rather than action. Correspondence would become conspiracy. Intellectual sympathy would become treason.
-
-"The Queen expects decisive action," Min said carefully. "The court expects the king to demonstrate that loyalty has consequences. And disloyalty..." He gestured at the scroll. "Also has consequences."
-
-"And if we pursue the associates as well as the core?"
-
-"We ensure that this faction cannot regroup. That future kings will not face the same persistent opposition to necessary decisions."
-
-Sukjong walked to the window again. Below, servants moved through the courtyard, carrying out their daily tasks. They would continue their work regardless of which names appeared on execution lists, which scholars disappeared in the night. The palace would operate. The kingdom would continue.
-
-But the scholars would be gone. Not just the seventeen who had actively opposed him, but the two hundred whose crime was knowing them.
-
-"Issue the orders for the core list," Sukjong said without turning. "Have the provincial authorities prepare the secondary actions, but do not execute them yet."
-
-"Your Majesty wishes to review the associate list?"
-
-"I wish to ensure that when we open this door, we can control where it leads." Sukjong faced Min directly. "But understand me clearly, Minister. I will open it. The question is not whether the network is destroyed, but whether we destroy it precisely or completely."
-
-Min bowed. "As Your Majesty commands."
-
-"And Minister? When the executions begin, ensure that the manner reflects royal justice, not royal vengeance. Song Si-yeol dies cleanly. He is an enemy of my reign, not an enemy of the kingdom."
-
-After Min departed, Sukjong remained at the window. He had just condemned sixty men to death and perhaps two hundred more to disgrace. Some deserved it. Others had merely chosen intellectual allegiance poorly.
+The Gisa Hwanguk — the reversal of 1689.
 
 The purge began the same afternoon.
 
@@ -126,6 +124,12 @@ But he remained in the study longer than usual. In the morning, the letter was g
 
 ---
 
+In his private study, Sukjong opened the wooden chest. The formula was there, written in his own hand. He folded it and returned it to the chest.
+
+Outside, the palace was settling into the new order. The kingdom was stable. The succession was secure. The crown's authority had been preserved.
+
+---
+
 In the days that followed, Yeong-hak burned more than he wrote. He completed documents that had been in progress for months. The brazier was lit every evening.
 
 She did not ask about the letter. But she watched him make choices that suggested he understood the warning.
@@ -135,3 +139,5 @@ When he worked late, she ground his ink and trimmed his brushes as always. When 
 ---
 
 That night Lady Yoon lay awake in the dark. Beside her, Yeong-hak breathed with the even rhythm of sleep.
+
+She knew what he knew. He did not know that she knew it.
