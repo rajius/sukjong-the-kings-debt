@@ -8,6 +8,8 @@ The man was either reckless or he had measured the moment precisely. Sukjong had
 
 He ordered a consultation. Let the court speak before the king speaks.
 
+The responses arrived within the month. Four hundred and ninety-one officials. The weight was overwhelming. He had prepared the Wanli precedent — the argument that would silence any opposition. He would not need it.
+
 ---
 
 The records arrived at Inspector Yu's office in the eleventh month, carried by the inspector who had been sent to find them.

@@ -120,7 +120,13 @@ The second letter would go to Yi Hwon.
 
 They held a small wedding the following week.
 
-To the neighborhood, a capital man marrying a provincial widow before returning to his assignment was unremarkable. The ceremony was brief. Ok-sun stood witness.
+Her first wedding had been deliberate — small, but proper. Master Kim's household, a few local scholars, the ceremony observed in full. She had worn borrowed silk. Yeong-hak had stood across from her with the expression of a man completing an arrangement that met his specifications.
+
+This one was simpler. A provincial official performed the rites in Scholar Pak's courtyard. Ok-sun stood witness and wept, which Lady Yoon had not expected. Mrs. Pak brought food she had prepared since morning. There was no borrowed silk. She wore what she had.
+
+Yi Hwon's hands were steady through the ceremony. Hers were not.
+
+To the neighborhood, a capital man marrying a provincial widow before returning to his assignment was unremarkable.
 
 Scholar Pak received the news without surprise.
 
