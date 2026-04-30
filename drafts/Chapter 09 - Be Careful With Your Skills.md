@@ -90,7 +90,7 @@ She watched for what would happen with Lady Choe. Within a week, Lady Choe had d
 
 All because two unrelated observations — a paper merchant's changed route and a schoolteacher's offhand remark — had been placed side by side by a woman pouring tea.
 
-She never heard four better ones.
+She never heard better advice.
 
 ---
 

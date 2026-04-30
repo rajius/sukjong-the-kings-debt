@@ -190,7 +190,7 @@ Yi Hwon's mother poured tea with the precision of a woman performing hospitality
 
 The house was quiet in the sunset. She rested against the window frame, watching the red light disappear from the horizon. The maid lit the lamp and said the bath would be ready soon. A bath was all she needed after a long day of courtesy.
 
-She looked at the desk. For a moment she thought of writing something — about the name that owed her. The network was dormant. But she could still find the man if she wanted.
+She looked at the desk. For a moment she thought of writing something — about the name that owed her.
 
 The child moved.
 

@@ -8,7 +8,7 @@ She began asking.
 
 Mrs. Kim had taught her something besides books: the women's networks that ran beneath official channels. Wives of scholars, sisters who visited the capital, servants' families in connected households.
 
-She started with the wife of a scholar in the neighboring county — a woman named Ok-sun whose husband corresponded with colleagues in the capital and who received, through her own channels, the kind of news that did not appear in any letter between men.
+She started with the wife of a scholar in the neighboring county — Mrs. Han, whose husband corresponded with colleagues in the capital and who received, through her own channels, the kind of news that did not appear in any letter between men.
 
 They sat in Ok-sun's kitchen. The visit was social — a gift of dried persimmons, a polite inquiry about the children. She waited until the second cup of tea before she mentioned that Master Kim was considering a match for her with a former student.
 

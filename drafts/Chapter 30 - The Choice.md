@@ -96,25 +96,17 @@ Lady Yoon closed her eyes.
 
 Three days later, Yi Hwon wrote to Yu.
 
-*The verification is complete. Fourteen of sixteen sites confirmed, sufficient for legal attestation. Records ready for delivery.*
+*Fourteen of sixteen sites confirmed. Records ready for delivery. I intend to marry the woman before departing. This will require my real name. Request permission. - Yi*
 
-*I intend to marry the source before departing. She operates under an assumed name. The marriage requires documentation under my real name, which will expose the cover identity. Request authorization to proceed. - Yi*
+Yu read the letter twice.
 
-Yu read the letter at his desk in the capital.
+In twenty years of provincial work, no one had sent him quite this letter. The man had found the records and gotten himself attached to the source. The work was sound. The rest remained to be seen.
 
-In twenty years of managing provincial work, he had not received quite this combination of success and complication. The man had secured the most valuable records in a generation and gotten himself entangled with the source. The work was sound. The rest remained to be seen.
+He wrote two replies. The first, to his clerk: transfer the inspector's marriage record to his file. No further explanation.
 
-He called for paper and brush.
+The second, to Yi Hwon:
 
-The first letter would go to the administrative clerk. A routine notation: Inspector Yi Hwon's provincial assignment required documentation under assumed identity. Marriage record to be transferred to his file for legitimacy. The clerk would ask no questions.
-
-The second letter would go to Yi Hwon.
-
-*Inspector Yi: Your assignment has concluded successfully. Arrangements will be made to regularize your administrative position within two weeks.*
-
-*Complete the delivery. Protect the source. Your personal entanglement does not void your professional accomplishment, provided both are managed properly.*
-
-*- Yu*
+*Finish the delivery. Keep the woman safe. I will handle the papers. Do not make me regret this. - Yu*
 
 ---
 
